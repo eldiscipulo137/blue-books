@@ -1,0 +1,26 @@
+---
+title: Meditación sobre el corazón
+---
+
+# Meditación sobre el corazón
+
+> [Cartas de meditación ocultista](/cartas-meditacion-ocultista/carta4#observaciones-finales)
+
+Al meditar sobre el centro cardíaco, imaginarlo como un loto dorado y cerrado. Al enunciar la Palabra Sagrada, imaginen este loto expandiéndose lentamente, hasta ver el centro o vértice interno como un radiante remolino de luz eléctrica, más azul que dorada. Formar allí la imagen del Maestro, en materia etérica, emocional y mental. Esto implica retraer más internamente la conciencia. Una vez que la imagen esté completamente formada, emítase otra vez suavemente la Palabra y, mediante un esfuerzo de la voluntad, retraerse aún más internamente y vincularse con el centro de doce pétalos de la cabeza, el centro de la Conciencia causal. Hacer esto lenta y gradualmente, manteniendo una actitud de paz y calma perfectas. Existe una relación directa entre los dos centros de doce pétalos y la meditación ocultista; la acción del fuego kundalínico revelará más adelante su significado. Esta visualización lleva a la síntesis, al desenvolvimiento y a la expansión causal y, con el tiempo, conduce al hombre a la presencia del Maestro.
+
+El plexo solar es el asiento de las emociones, y no hay que concentrarse en él durante la meditación. Es la base de la curación física, y más adelante será mucho mejor comprendido. Es el centro de la actividad -actividad que más tarde será intuitiva, el centro laríngeo actúa radiantemente cuando es transferida la polarización del átomo físico al átomo mental permanente, como ya se ha explicado. Entonces el átomo mental permanente se convierte en el centro de la razón pura o pensamiento abstracto. Luego llega un momento en el desenvolvimiento de la conciencia, en que la fuerza emocional, que rige a la generalidad, es trascendida y reemplazada por la fuerza del intelecto superior. A menudo marca un período en que el individuo es guiado puramente por la razón, y sus emociones ya no lo gobiernan. Esto se puede manifestar en el plano físico como inflexibilidad intelectual. Más tarde, el átomo emocional permanente cede su lugar al intuitivo, y la intuición pura y la comprensión perfecta, por medio del amor, constituyen el poder motivador, además de la facultad de razonar. Entonces el plexo solar se caracteriza por la preponderancia del color verde de la actividad, porque el cuerpo emocional es el agente activo de lo superior, y engendra muy poco el color rosa del deseo humano.
+
+En la rotación de la fuerza, a través del vórtice (rotación que forma los pétalos del loto), se observará que ciertos pétalos resaltan sobre los demás, y cada centro manifiesta una cruz de modalidad peculiar, excepto en los dos centros de la cabeza, síntesis de las cruces inferiores. La cruz de cuatro brazos del tercer Logos se halla en la base de la columna vertebral, y la cruz de la cuarta Jerarquía humana en el corazón.
+
+Cuando el aspirante medio entona la Palabra Sagrada, lleva la fuerza al etérico a través de todos los centros internos, y causa un definido estímulo en los pétalos de cada centro. Si el loto está abierto parcialmente, sólo algunos pétalos reciben el estímulo. Esto da origen a una vibración (especialmente en el centro sobre el cual el individuo medita -el coronario o el cardíaco), lo cual da origen a una acción refleja en la columna vertebral, hasta su base. Esto, por sí mismo, no es suficiente para despertar el fuego; sólo se puede hacer en forma correcta, en la clave adecuada y sujeto a ciertas reglas.
+
+Cuando la meditación se hace en el corazón, mediante la entonación correcta de la Palabra Sagrada, y de acuerdo a las leyes ocultas, la fuerza llega a través de los centros emocionales, desde los niveles intuitivos. Cuando se realiza en la cabeza, la fuerza llega por los centros mentales desde los niveles manásicos abstractos y, más tarde, desde el átmico. Uno imparte intuición espiritual y el otro, conciencia causal.
+
+**Hombre avanzado es aquel que une los dos centros mayores -coronario y cardíaco- en un instrumento sintético, y cuyo centro laríngeo vibra al mismo ritmo.** Entonces tiene la voluntad y el amor fusionados en servicio armónico, y la actividad del físico inferior es trasmutada en idealismo y altruismo. Al llegar a esta etapa el hombre está preparado para despertar el fuego interno. Sus cuerpos están suficientemente refinados para resistir la presión y la precipitación; nada contienen que sea perjudicial para su progreso; los centros son objeto de una sintonización suficientemente elevada, como para recibir el nuevo estímulo. Cuando esto se ha realizado llega el momento de la iniciación, en que el servidor, en cierne, de la humanidad, llega ante su Señor con el deseo purificada, el intelecto consagrado y un cuerpo físico que es su servidor y no su amo.
+
+
+:::note Recuerda
+
+Cuando la meditación se hace en el corazón, mediante la entonación correcta de la Palabra Sagrada, y de acuerdo a las leyes ocultas, la fuerza llega a través de los centros emocionales, desde los niveles intuitivos. Cuando se realiza en la cabeza, la fuerza llega por los centros mentales desde los niveles manásicos abstractos y, más tarde, desde el átmico. Uno imparte intuición espiritual y el otro, conciencia causal.
+
+:::

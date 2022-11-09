@@ -1,0 +1,636 @@
+---
+title: El empleo de fórmulas o formas en la meditación
+---
+
+# CARTA VI
+
+## EMPLEO DE FORMULAS O FORMAS EN LA MEDITACION
+
+1. <pin lang="en">139</pin> Fórmulas para elevar la conciencia.
+2. Fórmulas empleadas por el místico y el ocultista.
+3. Fórmulas específicas.
+4. Empleo colectivo de las Fórmulas.
+
+## 6 de agosto de 1920.
+
+<p>
+<pin lang="es">110</pin> <pin lang="en">140</pin> No puedo acceder plenamente al lógico deseo de ustedes de darles en esta sexta carta ciertas fórmulas específicas, para alcanzar determinados resultados. No intento delinear fórmula alguna para que la sigan estrictamente. Los peligros, como ya he explicado, son demasiado grandes, si no se cuenta con la supervisión de un Instructor que vigile las reacciones. Tales fórmulas podrán ser impartidas más adelante. El trabajo ya está debidamente planeado para la próxima generación de estudiantes y esta serie de cartas tiene su lugar dentro del mismo. Hoy me propongo impartir cosas diferentes, las cuales tratar‚ y dilucidar‚ por separado. Si se asimilan y aplican correctamente, traerán mucha luz. En el método ocultista, la enseñanza se da paso a paso; cada punto es presentado al estudiante lenta y gradualmente y sólo cuando se dan los pasos y se capta cada punto, se aclara el siguiente. El instructor hace una insinuación, da un indicio y descubre un punto importante. El estudiante sigue la descripción de ese punto, y al hacerlo afluye mayor luz; aparece otra etapa y se hacen otras insinuaciones. El estudiante es entrenado por el ocultista mediante la acción y la reacción combinadas.
+</p>
+
+Al estudiar el tema sobre el "empleo de las formas o fórmulas en la meditación", la información que impartiré será clasificada en cuatro subtítulos:
+
+1. Fórmulas para elevar la conciencia.
+2. Fórmulas empleadas por el místico y el ocultista.
+3. <pin lang="en">141</pin> Fórmulas específicas para fines específicos.
+4. Empleo colectivo de las Fórmulas.
+
+<p>
+<pin lang="es">111</pin> Observarán que cuando expongo estos temas, trato de darles una exacta comprensión del valor de las fórmulas de meditación y no un método definido. Procuro demostrar que es esencial proceder de acuerdo a. la ley cuando se utiliza este medio tan importante para lograr la unión con lo divino y la unificación de lo superior con lo inferior, finalidad de toda evolución. Quisiera dejar en las mentes de quienes lean estas palabras, una exacta comprensión de la relación existente entre espíritu y materia, base de todo trabajo de esta naturaleza.
+</p>
+
+El método empleado por el Logos, en este segundo sistema solar, es precisamente el empleo de formas construidas para los propósitos de la manifestación, como medio de expresión y como vehículo mediante el cual la vida interna pueda crecer, expandirse, experimentar y encontrarse a sí misma. Este es el caso, ya se trate de un sistema solar, de un ser humano en su complejidad, o de una forma construida por el ser humano, en su esfuerzo por comprender y conocer -forma construida con el propósito de proveer un vehículo por el cual la conciencia pueda, en etapas determinadas, elevarse paso a paso hasta el punto visualizado. Esto nos lleva a nuestro primer punto:
+
+### 1. Fórmulas para elevar la conciencia.
+
+De acuerdo a esta clasificación tenemos que considerar tres cosas:
+
+1. La conciencia misma.
+2. La meta hacia la cual ella trata de elevarse.
+3. Los pasos mediante los cuales lo logra.
+
+Cada unidad de la raza humana es parte de la conciencia divina <pin lang="en">142</pin> y de aquello de lo cual es consciente o que está fuera de sí mismo -algo que sabe que es diferente del vehículo que la encierra o de las formas que la circundan.
+
+En la actual etapa particular de evolución, el hombre común es simplemente consciente de la diferenciación, o de que está separado de los demás miembros de la familia humana, constituyendo una unidad entre otras unidades. Reconoce esto y también el derecho de las demás unidades separadas a considerarse como tales. A este reconocimiento agrega otro, de que en alguna parte del universo existe una Conciencia suprema, a la cual teóricamente llama Dios o Naturaleza. Entre este punto de vista puramente egoísta (empleo la palabra "egoísta" en sentido científico y no como adjetivo despectivo) y la ambigua teoría de Dios inmanente, se hallan numerosas etapas, en cada una de las cuales se produce una expansión de conciencia o ampliación del punto de vista, que gradualmente llevan a la unidad autorreconocida, desde el autorreconocimiento <pin lang="es">112</pin> al reconocimiento de los Yoes Superiores, a la capacitación de sí mismo para reconocerse también como un Yo superior, y con el tiempo alcanzar el reconocimiento oculto de su propio Yo superior. Llega así a reconocer a su propio Yo superior o Ego, su verdadero Yo, y desde esa etapa pasa a la de la conciencia grupal. Aquí primeramente conoce a su grupo egoico y luego a los demás grupos egoicos.
+
+A esta etapa sigue el reconocimiento del principio universal de la Fraternidad; esto no implica un mero reconocimiento teórico, sino una fusión de la propia conciencia en la total conciencia humana; esto es realmente el desenvolvimiento de la conciencia, que permite al hombre darse cuenta, no sólo de su afiliación grupal egoica, sino también de su lugar en la Jerarquía humana, en su propio plano. En realidad se conoce a sí mismo como que forma parte de uno de los Grandes Hombres celestiales. Este conocimiento <pin lang="en">143</pin> posteriormente se expande en un punto de vista inconcebiblemente vasto, el lugar que ocupa dentro del Gran Hombre celestial, representado por el Logos Mismo.
+
+Hasta aquí debemos llegar para los fines que buscamos, pues esta serie de cartas no intenta desarrollar la conciencia cósmica.
+
+Por lo tanto, será evidente que se ha de pasar sistemáticamente por esas etapas, y cada uno ha de dominarlas paso a paso. Ante todo, es necesario saber que, donde finalmente tendrá lugar la expansión y se expresará la comprensión, debe ser en la conciencia vigílica pensante. El Ego, en su propio plano, puede ser consciente de la unidad de su conciencia con las demás conciencias y comprender que su grupo es uno consigo mismo; pero hasta que el hombre (en la conciencia del plano físico) no se haya elevado al mismo plano y sea consciente de su conciencia grupal -considerándose como el Yo superior dentro del grupo egoico y no como unidad separada- su utilidad será nula, igual a una teoría aceptada que no ha sido puesta en práctica.
+
+El hombre ha de experimentar esas etapas en su conciencia física y ha de saber por experiencia, no meramente en teoría, lo que digo, para que se lo considere preparado para pasar a las etapas siguientes. **Toda la cuestión se reduce a ampliar la mente, hasta que ésta domina a la inferior, y a desarrollar la facultad de concebir en forma abstracta, que con el tiempo da por resultado la manifestación en el plano físico**. Esto significa convertir las teorías e ideales superiores en realidades demostrables, y constituye esa fusión de lo superior y lo inferior, y la preparación de lo inferior hasta proporcionar una expresión adecuada para lo superior. Es aquí donde la práctica de la meditación desempeña su parte. La meditación, <pin lang="en">144</pin> verdaderamente científica, proporciona formas graduadas, <pin lang="es">113</pin> mediante las cuales la conciencia se eleva y la mente se expande hasta que abarca a:
+
+:::note Recuerda
+
+El hombre ha de experimentar esas etapas en su conciencia física y ha de saber por experiencia, no meramente en teoría, lo que digo, para que se lo considere preparado para pasar a las etapas siguientes. **Toda la cuestión se reduce a ampliar la mente, hasta que ésta domina a la inferior, y a desarrollar la facultad de concebir en forma abstracta, que con el tiempo da por resultado la manifestación en el plano físico**.
+
+:::
+
+1. La familia y los amigos.
+2. Los asociados que lo rodean.
+3. Los grupos a que está afiliado.
+4. Su grupo egoico.
+5. Otros grupos egoicos.
+6. El Hombre celestial, del cual los grupos egoicos forman un centro.
+7. El Gran Hombre celestial.
+
+Para efectuarlo se darán más adelante ciertas fórmulas que (obrando de acuerdo al rayo del individuo) enseñarán a realizarlo mediante etapas graduadas. Observarán que me he ocupado de la conciencia y de la meta a que ella aspira, habiendo tratado los dos primeros puntos. Esto me lleva al último punto subsidiario, los pasos por los cuales se obtiene la realización.
+
+Todo individuo que emprende el desenvolvimiento esotérico y aspira a lo superior, ha pasado por la etapa del hombre común, el cual se considera aislado y trabaja por lo que le parece que es bueno para él. **El aspirante va detrás de algo diferente; trata de fusionarse con su Yo superior y con todo cuanto esta expresión implica**. Las etapas más avanzadas con todas sus complejidades, son secretos de la iniciación, con los cuales nada tenemos que hacer.
+
+La aspiración por llegar al Ego y lograr esa conciencia superior, con el consiguiente desarrollo de la conciencia grupal, concierne directamente a quienes lean estas cartas. Es el próximo paso para los que se hallan en el sendero de probación. No se alcanza dedicando simplemente treinta minutos cada día a ciertas fórmulas de <pin lang="en">145</pin> meditación establecidas. Indica el intento, hora tras hora, todos los días y cada día, de mantener la conciencia lo más cerca posible del elevado tono alcanzado en la meditación matutina. Presupone la determinación de considerarse a sí mismo, en todo momento, como el Ego y no como la Personalidad diferenciada. Más adelante, cuando el Ego asuma mayor control, implicará la capacidad de verse uno mismo como parte de un grupo, sin tener intereses ni deseos, objetivos ni anhelos, aparte del bien del grupo. Demanda una vigilancia constante cada hora del día, para evitar descender nuevamente a la vibración inferior. Significa una lucha constante contra el yo inferior que nos arrastra hacia abajo; es una incesante lucha para mantener la vibración superior. Y el objetivo -trato de inculcarles este punto- es desarrollar el hábito de la meditación durante todo el día y vivir en la conciencia superior, hasta que se haga tan estable, que el deseo de la mente inferior y los elementales físicos se atrofien y desnutran por falta de sustento; hasta que la triple <pin lang="es">114</pin> naturaleza inferior llegue a ser simplemente el medio por el cual el Ego se pone en contacto con el mundo, a fin de ayudar a la raza.
+
+:::note Recuerda
+
+La aspiración por llegar al Ego y lograr esa conciencia superior, con el consiguiente desarrollo de la conciencia grupal, concierne directamente a quienes lean estas cartas. Es el próximo paso para los que se hallan en el sendero de probación. No se alcanza dedicando simplemente treinta minutos cada día a ciertas fórmulas de meditación establecidas. Indica el intento, hora tras hora, todos los días y cada día, de mantener la conciencia lo más cerca posible del elevado tono alcanzado en la meditación matutina. Presupone la determinación de considerarse a sí mismo, en todo momento, como el Ego y no como la Personalidad diferenciada. Más adelante, cuando el Ego asuma mayor control, implicará la capacidad de verse uno mismo como parte de un grupo, sin tener intereses ni deseos, objetivos ni anhelos, aparte del bien del grupo. Demanda una vigilancia constante cada hora del día, para evitar descender nuevamente a la vibración inferior. Significa una lucha constante contra el yo inferior que nos arrastra hacia abajo; es una incesante lucha para mantener la vibración superior. Y el objetivo -trato de inculcarles este punto- es desarrollar el hábito de la meditación durante todo el día y vivir en la conciencia superior, hasta que se haga tan estable, que el deseo de la mente inferior y los elementales físicos se atrofien y desnutran por falta de sustento; hasta que la triple naturaleza inferior llegue a ser simplemente el medio por el cual el Ego se pone en contacto con el mundo, a fin de ayudar a la raza.
+
+:::
+
+Al obrar así, el aspirante realiza algo de lo cual el estudiante común rara vez se da cuenta. Construye una forma, una forma mental precisa, que con el tiempo le proporcionará un vehículo, mediante el cual saldrá de su conciencia inferior y entrará en la superior, una especie de mayavirupa que le sirva de canal intermediario. Estas formas son por lo regular, aunque no invariablemente, de dos tipos:
+
+El estudiante construye diariamente, con cuidado, amor y atención, una forma de su Maestro, que encarna para él la ideal conciencia superior. Traza el delineamiento de esta forma durante la meditación y construye la trama en su vida y pensamientos diarios. Dota a esa forma de todas las virtudes, la ilumina con todos los <pin lang="en">146</pin> colores y la vivifica, ante todo, por el amor del hombre a su Maestro; más adelante (una vez que ha llegado a ser adecuada para el propósito) es vitalizada por el Maestro mismo. En cierta etapa de desenvolvimiento esta forma proporcionará el campo para la experiencia oculta de entrar en la conciencia superior. El aspirante se reconoce como parte de la conciencia del Maestro, y en virtud de esta omniabarcante conciencia, penetra conscientemente en el grupo egoico a que pertenece el alma. Dicha forma provee el medio para tal experiencia, hasta que se puede prescindir de ella y el aspirante, a voluntad, se transfiere a su grupo, y más tarde mora allí permanentemente. Éste es el método empleado más extensamente, constituyendo el sendero de amor y devoción.
+
+En el segundo método el estudiante se imagina a sí mismo como el hombre ideal. Se visualiza como el exponente de todas las virtudes, y procura en su vida diaria hacer de sí mismo lo que él visualiza. Este método lo emplean los de tipo mental, los intelectuales, aquellos cuyo rayo no está matizado por el amor, la devoción o la armonía. Esto no es muy común al principio. La forma mental así construida sirve de mayavirupa como la anterior, y el hombre pasa de esas formas a la conciencia superior. Como verán, por lo tanto, para construir tales formas hay que dar ciertos pasos, y cada individuo construirá la forma algo diferente.
+
+Los primeros empezarán con la del ser amado, y desde él ascenderán hasta el Maestro a través de otros individuos.
+
+Los segundos comenzarán meditando sobre la virtud más deseada, agregarán una virtud tras otra durante la construcción de la forma del yo ideal, hasta practicar todas las virtudes, y súbitamente se pondrán en contacto con el Ego.
+
+<p>
+<pin lang="en">147</pin> Mañana estudiaremos el tema desde otro punto de vista, donde se verá la diferencia que existe entre el ocultista y el místico.
+</p>
+
+## <pin lang="es">115</pin> 8 de agosto de 1920
+
+### 2. Fórmulas empleadas por el místico y el ocultista.
+
+El tema de esta carta les ha de interesar, pues nos ocuparemos de las fórmulas de meditación que emplean los místicos y los ocultistas.
+
+Será útil que en primer lugar establezcamos cuidadosamente la diferencia entre ambos tipos. Comenzaré exponiendo una verdad. El místico no es necesariamente un ocultista, pero el ocultista abarca al místico. El misticismo es sólo un paso en el sendero del ocultismo. En este sistema solar, sistema del amor en actividad, el sendero de menor resistencia para la mayoría es el del místico, el sendero de amor y devoción. En el próximo sistema solar, el sendero de menor resistencia será el que hoy conocemos como sendero ocultista. Entonces ya habrá sido recorrido el sendero del místico. ¿Qué diferencia existe entre ambos tipos?
+
+El místico tiene que ver con la vida evolutiva; el ocultista se ocupa de la forma.
+
+El místico se ocupa del Dios interno; el ocultista del Dios en la manifestación externa.
+
+El místico actúa del centro a la periferia; el ocultista invierte el proceso.
+
+El místico se eleva, por medio de la aspiración y la devoción más intensa, hasta el Dios interno o el Maestro, a quien reconoce; el ocultista avanza mediante el conocimiento de la ley en acción, y esgrime la ley que liga la materia y le da forma de acuerdo a las necesidades de la vida que en ella mora. De esta manera, el ocultista llega a las Inteligencias que trabajan con la ley, hasta que alcanza a la fundamental Inteligencia Misma.
+
+<p>
+<pin lang="en">148</pin> El místico trabaja por medio de los Rayos de Amor, Armonía y Devoción o por el sendero de segundo, cuarto y sexto rayos. El ocultista trabaja por medio de los Rayos de Poder, Actividad y Ley Ceremonial o primero, tercero y séptimo rayos. Ambos se unen y fusionan mediante el desarrollo de la mente, quinto Rayo de Conocimiento Concreto (fragmento de la Inteligencia cósmica), y en este rayo el místico se convierte en ocultista y entonces trabaja con todos los rayos.
+</p>
+
+Al descubrir dentro de sí mismo el reino de Dios y estudiar las leyes de su propio ser, el místico se hace experto en las leyes que rigen al universo, del cual es parte. El ocultista reconoce el reino de Dios en la naturaleza o en el sistema y se considera a sí mismo como ínfima parte del gran Todo y regido por las mismas leyes.
+
+<p>
+<pin lang="es">116</pin> El místico, por regla general, trabaja en el sector del Instructor del Mundo, el Cristo, y el ocultista actúa más frecuentemente bajo el Manu o Regente; pero cuando ambos han pasado por los cuatro rayos menores en el sector del Señor de la Civilización, se completa su desenvolvimiento, el místico se convierte en ocultista y este incluye las características del místico. Expresándome más sencillamente, a fin de que todos me entiendan, diré: después de la iniciación el místico se fusiona con el ocultista, porque se ha convertido en estudiante de la ley oculta; debe trabajar con la materia en su manipulación y empleo; debe dominar y controlar todas las formas inferiores de la manifestación y aprender las reglas de acuerdo a las cuales trabajan los devas constructores. El sendero místico previamente a la iniciación, puede ser denominado sendero de probación. Antes de que el ocultista pueda manejar inteligentemente la materia del sistema solar debe haber dominado las leyes que rigen el <pin lang="en">149</pin> microcosmos y. aunque se halla naturalmente en el sendero ocultista, deberá aún descubrir el Dios dentro de su propio ser, antes de poder aventurarse, sin peligro, a entrar en el sendero de la ley oculta.
+</p>
+
+El místico trata de trabajar desde el plano emocional al intuicional, y de éste a la Mónada o Espíritu. El ocultista trabaja de lo físico a lo mental, de allí a Atma o Espíritu. Uno trabaja en la línea del Amor, el otro en la línea de la Voluntad. El místico no logra la finalidad de su ser -el amor demostrado en acción- a no ser que coordine el todo mediante el empleo de la voluntad inteligente; en consecuencia, se ha de convertir en ocultista.
+
+El ocultista también fracasa y se convierte en un exponente egoísta del poder, actuando por medio de la inteligencia, a no ser que encuentre, mediante un amor impulsor, un propósito para esa voluntad y conocimiento que le proporcione un móvil adecuado para todo lo que trata de realizar.
+
+He tratado de darles una idea clara de la diferencia que existe entre estos dos grupos, porque es de gran importancia cuando se estudia el tema de la meditación. Las fórmulas empleadas por ambos en cada caso son totalmente distintas y muy interesantes cuando se las ve clarividentemente.
+
+#### La fórmula mística.
+
+La expresión "fórmula mística" es casi una paradoja, porque el místico, librado a sí mismo, elimina completamente las fórmulas. Se concentra en el Dios interno, deteniéndose en este centro de conciencia; trata de vincularlo con otros centros, tales como el Maestro o algún santo y hasta con el Mismo Logos supremo, y de ascender por la línea de vida, sin prestar atención a las envolturas circundantes. Actúa en el sendero de fuego, la frase "nuestro Dios es un <pin lang="es">117</pin> <pin lang="en">150</pin> fuego consumidor" constituye para él la afirmación literal de un hecho y una verdad captada. Asciende de un fuego a otro, y por realizaciones graduales del Fuego Interno llega al fuego del universo. Se puede decir que lo único que el místico emplea es una escala de fuego o una cruz de fuego, por medio de la cual eleva su conciencia al punto deseado. Se concentra sobre abstracciones y atributos más que sobre aspectos, y en la vida más que en lo concreto. El místico aspira, arde, armoniza, ama y trabaja por medio de la devoción. Medita tratando de eliminar la mente concreta en su totalidad y aspira a pasar del plano de la emoción al de la intuición. Adolece de los defectos de su tipo -soñador, visionario, falto de sentido práctico, emotivo, y carece de la cualidad mental llamada discernimiento. Es intuitivo, propenso a ser mártir y a auto sacrificarse. Antes de poder alcanzar y pasar la iniciación debe realizar tres cosas:
+
+Primero, a través de la meditación, someter su naturaleza a una disciplina, aprender a construir formas y a conocer su valor.
+
+Segundo, llegar a conocer el valor de lo concreto y aprender bien el lugar que, en el esquema de las cosas, ocupan las diversas envolturas, mediante las cuales la vida que él tanto ama ha de manifestarse. Tiene que trabajar en la construcción de su cuerpo mental y convertirlo en un depósito de hechos, antes de que pueda seguir adelante.
+
+Tercero, aprender, por medio del inteligente estudio del microcosmos -su pequeño sistema espíritu-materia-, el doble valor del macrocosmos.
+
+En vez de conocer únicamente el Juego que consume ha de comprender y trabajar por medio del fuego que construye, fusiona y desarrolla la forma. Por medio de la meditación ha de aprender el triple empleo del Fuego. Esta última frase es de gran importancia y hago hincapié sobre ella.
+
+## 10 de agosto de 1920.
+
+### <pin lang="en">151</pin> La fórmula ocultista.
+
+Hemos estudiado, hace dos días, el método por el cual el místico alcanza la unión y también delineado muy brevemente el camino por el cual intenta alcanzar la meta. Hoy trazaré sucintamente la ruta que sigue el ocultista y su tipo de meditación en contraposición con la del místico, y después señalaré cómo ambos deben mezclarse y sus elementos individuales fusionarse en uno solo.
+
+La fórmula constituye para el ocultista la línea de menor resistencia, e incidentalmente podría intercalar aquí un pensamiento. Admitido el hecho, podemos esperar hoy, por lo tanto, con toda <pin lang="es">118</pin> certeza, un rápido desenvolvimiento del conocimiento oculto y la aparición de algunos ocultistas verdaderos. El advenimiento del séptimo rayo o Rayo de la Fórmula o Ritual, facilitará poderosamente el descubrimiento del sendero oculto y la asimilación del conocimiento oculto. El ocultista se ocupa en primer lugar de la forma por medio de la cual la Deidad se manifiesta, más que de la Deidad misma; en esto reside la diferencia fundamental que a primera vista se evidencia entre los dos tipos. El místico elimina o trata de trascender la mente en el proceso de encontrar al Yo. El ocultista, mediante el interés inteligente puesto en las formas, que velan al Yo, y el empleo del principio mente, en sus dos niveles, llega al mismo punto. Reconoce las envolturas que velan. Se dedica al estudio de las leyes que rigen el sistema solar manifestado. Se concentra en lo objetivo pero, en los primeros años, puede a veces pasar por alto el valor de lo subjetivo. Llega eventualmente a la vida central eliminando, mediante el conocimiento y el control consciente, una envoltura tras otra. Medita sobre la forma hasta que la pierde de vista y su creador llega a ser todo en el todo.
+
+Igual que el místico, debe realizar tres cosas:
+
+1. <pin lang="en">152</pin> Aprender la ley y aplicarla a sí mismo. Su método es la rígida autodisciplina, lo cual es necesario, porque los peligros que amenazan al ocultista no son los del místico. Vanidad, egoísmo y manipulación de la ley, por curiosidad o deseo de poder, han de ser consumidos por el fuego antes de que se le puedan confiar, sin peligro, los secretos del Sendero.
+2. En la meditación, por medio de la forma construida, debe concentrarse en la vida que en ella mora. Tiene que buscar el ardiente fuego interno que irradia en todas las formas que cobijan la vida divina.
+3. Mediante el estudio científico del macrocosmos, "el reino de Dios externo", debe llegar al punto en que localiza ese mismo reino dentro de sí mismo.
+
+He aquí, por lo tanto, el punto de fusión del místico y del ocultista. Sus senderos se convierten en uno. Anteriormente me referí en esta carta, a lo interesante que es para el clarividente observar las diferentes formas construidas en la meditación por el místico y el ocultista. Mencionaré algunas diferencias, pero hasta que no posean dicha visión, lo que diga al respecto serán meras palabras.
+
+### Formas místicas y ocultistas, vistas clarividentemente.
+
+Cuando el místico medita construye ante sí y a su alrededor contornos nebulosos, ambiguos y brumosos; de tal manera que él mismo constituye el centro de la forma. En muchos casos, según la inclinación de su mente, el núcleo de la forma será algún <pin lang="es">119</pin> símbolo favorito, tal como una cruz, un altar y hasta la idea por él imaginada, de uno de los Grandes Seres. Esta forma aparece envuelta en nubes de devoción, vibrando en aleadas de color que denotarán aspiración, amor y anhelo ardiente. Tales colores son de pureza y <pin lang="en">153</pin> trasparencia singulares y se remontan a grandes alturas. Según la aspiración y el amor del individuo así será la densidad y la belleza de las nubes ascendentes, y de acuerdo a la estabilidad de su temperamento será la precisión del símbolo o cuadro interno, alrededor del cual circulan las nubes de colores.
+
+Las formas construidas por el hombre de tendencia ocultista y que está controlado por la mente, serán de tipo geométrico. El delineamiento también será nítido, pero propenso a la rigidez. La forma será construida con mayor detenimiento y, durante la meditación, el hombre procederá con mayor cuidado y exactitud. Se envanecerá (si puedo emplear esta palabra) de la manipulación del material que entra en la construcción de la forma. La materia del plano mental será la más visible, aunque en el conjunto puede haber ciertas nubes de materia emocional, lo cual tendrá importancia secundaria. Los colores empleados tendrán todos la misma trasparencia, pero serán distribuidos con una intención específica, y la forma se destacará nítidamente y no se desvanecerá durante el impulso ascendente de los colores emocionales, como ocurre con la forma mística. Más adelante, cuando el hombre en cualquiera de los casos haya llegado a la etapa de un desenvolvimiento más completo y sea tanto místico como ocultista, las formas construidas combinarán ambas cualidades y alcanzarán una rara belleza.
+
+Esto basta por hoy, pero antes de terminar deseo delinear las ideas que expondré más adelante. Trataremos el empleo de formas o fórmulas para alcanzar fines específicos, aunque no es mi intención darlas o delinearías; sólo deseo agruparlas, a fin de que más adelante, cuando el Instructor camine entre los hombres, encuentre entre los estudiantes una rápida comprensión.
+
+1. Fórmulas para actuar en los tres cuerpos.
+2. Fórmulas relacionadas con ciertos rayos.
+3. <pin lang="en">154</pin> Fórmulas para curación.
+4. Mántram.
+5. Fórmulas empleadas en uno de estos tres sectores:
+   1. El del Manu.
+   2. El del Instructor del Mundo o Cristo.
+   3. El del Señor de la Civilización.
+6. Fórmulas para invocar a los elementales.
+7. Fórmulas para hacer contacto con los devas.
+8. Fórmulas especiales conectadas con el fuego.
+
+## <pin lang="es">120</pin> 11 de agosto de 1920.
+
+Los períodos de debilidad física no tienen otro valor que demostrar la necesidad absoluta de que el discípulo construya un cuerpo fuerte antes de poder obtener algo, y la importancia de obtener buena salud antes de que pueda avanzar en el Sendero. No puede permitirse a quienes enseñamos, hacer ciertas cosas ni dar información sobre ciertas líneas, a no ser que los vehículos físicos estén en buenas condiciones, que no exista el entorpecimiento de la mala salud y la enfermedad, y se haya eliminado de la vida personal el karma de dificultades accidentales. El karma nacional y grupal a veces envuelve al estudiante y trastorna los planes, pero esto es inevitable y raras veces se puede contrarrestar.
+
+### Fórmulas especificas para fines específicos.
+
+Hasta ahora me he ocupado de los aspectos personales de la meditación y he considerado los dos tipos, prácticamente universales y fundamentales, habiendo estudiado brevemente, a) la meditación según es practicada por el místico, y b) la meditación según es practicada por el ocultista.
+
+En gran parte he generalizado y no he intentado entrar en <pin lang="en">155</pin> detalles, no siendo propio ni deseable en esta etapa. No obstante, llegado a cierto punto de la meditación, cuando el estudiante ha hecho determinado progreso, pasado por determinadas etapas, alcanzados ciertos objetivos (lo cual se puede determinar por el examen de su cuerpo causal) y establecido los cimientos del recto vivir, que ni las tormentas ni los ataques podrán derribar o destruir fácilmente, el Instructor, puede impartir al estudiante fervoroso ciertas instrucciones mediante las cuales podrá construir con materia mental, y de acuerdo a reglas definidas, formas que lo llevarán a determinadas acciones y reacciones. Las fórmulas serán impartidas gradualmente, y a veces el estudiante (esto sucede especialmente al principio) no será consciente de los resultados alcanzados. Obedecerá las órdenes, repetirá las palabras impartidas o desarrollará las fórmulas delineadas; pero los resultados alcanzados realizarán su trabajo, aunque el estudiante sea inconsciente de ello más tarde -especialmente después de la iniciación, a medida que las facultades sutiles entran en actividad y los centros giran en orden cuatridimensional- puede llegar a ser consciente de los efectos de su meditación en los planos emocional y mental.
+
+Los resultados nunca nos conciernen. El estudiante debe avenirse a lo siguiente: obedecer estrictamente la ley, adherirse constantemente a las reglas establecidas y procurar obtener habilidad en la acción, Así los efectos serán seguros y no producirán karma
+
+<p>
+<pin lang="es">121</pin> Trataremos cada una de las fórmulas por riguroso orden, pero antes quiero hacer una advertencia. No intentaré delinearías ni dar instrucciones específicas sobre la manera de obtener los resultados indicados. Esto se hará más tarde, aunque no se puede decir cuando. En gran parte depende del trabajo realizado durante los próximos siete años, o del karma del grupo, como también del progreso alcanzado, no sólo por la jerarquía humana sino también por la evolución dévica o angélica. El secreto se halla oculto en el séptimo Rayo de Ceremonial; el momento para dar el paso <pin lang="en">156</pin> siguiente lo indicará el séptimo Logos planetario, actuando conjuntamente con los tres Grandes Señores, especialmente con el del tercer sector.
+</p>
+
+### Fórmulas para actuar en los tres cuerpos.
+
+Estas son algunas fórmulas que se revelarán primero. En las diversas meditaciones, recomendadas por los sabios Guías de la raza, hay ciertos delineamientos fundamentales menores, destinados para el trabajo sobre la mente inferior. Tales fórmulas estarán basadas en la necesidad especial de cualquiera de los cuerpos y destinada a construir, mediante la manipulación de la materia, lo que se necesita para llenar el vacío, y así eliminar la deficiencia. Esta manipulación se hará, primero, sobre la materia etérica del cuerpo físico, por medio de ejercicios de respiración (inhalación y exhalación) y de ciertas corrientes rítmicas, establecidas en el plano mental e impelidas desde allí hacia los éteres inferiores. De esta manera se fortalecerá, purificará, limpiará y reajustará el cuerpo etérico. Muchas de las enfermedades del cuerpo físico denso tienen su origen en el etérico, que será objeto de atención en un futuro inmediato.
+
+El cuerpo emocional será similarmente tratado por medio de fórmulas especiales. Una vez que el estudiante haya cultivado, decididamente, la cualidad de discriminar y la haya convertido en un factor en su vida, se le impartirán gradualmente dichas fórmulas. Pero cuando sepa discernir, en cierta medida, entre lo real y lo irreal, y cuando su sentido de proporción esté inteligentemente ajustado, el plano emocional ha de ser para él el campo de batalla, no el campo de experimentación. Permítaseme ilustrar sobre el tipo de trabajo que realizarán las fórmulas que actúan sobre la materia emocional. El estudiante que huella el Sendero, tiene como meta construir un cuerpo emocional compuesta de materia de los subplanos superiores, trasparente y sensible. transmisor exacto, <pin lang="en">157</pin> caracterizado por vibraciones estables, por un constante movimiento rítmico y no susceptible a las tormentas violentas ni a los efectos constantes de emociones incontroladas. Cuando el idealismo es elevado, cuando el porcentaje de materia de los dos subplanos <pin lang="es">122</pin> superiores se acerca un poco al guarismo deseado y cuando el estudiante reconoce prácticamente y en todo momento que él no es ninguno de sus vehículos, sino el verdadero Morador divino en ellos, se le comunicarán ciertas enseñanzas que, aplicadas cuidadosamente, realizarán dos cosas:
+
+Actuarán directamente sobre el cuerpo emocional, expulsando la materia extraña o inferior y estabilizando su vibración.
+
+Construirán un cuerpo o forma de materia emocional que el hombre podrá utilizar para realizar cierto trabajo y que empleará como agente para obtener determinados resultados, lo cual será parte del trabajo purificador y constructivo del cuerpo emocional. Esto es todo cuanto se puede decir, pero bastará para indicar el tipo de forma que se trata de obtener.
+
+### Fórmulas de los Rayos.
+
+Éste es un tema muy vasto y profundamente interesante, y sólo puede ser tratado en términos generales. Ciertas fórmulas erigidas sobre la base del aspecto numérico de los diversos rayos, son propiedad exclusiva de los mismos y encierran su significación geométrica, demostrando el lugar que ocupan en el sistema. Debido a que algunas de esas fórmulas pertenecen a los rayos concretos o constructores, constituyen líneas de menor resistencia para el ocultista, mientras que las fórmulas que pertenecen a los rayos abstractos o de atributo, son más fácilmente seguidas por el místico.
+
+Estas fórmulas están destinadas a lograr tres objetivos:
+
+1. Poner al estudiante en contacto directo con su propio rayo, ya sea el egoico o el de la personalidad.
+2. Vincular al estudiante con su grupo en los planos internos, ya sea el grupo de servidores, el de auxiliares invisibles, o más adelante con su grupo egoico.
+3. <pin lang="en">158</pin> Fusionar los senderos ocultista y místico en la vida del estudiante. Si se halla en el sendero místico, trabajará sobre las fórmulas de los Rayos de Aspecto, y así desarrollará el conocimiento del aspecto concreto de la Naturaleza -aspecto que actúa de acuerdo a la ley. En el hombre de tendencia ocultista el proceso es a la inversa, hasta que llega el momento en que los senderos se fusionan y todas las fórmulas son iguales para el Iniciado. Recuerden que en este punto de fusión el estudiante trabaja siempre de modo exclusivo en su propio rayo, cuando ha trascendido la personalidad y encontrada la nota egoica. Entonces manipula materia de su propio rayo, y trabaja a través de sus propias fórmulas de rayo con las seis fórmulas representativas de subrayo, <pin lang="es">123</pin> hasta que se convierte en adepto y conoce el secreto de la síntesis. Estas fórmulas son enseñadas al estudiante por el Instructor.
+
+Observarán que he dicho muy poco sobre este tema, no obstante, si reflexionan sobre ello, hallarán que tiene mucho contenido. A quienes lo asimilen inteligentemente les proporcionará la clave que buscan para dar el siguiente paso. Puedo abordar este punto y en cierto modo desarrollarlo algo más cuando tratemos el tema del acceso a los Maestros a través de la meditación.
+
+### Fórmulas para las curaciones.
+
+Ahora debemos tratar estas fórmulas, teniendo en cuenta ante todo que es necesario clasificarlas en tres grupos, cada uno de los cuales contiene muchas subdivisiones.
+
+1. Fórmulas para la curación física. Les sorprenderá saber que éstas rara vez son necesarias, siendo por lo tanto muy pocas. La razón de ello estriba en que los trastornos del cuerpo físico denso pocas veces tienen origen en el mismo. Algunos provienen directamente del cuerpo etérico, pero, en la presente etapa de evolución, la mayor parte proviene del cuerpo emocional y el resto del mental. Podemos generalizar y decir que:
+   1. <pin lang="en">159</pin> El 25 % de las enfermedades de la carne son heredadas o provienen del cuerpo etérico.
+   2. El 25 % provienen del mental.
+   3. El 50 % tienen su origen en el cuerpo emocional.
+
+ Por lo tanto, aunque puedan ocurrir accidentes que produzcan un desastre físico inesperado, para el cual, no obstante, pueden darse fórmulas curativas, el estudiante inteligente hallará que las fórmulas que afectan al cuerpo etérico pueden ser el primer punto de partida. Las fórmulas establecidas durante la meditación, actuarán directamente sobre los canales pránicos que componen el etérico -esa intrincada trama, contraparte del sistema circulatorio del cuerpo físico denso. Allí se origina la mayor parte de las actuales enfermedades de ese cuerpo, ya sea en forma directa o por causas iniciadas en el plano emocional y que reaccionan sobre el etérico.
+
+2. Fórmulas para la curación del cuerpo emocional. Como se dijo anteriormente, muchas de las enfermedades actuales se deben a causas iniciadas en el cuerpo emocional, siendo principalmente tres.
+ Recuerden que no doy más que amplios delineamientos e indicaciones generales.
+ 
+ **Emoción violenta y vibración inestable.** Su abuso produce un efecto desintegrador que afecta al sistema nervioso. Si se reprimen e inhiben, producen un efecto igualmente peligroso, dando por resultado dolencias del hígado, ataques de bilis y los tóxicos que se generan en el sistema y se exteriorizan en ciertos casos de <pin lang="es">124</pin> envenenamiento séptico, en enfermedades de la piel y en algunas formas de anemia.
+
+ **Temor y presentimientos, preocupación y desesperación**. Estos tipos de emoción -que son tan comunes- tienen un efecto general debilitante sobre el sistema corpóreo, produciendo pérdida de la vitalidad, actividad lenta de los órganos, y muchas formas de enfermedades, poco conocidas, del sistema nervioso, del cerebro y de la columna vertebral.
+
+ <p>
+ <pin lang="en">160</pin> Emociones sexuales, que abarcan un amplio campo del sentimiento, desde la emoción sexual reprimida que ahora empiezan a estudiar los psicólogos, hasta la innoble emoción criminal, que tiene su expresión en la vida licenciosa y las violentas orgías.
+ </p>
+
+ Bajo estos subtítulos caben muchos puntos, pero como no escribo cartas sobre métodos de curación sino sobre la meditación, por eso no debo extenderme más.
+
+ En las fórmulas empleadas en estos tres casos, se debe poner atención en la causa del trastorno, el plano donde se origina y el efecto que producen sobre el cuerpo o cuerpos inferiores. Al designar las fórmulas se tendrán en cuenta diferentes objetivos. Por ejemplo, donde la dificultad se basa en una emoción reprimida, el efecto de la fórmula (si se la sigue correctamente) será trasmutar la emoción y dirigirla hacia arriba. Cuando, por el correcto empleo de la fórmula, el cuerpo emocional se descongestione, las fuerzas dadoras de vida del Ego y de la vida pránica disponibles en todas partes, se liberarán. Entonces circularán con toda facilidad, entonando el entero sistema y purificando todos los órganos que sufrían por la congestión interna.
+
+3. Fórmulas para la curación mental. Éstas resultarán, para la mayoría de ustedes, mucho más confusas, pues los trastornos mentales son más difíciles de curar que las dos anteriores. Ello se debe a dos causas, una de las cuales es que como raza no estamos polarizados todavía en el cuerpo mental. Resulta mucho más fácil hacer contacto con un cuerpo y manipularlo cuando es asiento del centro de la conciencia. También el cuerpo emocional por ser más fluido es más fácil de ser impresionado. No puedo extenderme hoy sobre los trastornos del cuerpo mental, excepto señalar que estas causas pueden surgir del cuerpo mental mismo como herencia kármica, u originarse en el plano emocional y volver al cuerpo <pin lang="en">161</pin> mental. Por ejemplo, cuando una persona es propensa a tormentas emocionales, si estás continúan, puede establecer una vibración análoga en el cuerpo mental, que a su vez llegan a ser prácticamente permanentes, y debido a la interacción de ambos cuerpos pueden surgir serios trastornos, los cuales abarcarán desde un agriamiento general de la Personalidad, de manera que al hombre <pin lang="es">125</pin> se lo conoce como un individuo desgraciado y desagradable, hasta las enfermedades cerebrales definidas que ocasionan la demencia, tumores cerebrales y cáncer en la cabeza.
+
+Existen fórmulas de meditación aplicables a todos esos trastornos, que si se emplean a tiempo, eventualmente los disiparán. El hecho fundamental que se debe captar, es que sólo se confían estas fórmulas cuando el estudiante sabe apreciar inteligentemente el trastorno, o trastornos, que lo afecta cuando es capaz de aplicar conscientemente las fórmulas impartidas, siempre que su objetivo sea altruista. Si su Finalidad consiste en equiparse para prestar servicio, en adquirir vehículos saludables para llevar a cabo mejor el plan de los Grandes Seres, y si no lo hace por el deseo de eludir la enfermedad para su propio beneficio, sólo entonces se le impartirán las fórmulas y se le darán instrucciones. Estas fórmulas actúan en conexión con la conciencia egoica. La afluencia de la vida desde el Dios interno, da por resultado vehículos sanos, de manera que sólo es posible realizar el trabajo cuando la Personalidad se fusiona con el Ego y la polarización cambia de lo inferior a lo superior. Este momento se acerca para muchos, pudiendo esperarse que progrese la nueva escuela de medicina basada en el pensamiento. Las fórmulas de meditación no son más que formas de materia mental, por lo tanto será evidente que ya se ha hecho un comienzo general.
+
+Haré una indicación más sobre este tema: A través de los <pin lang="en">162</pin> distintos centros del cuerpo -los siete centros con los que tiene que ver el estudiante- vendrá el poder de curar el correspondiente centro físico. A medida que dichos centros sean vitalizados, se demostrarán ciertos efectos físicos, y por medio de fórmulas específicas que actúen sobre los centros y a través de ellos, se obtendrán resultados que arrojarán luz sobre este confuso tema de la curación por medio de los cuerpos sutiles.
+
+## 12 de agosto de 1920.
+
+### Fórmulas mántricas.
+
+Continuaremos hoy con el estudio de las fórmulas que emplearán conscientemente los estudiantes de la meditación ocultista. Hasta ahora nos hemos ocupado de tres de estas fórmulas, nos quedan otras cinco por considerar.
+
+Las fórmulas mántricas son un conjunto de frases, palabras y sonidos, que, en virtud de su efecto rítmico, producen resultados, imposible de conseguir sin ellos. Estas fórmulas mántricas son tan numerosas que es imposible estudiarlas todas; bastará que indique algunos tipos de mántram que se emplearán, o que ya emplean quienes tienen el privilegio de utilizarlos.
+
+Hay fórmulas mántricas basadas totalmente en la Palabra Sagrada. Cuando se las emite rítmicamente en ciertas claves,<pin lang="es">126</pin> producen determinados resultados, tales como la invocación de ángeles protectores y también ciertos efectos subjetivos u objetivos. Hoy estas fórmulas o mántram las emplean los orientales, en los credos de Oriente mucho más que en los de Occidente. A medida que se comprenda más el poder del sonido y se estudien los efectos del mismo, también Occidente adoptará estos mántram.
+
+Algunos de ellos son muy antiguos y cuando se los entona en el sánscrito original tienen un efecto increíblemente poderoso, tanto <pin lang="en">163</pin> que no es permitido darlos a conocer al estudiante común y sólo son impartidos oralmente durante la preparación para la iniciación.
+
+Existen unos pocos mántram muy esotéricos, en el idioma sensar original, conocidos por la Fraternidad desde los primeros días de la fundación de la Jerarquía. Fueron traídos por los Señores de la Llama cuando vinieron a la tierra, y su número no pasa de treinta y cinco. Constituyen la clave que abre los misterios de cada subplano de los cinco planos de la evolución humana. El adepto recibe instrucción sobre su empleo y puede aplicarlos en el debido lugar, sujeto a ciertas condiciones. Constituyen los mántram más poderosos que se conocen en nuestro planeta, siendo su efecto de gran alcance. Como ya saben, la vibración de cada plano responde a una clave y nota diferentes; su materia es manipulada y su corriente extraída, pronunciando ciertas palabras de un modo y tono determinados; cuando se emiten así, el adepto penetra en la conciencia de ese plano y de todo cuanto éste contiene. Los mántram, en cualquier idioma, están basados en ellos, aunque estén tan alejados de los originales y sean tan diferentes que resulten prácticamente inútiles
+
+Algunos de esos mántram originales son entonados al unísono por la Fraternidad en grandes ocasiones o cuando es necesario el poder unido de la Logia para lograr fines determinados. Los grandes acontecimientos se inauguran emitiendo su nota clave, empleando palabras apropiadas; cada raza raíz tiene su acorde mántrico, conocido por quienes trabajan con las razas.
+
+Como bien saben, existen ciertos mántram en sánscrito, empleados por los que estudian meditación para atraer la atención de algún Maestro. Estos mántrams los dan a Sus discípulos y sirven para llamar Su atención y pedir Su ayuda.
+
+<p>
+<pin lang="en">164</pin> Hay otras fórmulas más potentes para establecer contacto con los Grandes Señores y atraer Su atención respecto a cualquier situación específica.
+</p>
+
+Cuando un mántram se entona correctamente, crea un vacío en la materia, parecido a un embudo, y se forma entre quien emite el mántram y quien recibe el sonido, estableciéndose así un canal directo de comunicación. Por lo tanto, verán por qué estas <pin lang="es">127</pin> fórmulas están tan celosamente guardadas y ocultan las palabras y las claves. Su empleo indiscriminado tendría resultados desastrosos. Debe haberse alcanzado cierto grado de evolución y cierta similitud de vibración, para que se le conceda al estudiante el privilegio de ser el custodio de un mántram, mediante el cual puede llamar a su Maestro.
+
+Existen también siete mántram, conocidos por los tres Grandes Señores y por los Guías de la Jerarquía, mediante los cuales ellos pueden invocar a los siete Logos planetarios o los "siete Espíritus ante el Trono", según se los designa en La Biblia cristiana. El mántram mediante el cual se establece contacto con el Logos de nuestro planeta, también es conocido por los adeptos. De esta manera se asciende la escala y es entonada la Palabra, hasta alcanzar el mántram de nuestro planeta, basado en la clave de la tierra, el cual encierra una frase que compendia nuestra evolución. Cada planeta posee una nota o frase, por la cual sus guías se ponen en contacto con el respectivo Logos planetario. Los siete Logos, a su vez, tienen su ritual o fórmula por la cual pueden comunicarse con el triple Señor del sistema solar. Esto se hace cuatro veces al año, o cuando la necesidad es urgente.
+
+La Jerarquía en pleno, utiliza una vez al año un mántram combinado, que crea un vacío entre sus componentes superiores e inferiores, ascendiendo -vía los siete Logos planetarios- hasta el <pin lang="en">165</pin> Logos Mismos. Esto señala el momento de esfuerzo y vitalización espiritual más intenso del año, perdurando los efectos durante los meses intermedios. Este efecto es cósmico y nos vincula con nuestro centro cósmico.
+
+Mántram de rayo. Cada rayo tiene sus fórmulas y sonidos que le son propios y producen efecto vital sobre las unidades agrupadas en esos rayos. Al emitirlos, producen, en quien practica la meditación, los efectos siguientes:
+
+1. Lo vincula y alinea con su Yo superior o Ego.
+2. Lo pone en contacto con su Maestro y, por su intermedio, con uno de los Grandes Señores -dependiendo del rayo a que pertenece.
+3. Lo vincula con su grupo egoico, uniéndolos en un todo, que vibra de acuerdo a una nota.
+
+Estos mántram constituyen uno de los secretos de las tres últimas iniciaciones; por eso el estudiante no debe emitirlos sin permiso previo, aunque en ocasiones puede participar en la entonación del mántram, guiado por el Maestro.
+
+Mántram o fórmulas de palabras entonadas por el estudiante, que tienen efecto sobre uno de los tres cuerpos. Este tipo <pin lang="es">128</pin> de mántram se emplea ya extensamente, aunque en forma tergiversada, en los oficios de grupos religiosos de todos los países. El ritual de la Iglesia, arroja alguna luz sobre ellos. Las palabras de pase, como las que se emplean en la Masonería, aunque sin valor práctico actualmente, se basan en el empleo de los mántram, y algún día, cuando estas organizaciones (la Masonería, diversas sociedades esotéricas y grupos religiosos) tengan un Guía Iniciado, se les devolverá a los pueblos, en forma pura, los antiguos mántram.
+
+<p>
+<pin lang="en">166</pin> Existen también ciertos mántram para ser empleados en curaciones y para el desenvolvimiento de ciertas facultades psíquicas. Algunos producen efecto directo sobre los centros del cuerpo, y más adelante se emplearán bajo la guía del Maestro, a fin de aumentar la vibración, producir movimiento cuatridimensional y vivificar totalmente los centros.
+</p>
+
+Hay además otros mántram que actúan sobre el fuego oculto, pero de ellos me ocuparé más adelante. Existen innumerables libros orientales sobre este tema, el cual es tan vasto que advierto al estudiante no investigar demasiado, porque significará pérdida de tiempo para quien esté trabajando en el mundo. He tocado esta cuestión, porque ningún libro sobre meditación seria completo si no se refiriera a lo que algún día reemplazará a toda meditación preliminar. Cuando la raza haya alcanzado cierto grado de desenvolvimiento y la mente superior predomine, estos mántram ocultos -correctamente enseñados y enunciados- constituirán parte del programa de estudio común, El estudiante iniciará su meditación con el mántram de su rayo, mediante el cual ajustará su posición en el esquema; seguirá con el mántram que llama a su Maestro y que lo pondrá en relación con la Jerarquía. Entonces empezará a meditar con sus cuerpos bien ajustados, y por el vacío que ello forma puede entonces ser utilizado como medio de comunicación.
+
+## 13 de agosto de 1920.
+
+### Fórmulas empleadas en uno de los tres sectores.
+
+Lo que he de comunicar hoy es de gran interés, pues me referiré a las fórmulas empleadas en los sectores del Manu, del Instructor del Mundo y del Mahachohan, el Señor de la Civilización.
+
+Estos tres sectores representan, en la Jerarquía, los tres <pin lang="en">167</pin> aspectos del Logos, tal como se manifiestan en el sistema solar -el aspecto Voluntad o Poder, el aspecto Amor-Sabiduría (aspecto básico de este sistema) y el aspecto Actividad o Inteligencia. Ya conocen ustedes, por el estudio anterior, el trabajo que corresponde a cada uno de estos tres sectores.
+
+<p>
+<pin lang="es">129</pin> El Manu manipula la materia y se ocupa de la evolución de la forma, ya sea la física densa del animal, vegetal, mineral, ser humano, planeta, o la forma de las razas, naciones, devas y otras evoluciones.
+</p>
+
+El Instructor del Mundo o Bodhisatva, trabaja con la vida que evoluciona dentro de la forma, en la implantación de ideas religiosas y en el desenvolvimiento de los conceptos filosóficos, tanto en los individuos como en las razas.
+
+El Mahachohan, que sintetiza los cuatro rayos inferiores, se ocupa de la mente o inteligencia, y en colaboración con Sus hermanos controla la evolución de la mente, por medio de la cual el Espíritu o Yo, utiliza la forma o no-yo.
+
+El trabajo sintético que realizan los tres Grandes Señores es inconcebiblemente grande. Forma - Vida - Inteligencia, Materia - Espíritu - Mente, Prakriti - Purusha - Manas, son tres líneas de desenvolvimiento, en cuya síntesis se alcanza la plenitud.
+
+Cada una de estas tres líneas actúa por medio de fórmulas, o formas establecidas, las cuales, mediante graduadas etapas, ponen a quienes las emplean en contacto con la línea particular de evolución, representada por el Guía de esa línea.
+
+Lo que deseo explicar aquí son las tres líneas bien definidas por las cuales el hombre puede ascender hasta el Logos y llegar a la unión con el yo del sistema solar, ascender por la línea del Manu, realizar por la línea del Bodhisatva o llegar a la meta por el sendero del Mahachohan. Pero tengan especialmente en cuenta que en este planeta el Señor de Amor y Poder, el primer Kumara, es <pin lang="en">168</pin> el punto focal de los tres sectores. Él es el Iniciador, ya sea que el hombre trabaje en la línea de poder, en la de amor o en la línea de la inteligencia, y finalmente llegará a su meta en el rayo sintético de amor y sabiduría. Él debe ser amor y tiene que manifestarlo, pero puede ser un amor que actúa por medio del poder, amor armonioso o amor que actúa a través del conocimiento, el ceremonial o la devoción; o puede ser simplemente amor puro y sabiduría, que fusiona a los demás. Amor fue la fuente y amor es la meta y el método para lograr la realización.
+
+## 14 de agosto de 1920.
+
+### Las tres líneas de acercamiento.
+
+Continuando con el estudio de ayer, observarán que hay tres formas directas de contacto entre lo superior y lo inferior, y que las tres llegan a un punto focal por medio del mismo Iniciador; además habrán notada que las tres son completamente distintas, respecto al método de acercamiento. Si tienen en cuenta esto, comprenderán que cada una proporciona al hombre (cuya nota egoica <pin lang="es">130</pin> corresponde a una de las tres, o a un sector de la tercera) la línea de menor resistencia y el sendero por el cual puede alcanzar más fácilmente lo Ultérrimo. Fundamentalmente, es algo relacionado con diversos estados de conciencia, y en esto los Grandes Seres ayudan poderosamente al estudiante. Por medio de la meditación, ajustada a la línea deseada, el estudiante puede regular, paso a paso, los diversos estados intermedios entre él y su meta. Se eleva a través de varios puntos focales de fuerza, los cuales pueden ser su Yo superior, su Maestro o un ideal, siendo nada más que peldaños por los cuales obtiene expansiones de conciencia que le permiten ampliar la periferia de su conciencia, hasta abarcar todo y <pin lang="en">169</pin> fusionarse finalmente con la Mónada, y más tarde con el Omni-Yo, el Logos Mismo.
+
+Para mayor claridad y a fin de satisfacer el anhelo de la mente concreta, de establecer diferenciaciones, estos tres sectores se presentan como distintos y separados, aunque tienen sus puntos de contacto. En realidad, aparte de la ilusión que la mente siempre establece, los tres son uno, y los siete no son más que partes fusionadas de un todo sintético, estando entrelazados y entremezclados. Los tres sectores son partes necesarias de una organización regida por el Señor del Mundo. Constituyen los sectores ejecutivos que dirigen los asuntos de nuestro planeta; cada sector depende de los demás, y todos trabajan en la más estrecha colaboración. El hombre que se encuentra en determinada línea debe recordar, que con el tiempo y antes de alcanzar la perfección, ha de comprender la síntesis del todo. Debe captarlo como un hecho indudable y no como un concepto mental, entonces llegará el momento que en su meditación comprenderá la unidad esencial y sabrá que él es un fragmento de un todo más vasto.
+
+En estos tres sectores, la meditación es el método de acercamiento al Guía de un sector, difiriendo la forma en que el estudiante se pone en armonía con la Vida esencial de ese sector (todo es cuestión de términos). La vida dentro de la forma se manifiesta -como resultado de la meditación- de tres maneras diferentes. Los resultados de la meditación, expuestos en términos del carácter (si así puedo expresarlo), son en realidad los mismos aspectos de la manifestación, bajo distintos términos o condiciones. Permítanme clasificarlos:
+
+1. La línea del Manu. <br/>
+ Fuerza, Fortaleza, Poder para regir.
+
+2. <pin lang="en">170</pin> La línea del Bodhisatva. <br/>
+ Magnetismo, Atracción, Curación.
+
+3. La línea del Mahachohan. <br/>
+ Electricidad, Síntesis, Organización.
+
+<p>
+<pin lang="es">131</pin> Trato de señalar aquí que, en la vida del estudiante que pertenece a alguna de estas tres líneas, se producirán los efectos tal como han sido enumerados, aunque, lógicamente, estarán matizados y modificados por el rayo de su personalidad y por el grado de evolución alcanzado. Si se reflexiona sobre las tres palabras aplicadas a cada una de las tres líneas, se obtendrá mucha luz. (No trato de expandir el cuerpo mental sino de entrenar la intuición). Estas palabras demuestran que la ley actúa a través de los tres grupos y que se expresa activamente en los tres mundos donde se sigue la línea deseada. Cada línea tiene sus fórmulas específicas, por las que se logran dichos resultados. Se acerca el momento en que los rudimentos de estas fórmulas (las primeras fundamentales) se darán a los estudiantes considerados con suficiente preparación y que efectuaron el trabajo preliminar necesario.
+</p>
+
+#### 1. La línea del Manu.
+
+Podría indicar aquí parcialmente el método aproximado, y también ciertas reglas que servirán de dilucidación cuando llegue el momento.
+
+La primera es especialmente la línea de gobierno, de desarrollo racial, de trabajo en la materia y con la materia de todas las formas y en todos los planos de la evolución humana. Como he dicho anteriormente, es la línea del ocultismo. Pone el énfasis en el método jerárquico, personifica la autocracia divina, siendo la línea por la cual nuestro Logos solar impone Su voluntad a los hombres. Está estrechamente ligada a los Señores del Karma, y por medio del sector del Manu es aplicada la ley de Causa y Efecto. Los cuatro Señores del Karma actúan estrechamente con el <pin lang="en">171</pin> Manu, pues imponen la Ley, manipulan las formas de los hombres, continentes, razas y naciones, para que se cumpla debidamente la ley.
+
+Por lo tanto, aquel que por la meditación trata de hacer contacto con tales potencias, de elevarse para unirse por tales medios y de alcanzar la conciencia del aspecto Voluntad, trabaja de acuerdo a reglas establecidas, se eleva de un punto a otro mediante formas apropiadas y reflexiona siempre sobre la Ley y su actuación. Trata de comprender, discriminar y estudiar; se ocupa de lo concreto y el lugar que le corresponde en el plan divino; acepta la realidad de la vida inmanente, pero principalmente se concentra en su método y forma de manifestación. Las reglas básicas de la manifestación y de gobierno ocupan su atención; por el estudio de las reglas y leyes y por tratar de comprenderlas, lógicamente hará contacto con el Regente. Se eleva etapa tras etapa: desde el regente del microcosmos en los tres mundos, al grupo egoico y - tu punto focal, un Maestro; del regente del grupo se eleva al del <pin lang="es">132</pin> Manu, el Regente del sector donde él tiene su lugar; de allí se eleva al Regente del Mundo, más tarde al Logos planetario, y de éste al Logos solar.
+
+#### 2. La línea del Bodhisatva.
+
+Ésta es la línea de la religión y de la filosofía, como también del desenvolvimiento de la vida inmanente. Se ocupa de la conciencia en la forma, más que de la forma en sí siendo eso la línea de menor resistencia para la mayoría. Personifica el aspecto sabiduría del Logos, y es la línea por la cual se manifiesta Su amor de manera predominante, siendo en sí el sistema solar una expresión directa del Logos y de Su aspecto amor; toda la manifestación se basa en el amor -regir con amor, amar con plenitud, actuar con amor-, pero en la segunda línea la anterior manifestación es suprema, y con el tiempo absorberá a las demás.
+
+Quien medita sobre esta línea trata siempre de penetrar en la conciencia de todo cuanto alienta, a fin de llegar, con el tiempo,<pin lang="en">172</pin> y a través de graduadas expansiones de conciencia, hasta la Omniconciencia, y penetrar en la vida del Ser supremo. Penetra así en la vida de todo lo que existe en la Conciencia logoica. No reflexiona tanto sobre la Ley, como sobre la vida regida por esa Ley. Por el amor comprende y por el amor se fusiona primeramente con su Ego, luego con su Maestro, después con su grupo egoico, más tarde con todos los grupos, hasta que finalmente penetra en la conciencia de la Deidad misma.
+
+#### 3. La línea del Mahachohan.
+
+Ésta es la línea de la mente o inteligencia, del conocimiento y de la ciencia, de La mente abstracta y de las ideas arquetípicas. El individuo reflexiona no tanto sobre la Ley y la Vida, como sobre los efectos que ambos producen en la manifestación, y sobre la razón de ello. El hombre que pertenece a esta quíntuple línea siempre pregunta por qué, cómo y dónde; trata de sintetizar y comprender los arquetipos e ideales y convertirlos en realidades en la manifestación. Cavila sobre los ideales, tal como los percibe; aspira hacer contacto con la Mente Universal, arrancar sus secretos y expresarlos. Es la línea de organización de los negocios y la línea en que los artistas, músicos, científicos y trabajadores del mundo ocupan su lugar. Los Espíritus de Amor y Actividad permanecen mucho tiempo en cada uno de sus cinco sectores, antes de pasar a las líneas de amor y de poder.
+
+Durante la meditación el hombre toma algún ideal, alguna parte del plan divino, cierto aspecto de la belleza o del arte, algún problema científico o racial, cavila sobre el mismo y utiliza la <pin lang="es">133</pin> mente inferior, descubriendo todo cuanto se puede saber y sentir. Después de esto, trata de elevar su conciencia aún más, hasta que alcanza la fuente de iluminación y obtiene la luz e información <pin lang="en">173</pin> necesarias. Igualmente asciende y penetra en la conciencia de quienes son superiores a él; no tanto desde el punto de vista del amor (como en la segunda línea), sino por su admiración y alegría por lo que han realizado, su gratitud por lo que dieron al mundo y su devoción a la misma idea que los impulsa a actuar.
+
+Aunque se haga un estudio muy superficial de las tres líneas mencionadas, es evidente que los hijos de los hombres van elevándose. Incluso aquellos (a veces tan despreciados) que constituyen los trabajadores activos en el mundo, pueden (en su lugar y por devoción a los ideales de trabajo, de la ciencia y hasta de las organizaciones comerciales) estar tan adelantados como quienes se consideran superiores porque expresan en forma más patente el aspecto amor del Yo divino. Recuerden que esa actividad es tan divina y tan fundamentalmente una expresión del Padre de todos, como lo es el amor en el sacrificio y mucho más que aquello que conocemos como poder, pues el aspecto poder no es todavía comprendido por ninguno de ustedes ni lo será hasta una manifestación ulterior.
+
+## 14 de agosto de 1920.
+
+### Fórmulas empleadas para llamar a los devas y elementales.
+
+Los puntos seis y siete, enumerados en la carta del 10 de agosto, podríamos tratarlos como uno, porque los mántram y fórmulas empleados para hacer contacto con los devas, ángeles o constructores, y para llamar a les elementales o formas subhumanas de existencia, son prácticamente los mismos, y en estas cartas se los ha de considerar así.
+
+Como paso preliminar vamos a establecer con claridad en qué consiste la diferencia entre ambos grupos.
+
+Los elementales en su esencial esencia son subhumanos. El hecho de que se puede establecer contacto con ellos en el plano <pin lang="en">174</pin> emocional, no garantiza que se hallan en el sendero evolutivo. Por lo contrario, están en el sendero involutivo, en el arco descendente.
+
+Se los encuentra en todos los planos, siendo muy conocidas las formas elementales etéricas tales como duendes, gnomos y hadas.
+
+En líneas generales se los puede dividir en cuatro grupos:
+
+1. Elementales de la tierra.
+2. Elementales del agua.
+3. Elementales del aire.
+4. Elementales del fuego.
+
+Son la esencia de las cosas -si pudieran ustedes comprenderlo.
+
+<p>
+<pin lang="es">134</pin> Son las cosas elementales del sistema solar, en sus cuatro grados, según los conocemos en este cuarto ciclo, en el cuarto planeta o tierra.
+</p>
+
+Los devas se hallan en el sendero evolutivo, en el camino ascendente. Como bien saben, son los Constructores del sistema y trabajan en apretadas y graduadas filas. Los devas tienen la misma categoría que el Logos planetario, y los Regentes de los cinco planos de la evolución humana poseen igual categoría que un Maestro de la séptima Iniciación. Otros poseen un desarrollo igual (en su propia línea) a la de un Maestro de la quinta iniciación y trabajan consciente y voluntariamente con los Maestros de la Jerarquía. Puede encontrárselos en los grados inferiores, hasta llegar a los pequeños devas constructores, los cuales trabajan casi inconscientemente en sus grupos, construyendo las innumerables formas que necesita la vida evolucionante.
+
+Anteriormente -antes de dictar estas cartas- recibieron instrucción acerca de la invocación mántrica para los elementales y los devas. La información dada es correcta y puede ser intercalada aquí.
+
+"Fuerza evolutiva y fuerza involutiva son dos cosas <pin lang="en">175</pin> diferentes; ésta es una afirmación preliminar. En una existe destrucción, violencia, la actuación de potencias elementales ciegas. En la otra los elementales realizan la mayor parte del trabajo, haciéndolo ciegamente, controlados por los Constructores. La tarea constructiva, cohesiva, constituye un crecimiento gradual de conjunto; produce armonía en la discordia y belleza en el caos. Los reinos inferiores de los devas trabajan guiados por los Grandes Devas Constructores, y ascienden todos en ordenada belleza de un plano a otro, de un sistema a otro, de un universo a otro. Por lo tanto, al estudiar ocultismo debe tenerse presente dos cosas:
+
+1. Que ustedes controlan las fuerzas elementales.
+2. Que colaboran con los devas.
+
+En el primer caso dominan ustedes, en el otro colaboran. Controlan por medio del aspecto actividad, la ejecución precisa de ciertas cosas, la preparación de ciertas ceremonias, a través de las cuales pueden actuar ciertas fuerzas. Es una réplica en miniatura de lo que el tercer Logos hizo al crear el mundo. Ciertas actividades tuvieron determinados resultados. Más adelante se podrán hacer revelaciones respecto a los ritos y ceremonias, mediante los cuales podrán ponerse en contacto con los diversos elementales y controlarlos. El Rayo de Ceremonial -al venir ahora a la manifestación- facilita grandemente las cosas en esta particular dirección.
+
+<p>
+<pin lang="es">135</pin> Los elementales del fuego y del agua, así como los elementales inferiores, pueden ser manejados por medio de ritos, y son de tres tipos:
+</p>
+
+1. Ritos protectores, para su propia protección.
+2. Ritos evocadores, que llaman y revelan a los elementales.
+3. <pin lang="en">176</pin> Ritos controladores, que los dirigen cuando se los evoca.
+
+Al trabajar con los devas, se emplea el aspecto sabiduría o amor, el segundo aspecto del Logos o aspecto constructor. Por medio del amor y el anhelo ustedes pueden llegar hasta ellos y, el primer paso a dar (pues están en el sendero de evolución como ellos), es ponerse en contacto con ellos, porque en lo futuro tendrán que trabajar juntos para guiar a las fuerzas elementales y ayudar a la humanidad. Es peligroso para los seres humanos, pobres necios ignorantes, entrometerse con las fuerzas de la involución, mientras no estén vinculados con los devas mediante la pureza de carácter y la nobleza de alma.
+
+Mediante ritos y ceremonias pueden sentir a los devas y llegar a ellos, pero no de la misma manera ni por la misma razón que pueden llegar a los elementales. Los devas acuden a las ceremonias libremente y no son evocados; así como ustedes, acuden para extraer poder. Cuando la vibración es suficientemente pura, las ceremonias sirven de punto común de reunión.
+
+Para finalizar quiero decir que cuando hayan aprendido a utilizar el aspecto actividad para trabajar con las potencias involutivas, y el aspecto sabiduría para colaborar con los devas, entonces pasarán,**en conjunto, a emplear el primer aspecto, el de la voluntad o poder.**"
+
+Antes de seguir más adelante quiero advertir el peligro que implica llamar y hacer contacto con estos grupos de constructores, muy especialmente con las fuerzas elementales. ¿Por qué especialmente las últimas? Porque tales fuerzas hallan siempre respuesta en cualesquiera de los tres cuerpos inferiores del hombre. Tales cuerpos (considerados como envolturas separadas) están compuestos por estas vidas involutivas. Por consiguiente, aquel que <pin lang="en">177</pin> sin saberlo se expone al contacto directo con cualquier elemental, correrá riesgo y lamentará amargamente lo ocurrido. Pero a medida que el hombre se acerca al adeptado y ha obtenido dominio sobre sí mismo, y puede en consecuencia confiársele el dominio de otras formas de vida, le serán otorgados ciertos poderes, los cuales -por estar basados en la ley- pondrán en sus manos el gobierno de vidas inferiores y le enseñarán a colaborar con las huestes dévicas, tan esenciales en el periodo final de la evolución.
+
+### <pin lang="es">136</pin> Los mántram de poder.
+
+Los mántram que contienen el secreto del poder, son, como ya saben y lo he dicho anteriormente, de diferentes tipos y principalmente cuatro:
+
+1. Los mántram protectores, son los de primordial importancia.
+2. Los mántram que llaman a los elementales y devas menores y los ponen en el radio magnético de quien los llama.
+3. Los mántram que imponen sobre los elementales y devas menores la voluntad de quien los invoca.
+4. Los mántram que rompen el encantamiento (si puedo expresarlo así) y colocan a los elementales y devas nuevamente fuera del radio magnético de quien los invocó.
+
+Estos cuatro mántram se aplican especialmente para llamar y entrar en contacto con elementales y devas de los grados inferiores y no son muy usados, excepto en raros casos, por iniciados y adeptos, que generalmente trabajan por mediación de los grandes devas guiadores y constructores. La Fraternidad Negra trabaja con las fuerzas de la involución, e impone su voluntad sobre las inconscientes formas inferiores de vida. El procedimiento correcto -tal como lo sigue la Fraternidad de la Luz- consiste en controlar estos grupos involutivos y devas de grado inferior, <pin lang="en">178</pin> por intermedio de sus propios rangos superiores, la hueste de devas constructores con sus Señores Devas.
+
+Esto nos conduce a considerar otro conjunto de mántrams, empleados en conexión con los devas.
+
+1. Los mántram rítmicos que ponen, a quien los emplea, en contacto con el grupo de devas buscado. Éstos son, lógicamente, los mántram de rayo, pues invocan a los devas de determinado rayo, y varían si el individuo pertenece al mismo rayo del grupo que está invocando. Se preguntarán ¿por qué no se emplean primero los mántram protectores, como cuando se llama a los elementales? Principalmente por las siguientes razones: Los mántram que invocan a los elementales se descubren y emplean con más facilidad que los utilizados para invocar a los devas. La historia abunda en estos ejemplos, y en todo el mundo (incluso en la actualidad) hay individuos que poseen el secreto de cómo ponerse en contacte con elementales de uno u otro tipo. En la época Atlante todo el mundo sabía hacer esto; el arte es todavía conocido y practicado por los salvajes y por algunos individuos de países civilizados. En segundo lugar, aunque el hombre común conozca el mántram, probablemente fracasará al invocar a un deva porque implica algo más que entonar las palabras y sonidos, <pin lang="es">137</pin> constituyendo uno de los secretos de la iniciación. Cuando un hombre es iniciado o adepto no necesita ritos protectores, porque en el mundo del ocultismo es ley que **sólo aquellos de vida pura y de móviles altruistas pueden hacer contacto con la evolución dévica**, ocurriendo lo contrario respecto a las vidas elementales.
+2. Los mántram que permiten el intercambio con los devas, una vez que han sido invocados. El lenguaje, tal como lo conocemos, no es comprendido por los devas; pero mediante el empleo de fórmulas mántricas pueden originarse impulsos, fuerzas y vibraciones que producen los resultados deseados, prescindiendo de <pin lang="en">179</pin> la palabra hablada. Estas fórmulas abren el camino para la mutua comprensión.
+3. Los mántram que ejercen influencia sobre los grupos, y otros que lo hacen sobre determinados devas. Quisiera indicar aquí que, por regla general, los devas se manejan en grupos, no individualmente, excepto cuando se hace contacto con devas de orden muy elevado.
+4. Los mántram que llaman directamente la atención de uno de los señores devas de un subplano o del poderoso Señor Deva de un plano, siendo conocidos por muy pocos, empleándolos únicamente los que han recibido una iniciación muy elevada
+
+## 17 de agosto de 1920.
+
+### La comprensión de la fuerza.
+
+La tensión es actualmente grande, y la fuerza que afluye a los diferentes centros puede causar sensación de fatiga, tensión, excitación y desasosiego, si no está controlada debidamente. El secreto del control, que reside en la **no-resistencia**, es conocido por muy pocos, de ahí la intensidad de las emociones, de las reacciones violentas y de la actual ola de delincuencia, siendo en gran parte resultado de fuerzas erróneamente empleadas y aplicadas, manifestándose en todas las esferas de la vida; **únicamente quien conoce el secreto de ser nada más que un canal, y mora tranquilo en el lugar secreto, puede pasar por la presente crisis sin excesivo dolor y malestar**. La fuerza estimulante -tal como se manifiesta ahora- produce dolor y la reacción consiguiente, y debe resguardarse de ella con la misma precaución que de su opuesta, la pérdida de vitalidad -resguardarse, no en el sentido de cerrarse a la fuerza estimulante, sino recibirla, pasándola a través del propio ser, y sólo absorbiendo de ella lo que puede retenerse. Entonces el resto es exteriorizado como agente curativo y retornará al depósito general. El verdadero significado esotérico de la <pin lang="en">180</pin> fuerza de la naturaleza, de las corrientes eléctricas del universo y del <pin lang="es">138</pin> calor latente acumulado, en todas las formas, es todavía poco comprendido por los Científicos exotéricos y los presuntos estudiantes de ocultismo. X... emprendió el estudio del ocultismo desde este punto de vista y, por lo tanto, logró un profundo conocimiento de la ley.
+
+:::note Recuerda
+
+La tensión es actualmente grande, y la fuerza que afluye a los diferentes centros puede causar sensación de fatiga, tensión, excitación y desasosiego, si no está controlada debidamente. El secreto del control, que reside en la **no-resistencia**, es conocido por muy pocos, de ahí la intensidad de las emociones, de las reacciones violentas y de la actual ola de delincuencia, siendo en gran parte resultado de fuerzas erróneamente empleadas y aplicadas, manifestándose en todas las esferas de la vida; **únicamente quien conoce el secreto de ser nada más que un canal, y mora tranquilo en el lugar secreto, puede pasar por la presente crisis sin excesivo dolor y malestar**
+
+:::
+
+Me he ocupado de esta cuestión porque se halla subyacente en toda instrucción de carácter esotérico. Si pueden captar algo de su significado y comprender que la ley no es más que la adaptación de la forma a una de estas grandes corrientes de fuerza, iluminarán su vida y serán conducidos, mediante esas corrientes magnéticas, fluido vital, rayos eléctricos (no importa qué términos se les dé), hasta el corazón de lo desconocido. Esta misma idea de la fuerza y de las Corrientes magnéticas del sistema solar rige todo cuanto he dicho sobre la meditación, en sus diferentes aspectos: especifico, individual y colectivo, basados sobre fórmulas o no; es el medio por el cual actúan los mántram, desde esos que hacen contacto con las vidas elementales, hasta las grandes Palabras entonadas rítmicamente, que invocan al Señor de un Rayo, al Deva de un plano y hasta al mismo Señor de un sistema solar. La entonación de estas palabras, el ascenso a través de fórmulas graduadas, hasta un punto específico, y la entonación de los mántram, pone a quien así trabaja en la línea de alguna corriente de fuerza. Consiste en hallar la línea de menor resistencia a fin de alcanzar determinada meta, comunicarse con alguna Inteligencia individual, controlar alguna vida involutiva y ponerse en contacto y colaborar con algún grupo de devas.
+
+Esta disgresión servirá para resumir lo que he dicho últimamente acerca de las fórmulas mántricas o de otro tipo, tal como la emplean quienes estudian la meditación ocultista.
+
+Como se ha de imaginar, sólo puede invocar a los devas y a los elementales sin peligro quien tenga el poder y la capacidad <pin lang="en">181</pin> de utilizarlos inteligentemente una vez invocados, por eso los mántram que he enumerado anteriormente sólo se ponen en manos de quienes trabajan con las fuerzas constructivas del sistema o pueden controlar constructivamente a los elementales destructivos, sometiéndolos a las fuerzas desintegradoras que forman parte del gran esquema constructivo. Si alguien, que no posea tales capacidades, llegara a ponerse en contacto con los devas y los atrajera por medio de los mántram, encontraría que las fuerzas inherentes a ellos descenderían sobre él como algo destructivo, con graves consecuencias para uno de sus cuerpos.
+
+Por lo tanto, reflexionen sobre esto, recordando que tales peligros residen en el excesivo estímulo, el repentino desmoronamiento y la desintegración por el fuego o el calor. En el caso de reunir a su alrededor vidas involutivas, el peligro tomaría forma <pin lang="es">139</pin> diferente o se manifestaría con efecto opuesto, tal como pérdida de vitalidad, causada por el vampirismo, absorción de las fuerzas de uno u otro de sus cuerpos, acumulación anormal de materia en alguno de sus cuerpos (debido a la acción de vidas involutivas, como ser los elementales físicos o de deseo) y muerte por agua, tierra o fuego, comprendida en sentido oculto.
+
+He tratado aquí los riesgos que corre quien atrae a su esfera magnética a entidades de cualquiera de estos dos grupos, sin poseer el conocimiento necesario para protegerse, controlarlas y utilizarlas. ¿Por qué me he ocupado de ellos? Porque tales fórmulas mágicas existen y serán conocidas y empleadas cuando el estudiante esté preparado y el trabajo lo requiera. Algún día las fórmulas menores serán dadas gradualmente a quienes estén preparados y trabajen abnegadamente para ayudar a la raza. Como he dicho anteriormente, tales fórmulas eran conocidas en la época Atlante. Entonces tuvieron resultados desastrosos, porque fueron empleadas por individuos de vida impura, para fines egoístas <pin lang="en">182</pin> y propósitos malignos. Invocaron a las huestes elementales para vengarse de sus enemigos; invocaron a los devas menores y utilizaron sus poderes para satisfacer sus propias ambiciones; no trataron de colaborar con la ley, sino que la utilizaron en sus maquinaciones en el plano físico, originadas por sus deseos. La Jerarquía regente consideró que el peligro era demasiado grande, pues amenazaba la evolución del hombre y de los devas, por eso retiró gradualmente de la conciencia humana el conocimiento de fórmulas y Palabras, hasta el momento en que se desarrolló parcialmente la razón y la mente espiritual comenzó a despertar. Así las dos grandes evoluciones y la tercera evolución latente (compuesta de vidas involutivas), fueron separadas y aisladas. Temporariamente el grado de vibración se hizo más lento, pues el propósito original consistió en establecer un desarrollo paralelo. El secreto de este aparente retroceso, en los planes del Logos, se halla oculto en el remanente del Mal cósmico activo que llegó a la manifestación, siendo el remanente del primer sistema solar o de actividad y base del actual sistema de amor. El mal es nada más que el sedimento del karma no agotado, y tiene su raíz en la ignorancia.
+
+La separación, en triple escala, de las vidas evolutivas e involutivas, ha continuado hasta ahora. Con el advenimiento del actual séptimo Rayo de Magia Ceremonial, se permite, en cierta medida, una tentativa de acercamiento de los dos grupos evolucionantes, aunque no con el grupo involucionante. Recuerden esta afirmación. Las evoluciones dévica y humana llegarán a ser, en el transcurso de los próximos quinientos años, más conscientes una de otra y, por lo tanto, podrán colaborar más libremente. A la par de esta creciente conciencia vendrá la búsqueda de métodos de <pin lang="es">140</pin> comunicación. Cuando se sienta sinceramente la necesidad de comunicarse para fines constructivos, podrán circular algunos de los antiguos <pin lang="en">183</pin> mántram, bajo la juiciosa guía de los Maestros. Su acción, interacción y reacción serán cuidadosamente observadas y estudiadas, esperándose que redunden en beneficio de ambos grupos. La evolución humana deberá dar fortaleza a la dévica y ésta, a su vez, alegría a la humana. **El hombre tendrá que comunicar a los devas su punto de vista objetivo, mientras que ellos por su parte derramarán sobre el hombre su magnetismo curativo. Los devas son los custodios del prana, del magnetismo y de la vitalidad, así como el hombre es el custodio del quinto principio, la mente o manas.** He hecho aquí varias indicaciones y no puedo decir nada más.
+
+:::note Recuerda
+
+El hombre tendrá que comunicar a los devas su punto de vista objetivo, mientras que ellos por su parte derramarán sobre el hombre su magnetismo curativo. Los devas son los custodios del prana, del magnetismo y de la vitalidad, así como el hombre es el custodio del quinto principio, la mente o manas.
+
+:::
+
+Quizás mañana me ocupe de una clasificación vitalmente importante: las fórmulas vinculadas con el fuego. Por hoy es suficiente lo impartido.
+
+## 19 de agosto de 1920
+
+### Fórmulas mántricas vinculadas con el fuego.
+
+Será de utilidad que diga algo sobre la parte que desempeña el fuego en la evolución y en los diversos sectores de nuestro sistema solar, relacionados con el fuego. Pongo especial énfasis en ello porque con la meditación se penetra en el reino del fuego, y también por su primordial importancia. Los sectores donde el fuego desempeña su parte son cinco. Trataré primero del fuego en el Macrocosmos y más adelante demostraré su analogía microcósmica:
+
+1. El fuego vital que anima al sistema solar objetivo. Tal como se evidencia, por ejemplo, en la economía interna de nuestro planeta y la esfera central de fuego, el sol.
+2. Ese algo misterioso que H.P.B. denomina Fohat; del cual algunas de sus manifestaciones son la electricidad, ciertas formas de luz y el fluido magnético, dondequiera se manifieste.
+3. El fuego del plano mental.
+4. <pin lang="en">184</pin> Los elementales del fuego, que, en esencia, son el fuego mismo.
+5. La chispa vital denominada "llama divina", latente en cada ser humano, la cual distingue a nuestro Logos solar de los demás Logos y es la suma de todas Sus características. "Nuestro Dios es un Fuego consumidor". Estas diferenciaciones del fuego son prácticamente diferenciaciones de una misma cosa, básicamente son lo mismo, aunque diversas en su manifestación. Tuvieron fundamentalmente su origen en el <pin lang="es">141</pin> fuego cósmico de las esferas mentales cósmicas. En el microcosmos tenemos esta misma quíntuple diferenciación; por el reconocimiento de esta analogía llega la iluminación y se alcanza el objetivo de la meditación.
+   1. Los fuegos vitales que mantienen la economía interna del ser humano (el sistema microcósmico) en plena manifestación. Al cesar este fuego interno se produce la muerte, y el sistema físico objetivo entra en oscuración. Lo mismo ocurre en el Macrocosmos. Así como el sol es el centro de nuestro sistema, el corazón es el punto focal del calor microcósmico; así como la tierra está vitalizada por el mismo calor y constituye (para nuestra cadena) el punto más denso de materia y de mayor calor físico, así también los órganos inferiores genitales son, en la mayoría de los casos, el centro secundario para el fuego interno. La analogía es exacta interesante y misteriosa.
+   2. La analogía con Fohat, en el microcosmos, reside en las corrientes pránicas que, por mediación del cuerpo etérico, mantienen al cuerpo físico denso, vitalizado y magnetizado. Los recursos del fluido pránico son ilimitados y poco <pin lang="en">185</pin> comprendidos, y en la adecuada comprensión de los mismos está el secreto de la salud perfecta. Trataremos de esto más adelante.
+   3. La analogía con el fuego del plano mental es fácilmente demostrable, porque el trabajo de los Señores de la Llama, al implantar la chispa de la mente, ha crecido y se ha desarrollado de tal manera que ahora el fuego del intelecto arde en todos los pueblos civilizados. Todas las energías están dirigidas a nutrir esa chispa y utilizarla con el máximo de provecho.
+   4. Los elementales del fuego son conocidos en cierta medida en el microcosmos, por las formas mentales conjuradas y vitalizadas por el individuo cuyo poder mental es suficiente para realizarlo. Estas formas mentales, construidas por el hombre que puede pensar intensamente, son vitalizadas por su vida o la capacidad de generar calor, perdurando mientras él tenga el poder de animarlas. En la actualidad son de corta duración, pues todavía es poco comprendido el verdadero poder del pensamiento. En el quinto gran ciclo que, en esta cadena, verá la culminación del quinto principio o mente, esta analogía será mejor comprendida. Actualmente la relación no está necesariamente definida.
+   5. La chispa vital latente en todo ser humano indica que posee la misma naturaleza del Logos Solar.
+
+<p>
+<pin lang="es">142</pin> He aquí el fuego, tal como se lo puede ver en los sistemas mayor y menor. Ahora resumiré la finalidad del fuego en el microcosmos y lo que se ha de procurar realizar. Tenemos tres fuegos:
+</p>
+
+1. La chispa vital divina.
+2. La chispa de la mente.
+3. El kundalini, la doble fusión del calor interno y de la <pin lang="en">186</pin> corriente pránica. Esta fuerza está localizada en el centro situado en la base de la columna vertebral, y el bazo nutre ese calor.
+
+Cuando estos tres fuegos -el del cuaternario, el de la tríada y el del quinto principio- se unen y mezclan en forma geométrica, cada centro está vitalizado adecuadamente, se manifiesta suficientemente cada poder, se consume toda impureza y escoria y se alcanza la meta. La chispa se Convierte en llama y la llama es parte de la gran hoguera egoica que anima a todo el universo objetivo.
+
+En Consecuencia, llegamos lógicamente a la conclusión de que para estos tres tipos de mántram, existen otros que producirán la unión y fusión de ellos. Tenemos, en efecto:
+
+Los mántram que afectan al kundalini y lo despiertan en forma correcta. Por el poder de la vibración lo ponen en circulación a través de los centros, de acuerdo a su natural progresión geométrica. Una rama secundaria de estos mántram se relaciona con el bazo y con el control de los fluidos pránicos, para fines de salud y vitalización y para afectar al fuego en la base de la columna vertebral.
+
+Los mántram que actúan sobre la materia del plano mental, en una u otra de sus dos divisiones principales, abstracta y concreta, lo hace de dos maneras: producen una acrecentada capacidad para pensar, manipulan la materia mental y actúan como estimulante del cuerpo causal, adaptándolo más rápidamente como vehículo de la conciencia y preparándolo para la desintegración final efectuada por medio del fuego. Los mántram que evocan al Dios interno y actúan específicamente <pin lang="en">187</pin> sobre el Ego. Desde allí establecen una fuerte vibración en la tríada superior, haciendo que descienda fuerza monádica al cuerpo causal. Todos estos mántram pueden emplearse separadamente y alcanzar resultados propios. Hay siete grandes mántram (uno para cada rayo), los cuales combinan los tres efectos anteriores, cuando los utiliza un Maestro o uno de los miembros de la Jerarquía. Estos mántram despiertan al kundalini, actúan sobre el vehículo causal en el plano mental, y establecen una vibración en la Triada; de esta manera efectúan la unificación de lo inferior, lo superior y el quinto principio.
+
+<p>
+<pin lang="es">143</pin> Éste es un reflejo de lo que ocurrió durante el advenimiento de los Señores de la Llama. Ello conduce a la total unificación y señala al hombre, de ahí en adelante, como un ser en quien se demuestra el amor en acción, mediante la ayuda de la mente iluminada.
+</p>
+
+Éstos son los cuatro tipos de mántram más importantes, en lo que respecta a la evolución y desenvolvimiento individual, siendo muy conocidos por quienes entrenan estudiantes para recibir la iniciación. Pero si estos mántram fueran descubiertos por quienes no están preparados, muy poco podrían realizar por sí mismos, pues su empleo debe ir acompañado del poder que se adquiere mediante la aplicación del Cetro de Iniciación. Este Cetro, por medio del diamante que lo corona, enfoca los tres fuegos, de la misma manera que el vidrio de aumento concentra los rayos del sol y produce fuego.
+
+He dado aquí en muy pocas palabras mucha información. El tema está muy condensado. Lo dicho tendrá significado especial para el individuo que se acerca al Sendero de Iniciación. Reflexionen detenidamente sobre lo que acabo de decir, pues reflexionando en el silencio del corazón puede llegar la luz, y el fuego interno arder con más calor.
+
+Podría mencionar otros mántram relacionados con el fuego. Hay otros dos grupos con los cuales se puede hacer contacto empleando ciertos sonidos rítmicos, y son:
+
+<p>
+<pin lang="en">188</pin> Los elementales del fuego y sus diversas huestes, que se encuentran en las entrañas de la tierra, sobre su superficie y en el aire de la misma.
+</p>
+
+Los devas del plano mental, que son esencialmente devas del fuego.
+
+Nada hay para decir o enseñar respecto a los mántram que afectan a los elementales del fuego, que son, en muchos aspectos, los elementales más peligrosos y poderosos que cuidan la economía de la tierra. Son, por una parte, más numerosos que los demás elementales y se los encuentra en todos los planos, desde los superiores a los inferiores. Los elementales del agua y de la tierra se encuentran únicamente en ciertas localidades o esferas del sistema solar; los elementales más numerosos, después de los del fuego, son los del aire.
+
+Los mántram para invocar, controlar y alejar a los elementales, eran de uso corriente entre los atlantes. Los peligros originados y la amenaza que pesaba sobre la tierra, a causa del empleo indiscriminado de los elementales, perturbó de tal manera el exacto desarrollo de los planes logoicos y disgustó tanto a los Guías de la raza, que el conocimiento fue retirado. La raza raíz Atlante <pin lang="es">144</pin> desapareció a causa de los desastres producidos por el agua, las inundaciones y los sumergimientos; si se tiene en cuenta que el agua es el enemigo natural del fuego y que ambos grupos de elementales no tienen punto alguno de unificación en esta etapa, se podrá comprender un aspecto interesante del cataclismo Atlante.
+
+Los mántram que invocan a los devas del fuego, están además bien resguardados, no sólo por el peligro implicado, sino también debido a las demoras, respecto al tiempo, que se producen cuando esos devas son invocados sin motivo y retenidos por encantamientos mántricos que impiden seguir su necesaria vocación. Bajo estos grupos de fórmulas mántricas se encuentran muchos grupos inferiores, que trabajan especialmente con distintos grupos de elementales y devas.
+
+<p>
+<pin lang="en">189</pin> Hemos enumerado seis mántram conectados con el fuego. Existen unos cuantos más, que enumeraré brevemente:
+</p>
+
+Los mántram purificadores, que despiertan un fuego que arde y purifica, en uno de los tres planos inferiores. Esto se efectúa mediante la actividad de elementales regidos por los devas del fuego y bajo la guía directa de un iniciado o discípulo, para algún fin especifico de purificación. La finalidad puede ser purificar alguno de los cuerpos, localidad, casa o templo.
+
+Los mántram que invocan el fuego para la magnetización de talismanes, de piedras o de lugares sagrados.
+
+Los mántram que curan, gracias al empleo oculto de la llama.
+
+Los mántram empleados por:
+
+1. El Manu, al manipular lo necesario para el desplazamiento de continentes y el sumergimiento de tierras.
+2. El Bodhisatva, al estimular la llama interna en cada ser humano.
+3. El Mahachohan, al trabajar con la inteligencia o quinto principio.
+
+Todas estas fórmulas mántricas y muchas otras más, existen realmente... El primer paso a dar para conocer estos mántram es adquirir la facultad de meditar en forma ocultista, porque no es sólo la emisión de las palabras la que produce el efecto deseado, sino también la concentración mental que visualiza los resultados que se han de alcanzar. Esto ha de ir acompañado por la voluntad, que hace que estos resultados sean controlados por quien emite los sonidos. Estas fórmulas mántricas son peligrosas e inútiles si en el individuo no hay un equilibrio mental concentrado y el poder de controlar y vitalizar.
+
+:::note Recuerda
+
+no es sólo la emisión de las palabras la que produce el efecto deseado, sino también la concentración mental que visualiza los resultados que se han de alcanza
+
+:::
+
+## <pin lang="es">145</pin> 21 de agosto de 1920
+
+<p>
+<pin lang="en">190</pin> Llegamos ahora a la última clasificación enumerada en nuestra sexta carta.
+</p>
+
+### El empleo colectivo de las fórmulas.
+
+Para mayor claridad me propongo tratar esta parte bajo tres encabezamientos, que titularemos:
+
+1. El empleo colectivo del sonido en una fórmula de meditación.
+2. El empleo colectivo del ritmo en la meditación.
+3. Ocasiones especiales en que se emplean estas fórmulas.
+
+Hemos considerado con alguna extensión, en esta serie de cartas, la meditación individual, y también hemos tratado el asunto desde muchos y variados ángulos En todo lo dicho, se ha dado bastante información como para despertar el interés del estudiante e incitarlo a un mayor esfuerzo, a un más detenido estudio y una investigación más profunda. Únicamente lo que la conciencia interna comprende y capta como una realidad experimentada, sirve de algo en el difícil sendero del desenvolvimiento ocultista. Las teorías y los conceptos intelectuales de nada sirven, simplemente aumentan la responsabilidad. Solo cuando estas teorías resistan la prueba y, por consiguiente, se las conozca como realidades en la naturaleza, sólo cuando los conceptos mentales se desarrollen y demuestren en el plano físico como experiencia práctica, el estudiante estará en condiciones de indicar el camino a otros buscadores y tender la mano a los que siguen detrás. Decir: oigo, podrá ser de valor y alentador; agregar, creo, podrá dar más seguridad; pero lo que se necesita en esta hora más oscura de Kali Yuga, es emitir la nota clara y decir, sé. Quienes saben, son todavía pocos. No obstante el saber es perfecta y plenamente posible y sólo demanda, del estudiante que se halla en el sendero, persistencia, sinceridad y la capacidad para mantenerse firme en el sufrimiento.
+
+<p>
+<pin lang="en">191</pin> Ahora bien, teniendo ya alguna vaga idea de los resultados a obtener y los métodos a emplear en la meditación individual, y habiéndome extendido un poco sobre el empleo de las fórmulas por los individuos, podemos iniciar la consideración del tema desde el punto de vista colectivo.
+</p>
+
+Algunas de las cosas más importantes que se han de notar, respecto al empleo colectivo de fórmulas, es que tienen una adaptación universal, y aunque muy eficaces pueden ser también muy peligrosas. El culto colectivo a la Deidad y la celebración de ritos religiosos al unísono, son parte tan importante de la vida pública <pin lang="es">146</pin> en todos los pueblos, que fácilmente se olvida la razón de ser y sus resultados. Cada religión, sea cristiana, budista, hindú, mahometana, y también la deformada adoración fetichista de las razas más degeneradas, ha hecho hincapié en el valor y la eficacia del intento colectivo de entrar en contacto con la Deidad. Inevitablemente se obtienen resultados que abarcan desde esa sensación de calma y paz experimentadas por el participante en los misterios cristianos, hasta el frenesí y las contorsiones de los derviches más salvajes o del más ignorante zulú. **La diferencia radica en la capacidad del adorador para asimilar fuerza, y en su capacidad de retenerla y conservarla.** Estos puntos son determinados por el lugar que ocupa en la escala de evolución y el control mental y emocional que posee.
+
+El primer postulado que debe tenerse en cuenta, cuando se considera el empleo colectivo de fórmulas en la meditación, es que al emplear el sonido y el ritmo, estas fórmulas deben abrir un conducto de comunicación entre quienes toman parte en ellas y las Inteligencias o Potencias a quienes tratan de acercarse, Por medio de este conducto que va de lo físico a lo emocional, o aún más arriba, o a uno de los niveles mentales, las Inteligencias o Potencias pueden proyectar luz iluminadora o poder de cualquier tipo, <pin lang="en">192</pin> sobre quienes se acercan a Ellas. El conducto forma un canal por el que se puede hacer contacto. El proceso es puramente científico, basado en la vibración y en el conocimiento de la dinámica. Depende de la formación exacta de un vacío, mediante el conocimiento ocultista. La afirmación esotérica de que "la naturaleza aborrece el vacío", es verdad. Cuando, mediante la correcta entonación de ciertos sonidos, se forma este vacío o conducto entre lo superior y lo inferior, fluye por él, bajo la acción inevitable de la ley, fuerza o poder de alguna manifestación de energía fohática, que a través de él alcanza su objetivo.
+
+:::note Nota
+
+La afirmación esotérica de que "la naturaleza aborrece el vacío", es verdad. Cuando, mediante la correcta entonación de ciertos sonidos, se forma este vacío o conducto entre lo superior y lo inferior, fluye por él, bajo la acción inevitable de la ley, fuerza o poder de alguna manifestación de energía fohática, que a través de él alcanza su objetivo.
+
+:::
+
+Gran parte de lo que se conoce como artes negras o magia maligna, tiene por base el mal uso de este conocimiento. Por medio de invocaciones y fórmulas, los Hermanos Negros (o quienes se entrometen en lo que ignorantemente se denomina los poderes del mal) extraen fuerzas vinculadas con inteligencias oscuras en elevados lugares. De esta manera ponen en acción acontecimientos en el plano físico, originados en las oscuras y misteriosas cavernas del mal cósmico, que existe en nuestro sistema solar. Similarmente es posible extraer fuerzas aún más poderosos de la luz y del bien y aplicarlas al aspecto evolución.
+
+### El empleo colectivo del sonido en las fórmulas de meditación.
+
+Vamos ahora a considerar específicamente la cuestión desde el punto de vista del sonido. Al estudiar la Palabra Sagrada y su <pin lang="es">147</pin> empleo, vimos que tiene un efecto triple: **destructivo, constructivo y personal** -si puedo expresarlo así- **o que actúa en sentido estimulante, directamente sobre los centros del cuerpo**. Estos tres efectos se pueden observar en el empleo colectivo de los sonidos por un grupo numeroso de personas. Podemos mencionar, para mayor claridad, un cuarto efecto: **la creación de un conducto**. Este cuarto efecto, en la actualidad, no es más que la síntesis de los otros, pues al crearse este conducto de comunicación tienen que hacerse <pin lang="en">193</pin> los reajustes en la materia de los tres planos inferiores. **Estos reajustes tienen, como primer resultado, la destrucción de la materia obstructora, y luego la construcción del conducto que se ha de utilizar, llevándose a cabo definidamente por medio de los centros.** Este último punto es de interés fundamental, y encierra el secreto de la aplicación más poderosa del sonido. Esta aplicación consiste en proyectarlo en materia mental por medio de uno de los centros principales. Los efectos producidos por un grupo de personas que posean el poder de trabajar en las esferas mentales y de emplear simultáneamente uno de los centros principales (ya sea el centro coronario en su totalidad o uno de los otras centros mayores, en conexión con su correspondiente centro de la cabeza), pueden ser increíblemente poderosos. Es una suerte que la raza no posea todavía este poder. Si existe una unida pureza de móviles y una adhesión al bien de todos, se permitirá que este poder llegue nuevamente a ser conocido por el común de los hombres. Todavía es prácticamente imposible encontrar un número suficiente de personas del mismo grado de evolución, en el mismo punto de la escala, que empleen el mismo centro y respondan a la vibración de un mismo rayo, para reunirse al unísono y entonar juntos la misma nota o mántram. Además tendrán que estar animados por el mismo amor puro y trabajar inteligentemente por la elevación espiritual de todos.
+
+Parte del poder de la Jerarquía se debe a la capacidad de Sus miembros para realizar precisamente eso. A medida que progrese la evolución y este tema se comprenda mejor, los grupos de meditación cambiarán su condición actual de grupos de aspirantes sinceros que buscan iluminación, se convertirán en grupos de trabajadores, capaces de actuar unidos en forma constructiva e inteligente para lograr ciertos fines. Ustedes tienen en La Biblia cristiana fragmentos de un relato llegado de los días atlantes. En aquellos tiempos era comprendido el empleo del sonido y <pin lang="en">194</pin> practicado en las esferas física y emocional, utilizados para fines egoístas en la mayoría de los casos. Leemos que el sonido de las trompetas, tocado cierto número de veces, después de haber circundado rítmicamente las murallas de Jericó, produjo su derrumbe. Ello fue posible porque los dirigentes del pueblo eran versados en la <pin lang="es">148</pin> ciencia del sonido, gracias a cuyo conocimiento ocultista sabían, exactamente, el momento de aplicar la ciencia y alcanzar el efecto deseado.
+
+Estos sonidos pueden agruparse bajo tres acápites:
+
+#### La entonación unida de la Palabra Sagrada.
+
+Este es uno de los métodos más usados y el medio más directo de formar un conducto para la transmisión de poder. Si es tan efectiva cuando la entona un individuo, como se ha demostrado repetidas veces, al hacerlo colectivamente, con seguridad debe ser de enorme eficacia y hasta evidentemente peligrosa. Debido a que se ha perdido el modo de emplear esta Palabra, ello ha invalidado y obstaculizado la eficacia de todos los credos exotéricos actuales; pero esta pérdida ha sido producida deliberadamente, debido a los peligros incidentales al grado inferior de evolución de la jerarquía humana. Cuando el empleo de esta Palabra se restablezca colectivamente, y las congregaciones de hombres puedan entonarla correctamente, en la nota adecuada y con la cadencia o ritmo correctos, entonces el descenso de fuerza de lo alto (la cualidad de esa fuerza depende de la clave y del tono) será tal, que la vivificación del microcosmos afectará al medio ambiente y a la zona circundante. Producirá el estímulo correspondiente en todos los reinos de la naturaleza, porque el reino humano constituye el eslabón entre lo superior y lo inferior, y conjuntamente con el reino dévico proporcionará el lugar de reunión para las fuerzas de la vida.
+
+Estos efectos sobre los distintos centros, se sentirán <pin lang="en">195</pin> definidamente en cualquier plano de los tres mundos. Permítanme ilustrar, pues la claridad es deseable. Quiero advertir, sin embargo, que no se le ha de atribuir importancia alguna al orden especificado aquí. El momento no es propicio para dar una información exacta sobre esta materia.
+
+Supongamos que una congregación de personas desea vincularse con ese canal de fuerza que actúa por medio de la emoción, estimulando así una mayor aspiración y amor. Permanecerán en unido silencio, hasta que, a una palabra del dirigente, cada unidad del grupo llevará deliberadamente su conciencia al centro cardíaco; desde ese centro (manteniendo la conciencia fija en el mismo) emitirá el sonido de la Palabra Sagrada, entonada en la clave a la cual responderá la mayoría del grupo. Esta clave será determinada por el dirigente clarividente del grupo, observando rápidamente las auras reunidas ante él. El sonido creará así el conducto necesario, y el resultado será una inmensa ampliación temporaria de la periferia del centro emocional de los participantes y una intensa vitalización de los centros cardíacos. Por este medio las <pin lang="es">149</pin> personas podrán alcanzar alturas y recibir bendiciones, lo cual no sería posible en forma aislada. Ustedes mismos pueden idear otras condiciones. El empleo de la imaginación en estas cuestiones es de verdadera importancia y desarrolla una conexión entre esa facultad y su contraparte superior, la intuición. Los estudiantes de meditación deben aprender a utilizar más la imaginación.
+
+La entonación unida de ciertos mántrams, los cuales se emplearán con fines específicos. Ejemplos de tales propósitos son:
+
+1. La purificación de una ciudad.
+2. La magnetización de terrenos que se van a emplear como centros de curación.
+3. <pin lang="en">190</pin> La clarificación de las mentes de una congregación a fin de capacitarse para recibir iluminación superior.
+4. La curación de personas reunidas para ese propósito.
+5. El control de las fuerzas de la naturaleza a fin de producir acontecimientos en el plano físico.
+6. La iniciación de individuos en los misterios menores.
+
+En lo antedicho, como se han de imaginar, hay tema para llenar un grueso volumen. Forma parte de esa magia blanca que será restituida a la raza, lográndose por su intermedio una gloria y civilización insinuadas ya en la época Atlante, constituyendo uno de los sueños de los visionarios de la raza.
+
+Los mántram o palabras enunciadas colectivamente, por medio de los cuales se establecerá comunicación con el reino dévico o angélico. Este es un conjunto peculiar de los mántram vinculados con el sector del Mahachohan, del que trataré específicamente más adelante.
+
+## 22 de agosto de 1920.
+
+### El empleo colectivo del ritmo en la meditación.
+
+Se puede describir la palabra ritmo como el movimiento cadencioso que lleva automáticamente, a quienes lo emplean, a alinearse con ciertas fuerzas de la Naturaleza. Es esa acción dirigida, seguida al unísono por un grupo de personas, la cual produce ciertos alineamientos y efectos, sobre uno de los cuerpos o en todos. Por consiguiente, tiene por objeto:
+
+1. Llevar un cuerpo un conjunto de cuerpos al radio de acción de una corriente de fuerza.
+2. Reajustar la materia de uno de los distintos cuerpos o de todos los cuerpos de los miembros de un grupo.
+3. <pin lang="en">197</pin> Fusionar -de acuerdo a cierto equilibrio y diseño geométrico- las auras de las unidades diferenciadas de un grupo, <pin lang="es">150</pin> y hacer que esas auras formen un aura grupal unida, permitiendo así la afluencia rítmica de fuerza en ciertas direcciones específicas y para ciertos fines, también específicos.
+
+Esto ha sido bien comprendido en el transcurso de las épocas, no obstante, los métodos, procedimientos y resultados, no han sido comprendidos científicamente ni clasificados, excepto por varias organizaciones ocultistas y esotéricas. Antiguamente, se conocía muy bien el valor del ritmo en los ritos paganos; hasta David, el salmista de Israel, bailó ante el Señor. El vaivén del cuerpo a cierto compás y el balanceo de la estructura del vehículo físico en varias direcciones, sujeto a veces al sonido musical de instrumentos, tiene un efecto peculiar y definido sobre la materia de los dos vehículos sutiles. Por medio de este movimiento rítmico:
+
+1. La fuerza que se obtiene de esta manera, es dirigida (según el ritmo) a uno de los centros del cuerpo.
+2. La materia de los cuerpos emocional y mental se reajusta y vuelve a fusionarse totalmente, produciendo ciertos efectos que tienen probablemente una manifestación física.
+3. Es afectado el alineamiento de los vehículos, el cual puede ser deformado, alterado o correcto, poniendo a ambos vehículos en contacto con el cuerpo causal.
+
+Este es uno de los principales objetivos del movimiento verdaderamente rítmico, del cual nos han venido deformaciones a través de los siglos, y tiene su apoteosis en el tipo inferior de la danza moderna. En el baile moderno tenemos la manifestación más corrompida del movimiento rítmico; el efecto principal del ritmo es dirigir la fuerza extraída, por su intermedio, al vehículo emocional, y al tipo más inferior de materia de este vehículo. Produce <pin lang="en">198</pin> en el plano físico el más indeseable estímulo de los órganos sexuales. El empleo correcto del movimiento rítmico tiene por efecto alinear los tres vehículos inferiores con el causal, y este alineamiento -cuando va unido a una intensa aspiración y ardiente deseo- da por resultado el descenso de la fuerza desde lo alto. Esto causa la vivificación de los tres centros principales y una definida iluminación.
+
+Cuando todos los componentes de un grupo están animados por un solo deseo elevado, de manera que sus auras se mezclan y forman un canal unido para el descenso de la fuerza, el efecto se intensifica enormemente y puede abarcar un radio mundial. Un ejemplo de esto lo tenemos en el maravilloso festival Wesak que hasta ahora se celebra en la India y en todo el universo, cuando la Jerarquía se constituye en canal para trasmitir poder y bendición, desde los niveles en que se encuentra el Buda. Actúa como punto focal para ese poder y, haciéndolo pasar por Su aura, lo derrama <pin lang="es">151</pin> sobre la humanidad por medio del canal proporcionado por los Señores, los Maestros, iniciados de diversos grados y discípulos allí reunidos. Este canal se forma mediante el empleo simultáneo del sonido y del ritmo. Por la entonación de ciertos mántram, mediante movimientos lentos y acompasados que acompañan ese cántico, se forma el conducto que se extiende hacia arriba, hasta llegar al lugar deseado. Las figuras geométricas formadas con materia del plano superior al físico (figuras que son el resultado del movimiento geométrico de quienes están reunidos en ese centro del Himalaya) se convierten en maravillosas avenidas de acercamiento al centro de bendición, ya sea para los habitantes, devas u otros seres provenientes de cualquier plano. Para quienes pueden ver la escena clarividentemente, la belleza de las formas geométricas es increíble, y esa belleza se destaca más por las auras radiantes de los Grandes Seres que se reúnen allí.
+
+<p>
+<pin lang="en">199</pin> Oportunamente se comprenderá y utilizará el valor de la combinación de la música, los cánticos y el movimiento rítmico, para lograr ciertos resultados. Se formarán grupos para estudiar los efectos creadores o la eficacia purificadora de sonidos ordenados y movimientos unidos y combinados; se investigará clarividentemente el efecto constructivo sobre los tres cuerpos; el efecto eliminatorio sobre la materia de esos cuerpos será científicamente clasificado, y todo el conocimiento así obtenido se aplicará al mejoramiento de dichos cuerpos. Se observará detenidamente la calidad de fuerza extraída y sus efectos excitantes, vivificantes y estimuladores. Los centros se estudiarán en relación con las corrientes de fuerza con las que han hecho contacto, y se emprenderá el cultivo e intensificación del movimiento giratorio.
+</p>
+
+Otro ángulo de esta cuestión se refiere al trabajo realizado en el mundo, el cual, aunque depende de la condición del grupo y de su personal, no es principalmente para propósitos grupales. Los grupos se dedicarán a la tarea de establecer contacto con ciertos tipos de fuerza logoica, haciéndola pasar a través del conducto grupal, enviándola al mundo para ciertos fines constructivos. Este trabajo está íntimamente relacionado con el de los Nirmanakayas o Distribuidores de Fuerza, que en gran parte estará dirigido por ellos, porque cuando llegue el momento oportuno podrán utilizar esos grupos como puntos focales para Sus actividades. El trabajo que Ellos realizan tiene su punto focal principalmente en el plano mental y parcialmente en el emocional. Cuando se comprenda mejor el secreto del alineamiento causal y cuando los grupos de individuos, en encarnación física, puedan trabajar con verdadera colaboración (imposible hoy porque la personalidad todavía se destaca demasiado), los Nirmanakayas podrán establecer contacto directo <pin lang="es">152</pin> con el piano físico y actuar así con mayor fuerza sobre las evoluciones que se encuentran en dicho plano.
+
+<p>
+<pin lang="en">200</pin> Los grupos para curación trabajarán de la manera siguiente: el círculo de trabajadores, con el sujeto que se debe curar colocado en medio de ellos, se dedicará a curarlo empleando los mántram establecidos y, siguiendo ciertos movimientos, hará que el individuo enfermo, que se halla entre ellos, sea el punto focal de la afluencia de fuerza. Por el poder estimulante de esta fuerza, por su cualidad reconstituyente o por su capacidad de destruir y eliminar los llamados milagros, serán ocurrencias comunes y diarias. El tema es demasiado vasto y sólo puedo dar indicaciones. Pero cuando la raza progrese y se comprenda mejor el secreto de alcanzar la unificación, cuando sean muchos los que estén en el Sendero de Probación, cuando la proporción de iniciados sea mayor que ahora y cuando un gran número de seres humanos esté alineado más directamente con el cuerpo egoico, veremos la aplicación científica de las leyes del sonido y del ritmo.
+</p>
+
+Al mismo tiempo, presenciarán también el mal empleo de estos poderes -el mal empleo que anunciará una de las luchas finales entre los Señores de la Luz y los Señores de la Oscuridad. Grande será el cataclismo y terrible el desastre, pero la Luz brillará sobre las tinieblas, y Aquel que reina sobre todo y mantiene todo dentro de la circunferencia de Su aura, conoce la hora de la oportunidad y sabe también cómo utilizar aquello que puede proteger.
+
+### Ocasiones especiales en que se emplearán estas fórmulas.
+
+El gran acontecimiento sobre el planeta, en relación directa con la raza humana, es el festival Wesak. Hay otro acontecimiento más importante en el calendario, es el momento en que se crea un conducto directo entre la tierra y el Regente supremo, el Logos de nuestro sistema. Esto se realiza por el poder de ciertos mántram y los esfuerzos unidos de la Jerarquía y de los Señores Devas de los planos. Los Señores Devas son ayudados por la evolución <pin lang="en">201</pin> dévica, y la Jerarquía por esos miembros de la raza humana que se hallan preparados para hacerlo. Ellos se enfocarán a través de los Señores de los Rayos, entonces en manifestación, así como a través del Logos planetario de este planeta. La fecha de este acontecimiento no se puede comunicar todavía exotéricamente.
+
+En las tres líneas principales de acercamiento -la del Manu o Regente, del Bodhisatva o Instructor del mundo y del Mahachohan o Señor de la Civilización- se encontrarán los grupos específicos correspondientes, sujetos a ciertos mántram y palabras, moviéndose bajo ciertas leyes rítmicas. Sólo puedo darles aquí un indicio, y creo que lo hallarán interesante. Se acerca el momento <pin lang="es">153</pin> en el que, quienes trabajan bajo el Manu, en la manipulación de las naciones, dirigiendo su atención a los gobiernos y a la política, tomando parte en las asambleas de los pueblos, dictando leyes y administrando justicia, iniciarán su trabajo con grandes ceremonias rítmicas. Por medio del ritmo unido y de las palabras entonadas, procurarán ponerse en contacto con la conciencia del Manu y con Su gran sector gobernante, poniendo así más claramente en práctica el desarrollo de Sus planes y la formulación de Sus intenciones. Habiendo alineado de esta manera sus cuerpos y creado el conducto necesario, proseguirán con su trabajo después de situar en medio de ellos, como punto focal de iluminación, a uno o dos hombres, que dedicarán toda su atención a descubrir la intención del Manu y Sus subordinados, respecto a la cuestión que tienen entre manos.
+
+Similarmente, en el sector del Bodhisatva, se seguirá un procedimiento parecido, para lo cual ya está organizada la estructura. El sacerdote será el punto focal, y después de la debida ceremonia y ritmo, por parte de la congregación, ellos serán los transmisores de la información recibida desde lo alto. Pero aquí hay un punto de gran interés: el sacerdocio no constituirá en esos días un grupo <pin lang="en">202</pin> separado. Entonces todos serán sacerdotes y un laico podrá ocupar el cargo cuando sea elegido debidamente, al comenzar la ceremonia. La única condición requerida será la capacidad de alinearse con lo superior y de colaborar con las demás unidades que componen el grupo.
+
+En el sector del Mahachohan, el Señor de la Civilización y Cultura y Guía de la tercera línea de evolución, se repetirá una acción similar. Ninguna universidad o escuela iniciará sus sesiones sin la ceremonia de alineamiento; en este caso el instructor será la línea focal de información proveniente del sector que rige la actividad de la mente. Así se ayudará grandemente a estimular los cuerpos mentales de los estudiantes y se reforzará el canal entre la mente superior y la inferior. También se desarrollará la intuición y se hará contacto con ella. En estas afirmaciones no he abarcado el tema. Sólo he impartido amplios delineamientos de cosas que algún día serán hechos demostrados en el plano físico. Esta idea contiene mucho material para ser considerado e investigado, y es de gran ayuda para el estudiante inteligente. Todo lo que amplíe su horizonte y acreciente el alcance de su visión debe ser bienvenido, aunque la compresión de estos hechos sea deficiente y la capacidad de asimilar deje mucho que desear.

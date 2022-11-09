@@ -1,0 +1,68 @@
+---
+title: Alineamiento del Ego o Alma con la personalidad
+---
+
+# CARTA I
+
+# ALINEAMIENTO DEL EGO O ALMA CON LA PERSONALIDAD
+
+1. Alineamiento de los tres cuerpos inferiores.
+2. Alineamiento con el cuerpo causal.
+3. Método de alineamiento.
+4. Alineamiento macro y microcósmico.
+
+## 16 de mayo de 1920
+
+<p>
+<pin lang="es">15</pin> <pin lang="en">1</pin> En el alineamiento de los tres vehículos o cuerpos físico, emocional y mental inferior, dentro de la periferia causal, y su estabilización allí, mediante un esfuerzo de la voluntad, comienza el verdadero trabajo que el Ego o Yo superior puede realizar en cualquier encarnación. Los grandes pensadores de la raza, los verdaderos exponentes de la mente inferior son, fundamentalmente, aquellos cuyos tres cuerpos inferiores están alineados, es decir, que el cuerpo mental mantiene a los otros dos en un alineamiento circunspecto. El cuerpo mental está entonces en comunicación directa con el cerebro físico, libre de obstrucciones e interferencias.
+</p>
+
+Cuando el alineamiento es cuádruple y los tres cuerpos mencionados se hallan alineados con el cuerpo del Yo superior -el cuerpo causal o egoico- y mantenidos firmemente dentro de su circunferencia, entonces puede verse actuando a los grandes dirigentes de la raza -aquellos que emocional e intelectualmente arrastran tras sí a la humanidad-, los escritores inspirados y soñadores pueden concretar sus inspiraciones y sueños y los pensadores abstractos y sintéticos <pin lang="en">2</pin> trasmitir sus conceptos al mundo de la forma; ello se debe a que se ha establecido un canal directo. Por lo tanto, estudien cuanto puedan, a este respecto, y practiquen la coordinación física, luego agreguen a ésta la estabilidad emocional, y así los dos vehículos funcionarán como uno. Al extender la coordinación al cuerpo mental, el triple hombre inferior alcanza su apoteosis, pasando por la mayor parte de las transformaciones en el mundo de la forma.
+
+Más adelante se obtiene la perfecta coordinación con el Yo superior, canal directo de comunicación -o conducto sin impedimento, si así puedo expresarlo- con la conciencia del cerebro físico. Hasta ahora había sido directo sólo en muy raras ocasiones.<pin lang="es">16</pin> En el hombre cuya personalidad está altamente coordinada, los cuatro centros cerebrales inferiores funcionan con elevada vibración; Cuando el Ego está próximo a alinearse con los cuerpos inferiores, la glándula pineal y el cuerpo pituitario están en proceso de desarrollo, y cuando funcionan en forma correlativa (lo cual ocurre en la tercera iniciación), entonces el tercer centro, o centro alta mayor, intensifica su vibración, hasta entonces moderada. Al recibir la quinta iniciación la interacción entre los tres centros se perfecciona, el alineamiento de los cuerpos se rectifica geométricamente; tenemos así el perfecto quíntuple superhombre.
+
+En el hombre común, este alineamiento se produce únicamente a intervalos -en momentos de tensión, cuando los esfuerzos humanitarios son necesarios y en momentos de intensa aspiración. Antes de que el Ego se aperciba constantemente de la personalidad o yo inferior, debe haber alcanzado la abstracción, en mayor o menor grado. Cuando esa abstracción involucra las emociones, está basada en la mente y hace contacto con el cerebro físico, entonces comienza el alineamiento.
+
+<p>
+<pin lang="en">3</pin> De allí la práctica de la meditación, pues tiende a la abstracción y a despertar las emociones y la mente para adquirir conciencia abstracta.
+</p>
+
+### Alineamiento y vibración.
+
+Recuérdese que todo es cuestión de materia y vibración, en su mayor parte. Los niveles abstractos del plano mental están formados por tres niveles superiores, denominándose al primero, tercer subplano. Como ya he explicado, cada subplano está correlacionado con los planos superiores correspondientes. Por lo tanto, una vez que ha introducido en sus cuerpos -físico, emocional y mental- materia del tercer subplano de cada plano, el Yo superior empieza a actuar en forma más consciente y continua por medio de la personalidad alineada. Quizás pudiéramos invertir la idea y decir que sólo cuando los vehículos contienen cierta proporción (proporción que constituye un secreto de la iniciación) de materia del tercer subplano, la personalidad puede, como un todo consciente, reconocer y obedecer al Yo superior. Obtenida esta proporción, entonces se ha de agregar materia de los dos subplanos superiores a los planos físico y emocional. He aquí la lucha del aspirante para purificar y disciplinar el cuerpo físico y subyugar el emocional. Purificación y subyugación describen el trabajo a realizar en los dos planos. Exige el empleo de la mente inferior para que los tres vehículos inferiores lleguen a alinearse.
+
+:::note Recuerda
+
+Purificación y subyugación describen el trabajo a realizar en los dos planos. Exige el empleo de la mente inferior para que los tres vehículos inferiores lleguen a alinearse.
+
+:::
+
+Entonces podrán empezar a sentirse las vibraciones de los niveles abstractos. Es necesario recordar que esas vibraciones llegan <pin lang="es">17</pin> por conducto del cuerpo causal -el vehículo del Yo superior-, y el cuerpo causal del hombre común se encuentra en el tercer subplano del plano mental. A este detalle no se lo tiene suficientemente en cuenta. Reflexionen sobre ello. El verdadero pensamiento abstracto sólo es posible cuando la personalidad, en <pin lang="en">4</pin> reciproca vibración con el Ego, se ha alineado suficientemente como para formar un canal casi libre de obstrucciones. Luego, a intervalos, raros al principio pero más frecuentes después, comenzarán a infiltrarse ideas abstractas, que irán seguidas, a su debido tiempo, de destellos de verdadera iluminación o intuición, provenientes de la Tríada espiritual, o del verdadero triple Ego.
+
+### El acorde del Ego.
+
+¿Qué quiero significar con el término "vibración recíproca"? Quiero decir la adaptación de la Personalidad o yo inferior al Ego o Yo superior; la preponderancia del rayo del Ego sobre el rayo de la personalidad y la combinación de sus tonos. Significa la mezcla de los colores primarios del Yo superior con los matices secundarios del yo inferior, hasta obtener la belleza. Al principio tenemos disonancia y desarmonía, el choque de los colores y la lucha entre lo superior y lo inferior. Pero a medida que transcurre el tiempo, con la ayuda del Maestro, se logra la armonía del color y tono (pues son sinónimos), hasta que finalmente se obtiene la nota fundamental de la materia, la tercera mayor de la personalidad alineada y la quinta dominante del Ego, seguida por el pleno acorde de la Mónada o Espíritu.
+
+Durante el discipulado buscamos la dominante del Ego; pero antes debe vibrar la tercera perfecta de la personalidad. Durante varias encarnaciones hacemos vibrar los cambios en los tonos intermedios, y a veces nuestras vidas vibran a un tono mayor o menor; pero siempre tienden a adquirir mayor flexibilidad y belleza. A su debido tiempo cada nota se ajusta a su acorde, el del espíritu; cada acorde forma parte de una frase, frase o grupo al cual corresponde el acorde, y la frase completa la séptima parte del todo. Las siete partes completan entonces la sonata de nuestro sistema solar -parte de la triple obra maestra del Logos o Dios, el Maestro Músico.
+
+## 2 de junio de 1920.
+
+### <pin lang="en">5</pin> Alineamiento micro y macrocósmico.
+
+Esta mañana me ocuparé nuevamente de lo referente al alineamiento egoico para demostrar, de acuerdo a la Ley de Correspondencia o Analogía, su aplicación universal. Está basado en la geometría o en cifras y números.
+
+<p>
+<pin lang="es">18</pin> La meta de la evolución del hombre en los tres mundos -los planos físico, emocional y mental- Consiste en alinear su triple personalidad con el cuerpo egoico, hasta llegar a obtener la línea recta y el hombre convertirse en el Uno. Cada vida que vive la personalidad es representada, al término de la misma, por una figura geométrica, utilizando algunas líneas del cubo y su expresión en un tipo de forma. Las formas de las vidas primitivas son intrincadas, burdas y de contornos indefinidos; las formas construidas por el hombre medianamente evolucionado, de la actual generación, son de contornos definidos y precisos. Pero cuando entra en el sendero del discipulado, la meta consiste en fusionar todas las líneas en una sola, lo cual se realiza gradualmente. Maestro es aquel que ha fusionado las líneas del quíntuple desenvolvimiento, primero en tres y después en una. La estrella de seis puntas se trasforma en la estrella de cinco puntas; el cubo se trasforma en el triángulo y el triángulo en el Uno; mientras que el Uno (al fin del gran ciclo) se convierte en el punto dentro del círculo de manifestación.
+</p>
+
+De allí el esfuerzo para enseñar a todos los aspirantes la simplicidad, basada en una trinidad de verdades fundamentales, e inculcar la centralización.
+
+Cada vida tiende a adquirir una mayor estabilidad, pero rara <pin lang="en">6</pin> vez se encuentra la triple personalidad alineada (sí así puedo decirlo) con la conciencia causal. Esto ocurre momentáneamente (en caso de elevada aspiración y para fines altruistas) en que lo superior y lo inferior forman una línea recta. Comúnmente, el cuerpo emocional, debido a la violenta vibración y emoción o a alguna inquietud fluctuante, está constantemente fuera de alineamiento. Cuando el cuerpo emocional está momentáneamente alineado, el mental actúa como una obstrucción, impidiendo que la influencia de lo superior descienda a lo inferior, a fin de llegar al cerebro físico. Son necesarias muchas vidas de paciente esfuerzo antes de poder aquietar el cuerpo emocional y construir un cuerpo mental que actúe como filtro y no como impedimento. Después de haber obtenido esto hasta cierto punto, cuando el cuerpo emocional se ha estabilizado y llega a ser un reflector puro y cuando el cuerpo mental actúa como placa sensible, capaz de discernir y explicar inteligentemente la verdad superior, aún entonces son necesarias gran disciplina y muchas vidas de esfuerzo para poder alinearse ambos al mismo tiempo. Una vez conseguido esto, debe adquirirse el control del cerebro físico y su alineamiento final, a fin de que actúe como receptor directo y transmisor de la enseñanza impartida y que refleje fielmente la conciencia superior.
+
+Por lo tanto ¿Dónde se halla, la correspondencia macrocósmica? ¿Dónde está la analogía en el sistema solar? Daré una indicación.
+
+<p>
+<pin lang="es">19</pin> El alineamiento Logoico divino se produce cuando existe el alineamiento directo y recíproco con ciertos planetas y con el Sol y durante el proceso de evolución del sistema. Reflexionen sobre esto; pero quiero hacer una advertencia. No traten de formular hipótesis sobre el alineamiento, basándolas en los planetas físicos. La verdad no reside allí. Únicamente tres de los planetas físicos (y los tres en materia etérica) entran en el alineamiento final que señala la <pin lang="en">7</pin> adquisición por parte del Logos, de una conciencia logoica cósmica, que constituye Su meta. De esos tres planetas, la Tierra no es uno de ellos, pero Venus ocupa el lugar correspondiente al átomo emocional permanente.
+</p>
+
+El alineamiento puede aún extenderse más allá: en el alineamiento de nuestro sistema solar con el sistema de Sirio subyace una meta aún más remota; es un acontecimiento muy distante, pero encierra el secreto del ciclo mayor.

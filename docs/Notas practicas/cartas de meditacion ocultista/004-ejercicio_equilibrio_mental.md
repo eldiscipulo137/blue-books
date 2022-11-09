@@ -1,0 +1,15 @@
+---
+title: Ejercicio de equilibrio mental
+---
+
+# Ejercicio de equilibrio mental
+
+> [Cartas de meditación ocultista](/cartas-meditacion-ocultista/carta5#peligros-inherentes-a-la-personalidad)
+
+1. Trataremos primero los peligros que se deben a la inhibición. Algunas personas, por la fuerza de su voluntad, llegan a una etapa en la meditación en que directamente inhiben el proceso de la mente inferior. Si se imaginan al cuerpo mental como un ovoide, que rodea al cuerpo físico y se extiende más allá del mismo, y comprenden que por este ovoide circulan constantemente formas mentales de diversos tipos (el contenido de la mente misma del hombre y los pensamientos de cuantos lo rodean), en tal forma que el cuerpo ovoide mental está matizado por las atracciones predominantes y diversificado por innumerables formas geométricas, todas en estado de fluidez y circulación, se darán una idea de lo que quiero significar. Cuando el hombre trata de aquietar este cuerpo mental por la inhibición o supresión de todo movimiento, sujetará estas formas mentales dentro del ovoide mental, paralizará su circulación, con lo cual puede producir efectos de naturaleza muy seria. Esta inhibición tiene un efecto directo sobre el cerebro físico, siendo en gran parte causa de la fatiga de que algunos se quejan  después del período de la meditación. Si se persiste en ello puede llegar a un desastre. Todos los principiantes lo hacen en mayor o menor medida, y hasta que aprendan a precaverse entorpecerán su progreso y retardarán su desenvolvimiento. En realidad, los efectos pueden ser mucho más graves. ¿Cuáles son los métodos correctos para eliminar los pensamientos? ¿ Cómo se puede alcanzar la placidez mental, sin ejercer la voluntad para inhibir? Las siguientes sugerencias pueden ser de alguna utilidad.
+
+ <p>
+  Una vez que el estudiante aparta su conciencia y la lleva al plano mental, fijándola en algún punto dentro del cerebro, entona la Palabra Sagrada suavemente tres veces, imaginando que envía el aliento como una fuerza clarificadora y purificadora, barriendo en su avance las formas mentales que circulan dentro del ovoide mental. Finalmente, ha de imaginar al cuerpo mental limpio y libre de formas mentales.
+ </p>
+
+ En estas condiciones debe procurar elevar su vibración lo más alto posible, tratando de hacerlo desde el cuerpo mental al cuerpo causal, y así permitir que actúe directamente el Ego sobre los tres vehículos inferiores. Mientras pueda mantener lo más elevada posible su conciencia y también la vibración, la del Ego en su propio plano, el cuerpo mental se mantendrá en estado de equilibrio. No retendrá vibraciones inferiores, análogas a las formas mentales que circulan en su medio ambiente. La fuerza del Ego circulará por todo el cuerpo ovoide mental, impidiendo que penetren unidades geométricas extrañas, neutralizando así los peligros de la inhibición. Algo más se logrará en el transcurso del tiempo la materia mental se sintonizará en tal forma con la vibración más elevada, que se estabilizará y, automáticamente, rechazará todo lo que sea inferior o indeseable.

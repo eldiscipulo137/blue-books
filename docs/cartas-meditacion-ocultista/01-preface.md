@@ -1,0 +1,20 @@
+---
+title: Prefacio
+---
+
+# PREFACIO
+
+<p>
+<pin lang="es">7</pin> Las cartas que aparecen en este libro fueron recibidas durante el período comprendido entre el 16 de mayo de 1920 y el 20 de octubre del mismo año, con excepción de tres de ellas que lo fueron en 1919. Con el consentimiento de su autor, las hemos reunido para su publicación.
+</p>
+
+Son publicadas tal como fueron recibidas, con excepción de ciertas partes que son de interés estrictamente personal, otras que se refieren a algunas escuelas ocultistas y aquellas que tienen carácter profético o esotérico, y que no pueden publicarse todavía.
+
+Espero que quienes lean estas cartas realicen dos cosas:
+
+1. Leerlas siempre con mente abierta, recordando que la verdad es un diamante de muchas facetas y que sus diferentes aspectos aparecerán en épocas distintas a medida que Aquellos que guían a la raza vean una necesidad a satisfacer. Se han escrito muchos libros sobre meditación, algunos demasiado abstrusos y otros demasiado superficiales para satisfacer al hombre de cultura media. Su autor ha tratado, aparentemente, de satisfacer la necesidad mediante una breve, a la vez que científica, exposición racional de la meditación, haciendo resaltar la meta y las etapas intermedias.
+2. Juzgarlas por su mérito y no por la autoridad que se le atribuya a quien las escribió. Por esta razón ha decidido mantenerse en el anonimato, pidiendo a quien las recibió que las publicara con Su seudónimo.
+
+Si el tema de estas cartas tiene algún valor, evocará respuesta de los lectores y ayudará a algunos a avanzar hacia la meta. Para muchos servirán de inspiración y ayuda, como ya lo ha sido para unos pocos.
+
+ALICE A. BAILEY Nueva York, 1922

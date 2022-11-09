@@ -1,0 +1,83 @@
+---
+title: El juramento
+---
+
+# EL JURAMENTO
+
+## El Trabajo de la Logia durante la Iniciación.
+
+<p>
+[e120] [i142] Llegamos a la parte más solemne de la ceremonia de la Iniciación. Esta ceremonia desde cierto punto de vista, está clasificada en tres partes.
+</p>
+
+En la primera, el iniciado se ocupa y conoce a su propio y auténtico Yo, la Presencia, y percibe la visión y el plan.
+
+la segunda, el iniciador implicado maneja el Cetro de fuego y obtiene cierto resultado específico en el cuerpo del aspirante.
+
+la tercera, el Hierofante le revela ciertas palabras y fórmulas que el iniciado las lleva en su conciencia, para cumplir mejor la parte del plan que le corresponde.
+
+Durante el proceso, la Logia de Maestros, congregada fuera del Triángulo de fuerza, se ocupa de esta triple tarea, a fin de obtener determinados resultados en la conciencia del iniciado y ayudar al Hierofante en su difícil empresa. Debe recordarse que, de acuerdo a la Ley de Economía, cuando se hace una aplicación o transmisión de fuerza desde un centro de fuerza a otro, tenemos la consiguiente disminución en el centro de abstracción. Ésta es la base del establecimiento de temporadas y estaciones, en conexión con la ceremonia de la Iniciación. El Sol [i143] es la fuente de toda energía y poder, y la tarea del Iniciador es más fácil cuando se aprovechan condiciones solares favorables. Las temporadas y estaciones se establecen por medio de la astrología esotérica, solar y cósmica, basada lógicamente en cifras exactas, en el verdadero concepto matemático y en el conocimiento real de hechos fundamentales, concernientes a los planetas y al sistema solar. Invariablemente se confecciona el horóscopo del iniciado para fijar el momento de una iniciación individual, y sólo cuando los signos individuales se fusionan y coinciden con el horóscopo ceremonial, por el cual se guía el Iniciador, es posible llevar a cabo la ceremonia. Por tal razón, a veces se posterga la iniciación para una vida posterior, aunque el iniciado haya efectuado el trabajo necesario.
+
+<p>
+[e121] La triple tarea de la Logia durante la ceremonia, puede describirse de la manera siguiente:
+</p>
+
+Primero: la entonación de ciertos mántram libera energía de determinado centro planetario. Debe recordarse que todo esquema planetario es un centro en el cuerpo de un Logos solar e incorpora un tipo especial de energía o fuerza. De acuerdo a la energía deseada en determinada iniciación, es transferida al iniciador por medio del Sol, y desde el centro planetario, al iniciado. El procedimiento es el siguiente:
+
+La energía es movilizada desde el centro planetario por el poder del Logos planetario, ayudado por el conocimiento científico de la Logia y la utilización de ciertas palabras de poder.
+
+De allí pasa al Sol, donde se mezcla con la energía solar pura.
+
+Del Sol, la energía es trasmitida a determinada cadena en el esquema de nuestra Tierra, que numéricamente corresponde a determinado y originante esquema planetario. [i144]
+
+De allí es transferida al globo correspondiente y desde éste al planeta físico denso. Por el empleo de un mántram especial, el Iniciador enfoca la energía en Su propio cuerpo, utilizándolo como receptor y transmisor y, finalmente, llega hasta el iniciado vía el Triángulo y los Padrinos. Por lo tanto, resultará evidente para el estudiante, que cuando el iniciador es el Señor del Mundo, reflejo físico del Logos planetario de nuestro esquema, la fuerza llega más directamente al iniciado que en las dos primeras iniciaciones, donde el Bodhisattva es el Hierofante. Hasta la tercera iniciación no estará el iniciado en condiciones de recibir directamente fuerza planetaria.
+
+Segundo: la concentración efectuada por la Logia, ayuda al iniciado a reconocer en sí mismo los diferentes procesos pasados. Esto se logra actuando definidamente sobre su cuerpo mental, estimulando así a todos los átomos mediante el poder mental unido de los Maestros. Así se ayuda directamente a la comprensión. Dicha concentración no se asemeja en modo alguno a la sugestión hipnótica ni a la potente impresión de las mentes fuertes sobre las débiles. Cuando los Maestros e Iniciados se reúnen, tiene el carácter de una enérgica meditación sobre el yo y las realidades implicadas. Por medio de la fuerza así liberada, el iniciado puede [e122] transferir más fácilmente su conciencia, fuera del no-yo, a las esencialidades divinas que le conciernen en forma inmediata. El poder mental de los Maestros logra interceptar la vibración de los tres mundos y permite al aspirante "abandonar tras sí" todo el pasado y obtener la visión del futuro, que ve el fin desde el principio y las cosas del tiempo como si no existieran.
+
+Tercero: por medio de cierta actividad rítmica ceremonial, la [i145] Logia ayuda grandemente en la tarea de la iniciación. Así como el festival Wesak da por resultado una demostración de fuerza debido al empleo de los mántram entonados, a los sagrados pasos del ceremonial y al entrelazamiento de la multitud congregada formando figuras geométricas, así en la ceremonia de la iniciación se emplea un procedimiento análogo. Las figuras geométricas apropiadas para las diversas iniciaciones difieren, y en ello subyace una de las protecciones de la ceremonia. El iniciado sólo conoce la figura prefijada para su propia iniciación.
+
+Los Maestros y los Iniciados reunidos en la Logia se ocupan de los tres aspectos del trabajo, hasta el momento en que es aplicado el Cetro. Entonces el iniciado se convierte en un miembro de la Logia, luego cambia todo el ceremonial antes del juramento y previamente a la revelación de la Palabra y el Secreto.
+
+Los padrinos se apartan del iniciado y ocupan Su lugar en las filas, mientras los tres Budas de Actividad (o Sus representantes en las dos primeras iniciaciones) ocupan su lugar detrás del trono del Hierofante. Los miembros de la Logia se agrupan en forma distinta y los iniciados del mismo grado del recientemente admitido aspirante, lo rodean y, ayudan en la parte final de la ceremonia. Los demás iniciados y adeptos están presentes, cada uno en sus distintas graduaciones.
+
+Las tres primeras etapas de la ceremonia de la iniciación son iguales en todas las iniciaciones. En las dos etapas finales, quienes no poseen el mismo grado del recién iniciado (tal como los iniciados de primer grado en la iniciación de un miembro de tercer grado) se retiran al fondo del Aula de la Iniciación, en Shamballa, y mediante la energía mántrica de los dos grupos, se levanta un "muro de silencio"; puede decirse que se forma un vacío, y nada puede ser trasmitido entre el [i146] grupo interno y el externo. El grupo externo se entrega a una profunda meditación y entona ciertas fórmulas; el grupo interno, que rodea al Hierofante, efectúa una doble ceremonia:
+
+- El recién iniciado presta juramento.
+- Se le comunican determinadas palabras y secretos. [e123]
+
+## Dos tipos de juramento.
+
+Los juramentos relacionados con la Jerarquía oculta pueden clasificarse en dos grupos:
+
+El **Juramento de la Iniciación**, mediante el cual el iniciado se compromete, en el más solemne juramento, a no revelar jamás, bajo pena de rápido castigo, ningún secreto oculto ni a expresar en palabras, fuera del Aula de la Iniciación, lo que se le ha confiado a su custodia.
+
+El **Juramento del Cargo**. Se presta cuando algún miembro de la Logia toma posesión de un cargo específico en el trabajo jerárquico. Este juramento se refiere a sus funciones y relaciones con
+
+1. el Señor del Mundo,
+2. su superior inmediato,
+3. sus colaboradores en la Logia,
+4. el mundo de los hombres al que deberá servir.
+
+No es necesario agregar más respecto a este último juramento, pues concierne tan sólo a quienes ocupan cargos oficiales en la Jerarquía.
+
+## El Juramento de la Iniciación.
+
+El Juramento de la Iniciación, al cual nos referimos, se divide en tres secciones, y el Hierofante lo recibe del iniciado, y éste lo repite [i147] frase por frase después del Iniciador; acentúan distintos puntos mediante la entonación de los iniciados del mismo grado, con palabras en senzar, equivalente a "así sea".
+
+Las tres divisiones del juramento pueden describirse, en términos generales, de la siguiente forma:
+
+Una frase solemne que personifica el propósito que mueve al iniciado; una afirmación de su invariable actitud voluntaria; la solemne declaración de su comprensión, juntamente con la promesa de no revelar parte alguna del propósito conocido, excepto en lo que revelen su vida diaria en el mundo de los hombres y su servicio. Esto involucra el juramento de guardar secreto respecto a la parte revelada del plan logoico, visto en "la revelación de la visión".
+
+El compromiso de carácter profundamente solemne, que concierne a su relación con los demás yoes, con la Logia [e124] de la cual es miembro y con los yoes de los hombres de todas partes. Esto involucra cierta actitud hacia sus hermanos de todos los grados, e incluye también el serio compromiso de no revelar nunca la verdadera naturaleza del aspecto del yo, como se le ha demostrado en la iniciación. Esto incluye el juramento de guardar secreto respecto a la relación establecida entre el Logos solar y el Logos planetario, y el Logos planetario de nuestro esquema y el esquema mismo.
+
+La enunciación de la solemne promesa de no revelar nunca a nadie el conocimiento recibido sobre las fuentes de fuerza y energía con las cuales ha entrado en contacto. Este triple juramento consiste en guardar absoluto silencio sobre la verdadera naturaleza de la energía, sus leyes de manipulación y la promesa de emplear sólo la fuerza puesta a su disposición, mediante la iniciación para servir a la raza, y así acrecentar los planes del Logos planetario.
+
+<p>
+[i148] Este gran juramento permanece velado bajo diferentes términos, según la iniciación recibida, y, como ya se ha dicho, se recibe en tres partes, con un intervalo entre cada una de ellas, destinado a ciertas ceremonias realizadas por el grupo de iniciados que rodean al hermano recientemente admitido.
+</p>
+
+Debe observarse que cada parte del juramento concierne a cada uno de los tres aspectos de la manifestación divina; cuando el iniciado presta juramento, uno de los tres Guías departamentales colabora con el Iniciador en el trabajo de recepción. Así se llega a disponer de esa energía de triple naturaleza, según las diferentes partes del juramento prestado. Esta energía desciende al iniciado desde los tres rayos mayores, a través del Hierofante y de los correspondientes Guías departamentales, en las dos primeras iniciaciones, por intermedio del grupo de iniciados del mismo grado, de modo que cada iniciación es un estímulo y expansión para todos. En las cinco iniciaciones finales la fuerza fluye a través de los tres Budas de Actividad, en lugar de hacerlo por medio de los Guías departamentales.
+
+Sería útil señalar que durante esta parte de la ceremonia, el grupo está bañado por el color que corresponde al tipo de energía y al esquema planetario de donde originó, y el trabajo del Iniciador consiste en poner al iniciado en contacto con esta energía, la cual desciende sobre el grupo, desde el instante en que se ha efectuado la segregación; esto lo hace el Iniciador utilizando ciertas palabras y elevando Su Cetro de Poder. Los tres Budas de Actividad, que en los grandes centros de energía de nuestro planeta [e125] tocan el extremo del Cetro con sus báculos oficiales, pronuncian al unísono cierta palabra mística, comenzando entonces el descenso que prosigue hasta el fin de la ceremonia.
+
+Quizás se pregunten si algunos iniciados no cumplen su juramento. Esto sucede muy rara vez, pues debe recordarse que no [i149] se recibe ninguna iniciación hasta no haber llegado a cierta etapa. Han ocurrido pocos casos, pero como el Señor del Mundo sabe todo lo que sucede en el futuro, en el presente y en el pasado, el iniciado no tiene la oportunidad de revelar lo oculto. Puede existir la intención, pero no tendrá la oportunidad. El iniciado que así peca por intentarlo, se verá privado del uso de la palabra y hasta de la vida, antes de fracasar.
