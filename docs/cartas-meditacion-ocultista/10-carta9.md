@@ -254,3 +254,34 @@ Esto basta por hoy; mañana trataré la última parte de este tercer punto, los 
 
 ## 17 de octubre de 1920.
 
+### El edificio de la escuela de ocultismo
+
+Hoy trataremos los dos tipos de edificios para las escuelas de ocultismo; poco puede decirse sobre ello y sólo darse un delineamiento general, porque las condiciones del clima y la amplitud deseada de las escuelas variarán grandemente, como también el consiguiente planeamiento.
+
+Los edificios de las escuelas preparatorias no serán muy <pin lang="en">322</pin> diferentes de los institutos comunes del mundo exotérico. Se impondrá una sola condición: que los estudiantes residan dentro de los limites de la escuela, y cada uno ocupe una habitación. El tipo de edificio no importa, con tal que se cumplan tales condiciones. Las habitaciones no se comunicarán entre sí, sino por un corredor central. Cada una constará de tres compartimentos pequeños, aunque con sus propias características: Un compartimento servirá de morada y estudio, otro será el baño y el tercero se utilizará exclusivamente para la meditación, donde tendrá las imágenes de los Grandes Seres cubiertos con una cortina y una alfombra o un asiento, una cama turca, donde descansará el vehículo físico durante ciertos ejercicios, y un pequeño taburete frente a los retratos de los Maestros, sobre el cual habrá un sahumador y un vaso para ofrendas florales.
+
+Los instructores residentes vivirán con los estudiantes; las mujeres se harán cargo de los estudiantes femeninos y los hombres de los masculinos. El Rector de la escuela vivirá solo, en casa aparte, la cual tendrá, además de sus habitaciones particulares, una sala de recibo de pequeñas dimensiones para la recepción individual y otra más grande para reuniones generales, más un santuario donde se reunirá todo el grupo de estudiantes.
+
+Los edificios para las escuelas avanzadas, aunque no nos conciernen mucho todavía, tendrán en su construcción muchas cosas de significado oculto para quienes tengan ojos para ver. La característica principal de la escuela de ocultismo avanzada, será el templo central en forma circular, el que contendrá un santuario privado para cada estudiante (que, como recordarán, serán pocos), al cual se entrará por la parte posterior, cerrada por una puerta y una cortina, y se comunicará con el santuario central, donde se celebrarán las reuniones grupales.
+
+<p>
+<pin lang="en">323</pin> En el piso de este amplio santuario central se trazará un triángulo, dentro del Cual se sentará el grupo; en los tres espacios fuera <pin lang="es">235</pin> del triángulo habrá mesas que contendrán varios símbolos y algunos libros fundamentales sobre simbolismo, así como grandes pergaminos, en los que se dibujarán símbolos cósmicos.
+</p>
+
+El color de este santuario dependerá del rayo que representa. Las cortinas de separación tendrán también el color del rayo y la cortina de cada santuario individual llevará el signo natal del estudiante -su signo, su signo ascendente y los planetas regentes. <pin lang="en">324</pin> Estas cortinas serán propiedad del discípulo, lo mismo que el asiento o alfombra, los cuales tendrán el símbolo de su rayo egoico y el de su personalidad.
+
+![](../assets/santuary-advanced-schools.gif)
+
+En la pared del gran corredor central estarán trazados los signos del zodíaco.
+
+Las cuatro entradas representarán los cuatro Maharajáes.
+
+Una pared cuadrada circundará todo, incluyendo un jardín, que será cuidado por los estudiantes. Sólo tendrá una entrada sobre la parte norte. Fuera de ella habrá pequeños edificios que no albergarán más que a tres estudiantes, y una casa donde residirán los tres instructores. El Rector iniciado tendrá también su residencia <pin lang="es">236</pin> particular, que se caracterizará por una torre abovedada, situada en un costado. Esta torre servirá a dos objetivos: será el lugar de instrucción astronómica y astrológica, conteniendo los más modernos aparatos científicos para el estudio de los planetas y de la vida microcósmica. Servirá también como seguro albergue para esos estudiantes que puedan dejar conscientemente sus cuerpos físicos y actuar en otra parte del plano físico.
+
+Esto es todo lo que puedo adelantar. Tomen nota, vigilen y esperen el momento en que se materializará el ideal.
+
+## 29 de octubre de 1920.
+
+Trataremos ahora el cuarto punto, y al dilucidarlo diré algo respecto a la escuela de ocultismo preparatoria, pero muy poco sobre la avanzada. Este cuarto punto se refiere a los grados y clases.
+
+### Los grados y clases.
