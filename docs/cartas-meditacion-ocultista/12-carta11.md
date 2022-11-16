@@ -1,0 +1,67 @@
+---
+title: La resultante vida de servicio
+---
+
+# CARTA XI
+
+# LA RESULTANTE VIDA DE SERVICIO
+
+1. Móviles para el servicio.
+2. Métodos de servicio.
+3. Actitudes que siguen al servicio.
+
+## 16 de septiembre de 1920.
+
+<p>
+<pin lang="es">248</pin> <pin lang="en">343</pin> Al cerrar esta serie de cartas, deseo trasmitirles algo de aplicación general, pues quiero hablarles acerca del servicio y de su perfecta prestación. Lo que voy a decir a este respecto será de aplicación vital. Tengan siempre presente que la adquisición material del conocimiento para beneficio propio, produce estancamiento, obstrucción, indigestión y dolor, si no se trasmite a otros con inteligente discriminación. El alimento absorbido por el cuerpo humano si no es asimilado y distribuido por el sistema, causa las mismas condiciones mencionadas. La analogía es exacta. Muchas personas reciben hoy enseñanza para beneficio del mundo necesitado y no exclusivamente para su propio provecho.
+</p>
+
+Tres cosas son importantes en la prestación del servicio:
+
+1. El móvil.
+2. El método.
+3. La actitud que sigue a la acción.
+
+No voy a tratar aquí los móviles y métodos erróneos. Ya los conocen. Sólo indicaré los correctos, y mediante la adaptación de la vida de servicio a las indicaciones que doy, llegarán a la corrección e inspiración. En esta época se abre para algunos de ustedes una vida de mucho servicio; procuren comenzarla debidamente. Un adecuado comienzo puede redundar en una continua corrección y ayudar grandemente en el esfuerzo. Cuando ocurre un fracaso, todo lo que se necesita es un reajuste. Cuando el fracaso se debe a un comienzo incorrecto (fracaso inevitable), es necesario renovar el resorte interno que impulsa a la acción.
+
+### <pin lang="es">249</pin> <pin lang="en">344</pin> 1. Móviles para el servicio.
+
+Son tres, de acuerdo al orden de importancia:
+
+1. La comprensión del plan de Dios para la evolución, la apreciación de la tremenda necesidad del mundo; la percepción del punto inmediato de realización que debe lograr el mundo, y la consiguiente concentración de todos nuestros recursos para realizarla.
+2. Una meta personal determinada; algún gran ideal -como la santidad- que exige los mejores esfuerzos del alma, o la convicción de que existen los Maestros de Sabiduría; la firme determinación interna de amarlos, servirlos y llegar a Ellos a cualquier precio. Cuando se tiene una comprensión intelectual del plan de Dios, unido a un fuerte anhelo de servir a los Grandes Seres, se desarrollará en las actividades del plano físico.
+3. La comprensión de nuestras capacidades innatas o adquiridas, y su adaptación a las necesidades percibidas. El servicio es de muchas clases, y el que lo presta inteligentemente y trata de hallar su esfera particular y, al encontrarla, dedica gozosamente todos sus esfuerzos en beneficio de la totalidad, es el hombre cuyo desenvolvimiento prosigue constantemente; no obstante, su progreso personal queda como objetivo secundario.
+
+### 2. Métodos de servicio.
+
+Son muchos y diversos. Solo puedo indicar los de primordial importancia.
+
+Lo primero y más importante, como frecuentemente he repetido, es la facultad de la discriminación. Quien cree que lo puede intentar todo, que no se detiene ante nada, que se precipita ciegamente donde los más inteligentes se abstienen de hacerlo, que <pin lang="en">345</pin> tiene aptitudes para cuanto se ofrezca, que pone celo pero no cerebro para solucionar este problema del servicio, no hace más que disipar fuerza; a menudo su acción es destructiva; malgasta el tiempo de los más avanzados e inteligentes, en corregir sus bien intencionados errores y no sirve a otra finalidad que satisfacer sus propios deseos. Podrá obtener la recompensa de sus buenas intenciones, pero ésta es frecuentemente anulada por las consecuencias de sus imprudentes acciones. Sirve con discriminación quien descubre su propio nicho, grande o pequeño, en el esquema general; quien calcula sobriamente su capacidad mental e intelectual, su condición emocional y sus dotes físicas y luego con todas sus cualidades se dedica a ocupar su nicho.
+
+<p>
+<pin lang="es">250</pin> Sirve con discriminación quien juzga con la ayuda de su Yo superior y del Maestro, de qué naturaleza es el problema a resolver y su magnitud, y no se deja guiar por las indicaciones, requerimientos y exigencias, bien intencionados, pero a menudo irreflexivos, de sus compañeros servidores.
+</p>
+
+Sirve con discriminación quien sabe poner el factor tiempo en actividad y, comprendiendo que el día no tiene más que veinticuatro horas y que su capacidad no le permite más que emplear únicamente la cantidad justa de fuerza, adjudica inteligentemente a cada uno su capacidad y el tiempo disponible.
+
+A esto sigue un inteligente control del vehículo físico. Un buen servidor no es motivo de ansiedad para el Maestro por causas físicas, y puede confiarse en que cuidará y distribuirá su fuerza física de tal manera que siempre estará en condiciones de cumplir los requisitos del Maestro. Nunca falla debido a la incapacidad física. Procura que su vehículo inferior obtenga suficiente descanso y sueño adecuado. Se levanta temprano y se retira a una hora conveniente. Descansa cuando es posible; toma alimento adecuado y sano y evita comer con exceso. Un poco de alimento bien escogido y bien masticado, es mucho mejor que una comida <pin lang="en">346</pin> abundante. Hoy la raza humana come por lo general cuatro veces más de lo necesario. Deja de trabajar cuando (por causa de accidente o incapacidad física heredada) su cuerpo se resiste a la acción y reclama cuidado. Entonces busca el descanso, el sueño, toma precauciones respecto al régimen alimenticio, se somete a la atención del médico y obedece sus instrucciones, empleando el tiempo necesario para el restablecimiento.
+
+El siguiente paso es constante cuidado y control del cuerpo emocional. Como es bien sabido, éste es el vehículo más difícil de manejar. No se deben permitir los excesos emotivos, pero sí que el cuerpo emocional sea atravesado por fuertes corrientes de amor dirigidas hacia todo cuanto alienta. Por ser el amor la ley del sistema, es constructivo y estabilizador y hace que todo progrese de acuerdo con la ley. Ningún temor, ansiedad o preocupación debe agitar el cuerpo emocional del aspirante a servidor. Tiene que cultivar la serenidad, la estabilidad y el sentimiento de que puede confiar y depender de la Ley de Dios. Su actitud habitual debe tener por característica la confianza gozosa. No siente envidia ni depresión ensombrecedora, codicia ni auto conmiseración sino que, convencido de que todos los hombres somos hermanos y que todo cuanto existe es para todos, sigue su camino imperturbable.
+
+Viene luego el desenvolvimiento del vehículo mental. Al controlar el cuerpo emocional, el servidor asume la actitud de <pin lang="es">251</pin> eliminación. Su objetivo es entrenar el cuerpo emocional para que se trasforme en incoloro; establecer una vibración estable, que sea clara, blanca y límpida como un lago en un apacible día estival. Al preparar el cuerno mental para el servicio, los esfuerzos del aspirante van en sentido opuesto al de la eliminación. Procura acumular información, proporcionarle conocimientos y hechos, entrenarlo intelectual y científicamente, para que pueda probar con el tiempo que tiene una base sólida para la sabiduría divina. La sabiduría debe reemplazar al conocimiento. Sin embargo, se requiere conocimiento, como paso preliminar. Deben recordar que <pin lang="en">347</pin> el servidor pasa por el Aula del Aprendizaje antes de ingresar al Aula de la Sabiduría. Al entrenar el cuerpo mental el aspirante trata, por lo tanto, de adquirir el conocimiento en forma ordenada, acumular lo que le hace falta, captar progresivamente las facultades mentales innatas acumuladas en vidas anteriores y, finalmente, estabilizar la mente inferior, así la superior podrá controlar y la facultad creadora del pensamiento proyectarse a través de la quietud. Del Silencio del Absoluto fue proyectado el Universo. De la oscuridad surgió la luz. De lo subjetivo emané lo objetivo. La quietud negativa del cuerpo emocional lo hace receptivo a las impresiones superiores. La quietud positiva del cuerpo mental lo conduce a la inspiración superior.
+
+Habiendo tratado de controlar y utilizar inteligentemente a la personalidad, en sus tres aspectos, quien ama a la humanidad busca la perfección en la acción. No embargan su atención los magníficos sueños de martirio y de gloria ni las efímeras quimeras espectaculares del servicio, sino que se preocupa de aplicar instantáneamente todos sus poderes al deber inmediato, objetivo de sus esfuerzos. Sabe que la perfección del plano inmediato de su vida y de los detalles del trabajo ambiental proporcionará precisión al plano mediato, dando por resultado un cuadro de rara belleza. La vida progresa a pasos cortos, cada uno dado en el momento oportuno, y cada momento inteligentemente utilizado lleva muy lejos y a una vida bien empleada. Quienes guían a la familia humana someten a prueba, en los pequeños detalles de la vida cotidiana, a aquellos que solicitan servir, y quien demuestra actividad fiel para desempeñar las cosas aparentemente no esenciales, será transferido a una esfera de mayor importancia. Cómo pueden Ellos, en caso de emergencia o crisis, confiar en quien realiza un trabajo desprolijo y despreocupado, en los asuntos de la vida diaria.
+
+Otro método de servicio es la adaptabilidad. Esto implica la <pin lang="en">348</pin> disposición para retirarse cuando alguien más capaz es enviado a llenar el lugar que él ocupa o (a la inversa) la capacidad de pasar de un trabajo sin importancia a otro de mayor importancia, <pin lang="es">252</pin> cuando otro menos competente puede hacer con igual facilidad y buen criterio el trabajo que él estaba realizando. Demuestran sabiduría los servidores que no se valoran ni demasiado alto ni demasiado bajo. El trabajo es deficiente cuando una persona incapaz ocupa un puesto; pero también constituye una pérdida de tiempo y de poder cuando trabajadores hábiles ocupan posiciones donde su capacidad no puede ser empleada plenamente y los menos dotados podrían desempeñarse bien. Por lo tanto, quienes sirven deben estar dispuestos a permanecer toda la vida desempeñando un puesto, no espectacular ni aparentemente importante, pues quizás sea su destino, y donde puedan servir mejor; pero también deben estar dispuestos a pasar a un trabajo aparentemente más valioso cuando lo pide el Maestro y las circunstancias -y no los proyectos del servidor- indiquen que ha llegado ese momento. Mediten sobre esta última frase.
+
+### 3. Actitud después de la acción.
+
+¿Cuál debe ser esta actitud? Total desapasionamiento, completo olvido de sí mismo y absoluta dedicación al siguiente paso a dar. Servidor perfecto es quien hace todo cuanto es capaz para cumplir con lo que cree que es la voluntad del Maestro y el trabajo que debe realizar en colaboración con el plan de Dios. Luego, habiendo hecho su parte, prosigue su trabajo sin preocuparse del resultado de su acción. Sabe que ojos más sabios que los suyos ven el fin desde el principio; que una percepción interna más profunda y amorosa que la suya, valoriza los frutos de su servicio y que un juicio más profundo que el suyo comprueba la fuerza y la magnitud de la vibración establecida, ajustando la fuerza de acuerdo al móvil. No se envanece por lo que ha hecho, <pin lang="en">349</pin> ni se siente indebidamente deprimido por lo que no ha realizado. Hace en todo momento lo mejor que puede y no pierde tiempo en contemplación retrospectiva, sino que sigue adelante persistentemente, hacia el desempeño del siguiente deber. Cavilar sobre las acciones pasadas y pensar retrospectivamente sobre las antiguas realizaciones, es contrario a la evolución, pues el servidor procura trabajar con la ley de evolución. Esto es algo importante que se debe tener en cuenta. El servidor inteligente, después de la acción, no se preocupa de lo que dicen sus compañeros servidores, con tal que sus superiores (sean individuos encarnados, o los Grandes Seres mismos) estén satisfechos o guarden silencio; despreocupándose por el resultado inesperada si lealmente hizo lo mejor que sabía; tampoco le interesa el reproche ni la desaprobación mientras su yo interno permanece sereno y su conciencia no lo acusa; no se preocupa si pierde amigos, parientes, hijos, la popularidad de que antes disfrutaba o la aprobación de los <pin lang="es">253</pin> colaboradores que lo rodean, con tal de no perder el sentido interno de contacto con Quienes guían y dirigen; no se queja si aparentemente trabaja en tinieblas y si es consciente del poco resultado de su trabajo, con tal que la luz interna se intensifique y su conciencia no tenga nada que reprocharle.
+
+Resumiendo:
+
+El móvil se puede condensar en pocas palabras: El sacrificio del yo personal por el bien del Yo Uno.
+
+El método también se puede concretar: Inteligente control de la personalidad y discriminación respecto al trabajo y al tiempo.
+
+La actitud resultante será: Total desapasionamiento y un creciente amor por lo invisible y lo real. Todo se alcanzará practicando persistentemente la meditación ocultista.
