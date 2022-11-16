@@ -285,3 +285,104 @@ Esto es todo lo que puedo adelantar. Tomen nota, vigilen y esperen el momento en
 Trataremos ahora el cuarto punto, y al dilucidarlo diré algo respecto a la escuela de ocultismo preparatoria, pero muy poco sobre la avanzada. Este cuarto punto se refiere a los grados y clases.
 
 ### Los grados y clases.
+
+Anteriormente me referí al programa de las escuelas preparatorias y vimos que se relaciona, en gran parte, con el desarrollo de <pin lang="en">325</pin> la mente inferior, con la construcción de los cimientos sobre los cuales se edificará el trabajo posterior y con la formulación, el estudio y la memorización de las teorías y leyes ocultas, las cuales servirán de base al verdadero ocultista para su trabajo práctico. Además hemos visto que gran parte de lo que se enseñó se halla necesariamente vinculado con la enseñanza exotérica del mundo, y es imprescindible que la escuela esté en estrecho contacto con los centros del pensamiento moderno. Ahora procuraré demostrar ciertas cosas que aparecerán en el plan de trabajo del estudiante y describiré el método por el cual será gradualmente conducido hasta ser apto para ingresar en una escuela más avanzada. Como de costumbre, dividiremos el tema en tres secciones:
+
+1. Temporada de estudio.
+2. Tipo de trabajo.
+3. Transformación de las facultades potenciales en poderes activos, mediante la práctica.
+
+#### a. Temporada de estudio.
+
+Todo el trabajo de la escuela estará basado en el conocimiento oculto del tiempo y las estaciones y se ajustará estrictamente a dos cosas: 1. El año escolar será dividido en dos períodos; en el primer período los estudiantes se dedicarán activamente a adquirir conocimientos, correspondiendo a la época en que el sol se desplaza hacia el norte, o sea el primer semestre del año; en el segundo (separado del primero por un intervalo de seis semanas) se <pin lang="es">237</pin> dedicarán a asimilar y a poner en práctica lo aprendido en el anterior. Durante los primeros meses del año el estudiante pasará por un sistema drástico de recepción, aprendizaje, intenso estudio, acumulación de hechos y conocimientos concretos. Asistirá a conferencias, consultará muchos libros, experimentará en el <pin lang="en">326</pin> laboratorio y, con ayuda del telescopio y del microscopio, ampliará el campo de su visión y acumulará en su cuerpo mental un vasto depósito de datos científicos.
+
+Durante las seis semanas de vacaciones se le recomendará al estudiante que descanse completamente de todo esfuerzo mental, salvo el relacionado con la práctica de la meditación ocultista que le fue asignada. Mentalmente seguirá el ciclo y entrará en un pralaya temporario. Al final de las seis semanas volverá a su trabajo a fin de sistematizar el cúmulo de informaciones, completar la comprensión de los hechos anteriormente estudiados, practicar esa parte permitida de la ciencia oculta, con la finalidad de llegar a ser más eficiente y descubrir sus puntos débiles. Durante el "período de oscuridad" del año, escribirá los temas y ensayos, los libros y artículos que contendrán el producto de las informaciones asimiladas- La escuela publicará anualmente el mejor de estos libros para uso del público. De esta manera el estudiante servirá a su época y generación y trasmitirá a la raza el conocimiento superior. 2. En forma análoga sus estudios mensuales estarán dispuestos de modo que la parte más difícil (que se ocupa de la mente superior) se emprenderá durante ese período del mes que se denomina luminoso, mientras que el período oscuro será dedicado a las cosas relacionadas con la mente inferior y a un esfuerzo por retener lo adquirido durante las semanas precedentes. El día también se dividirá en períodos establecidos; las primeras horas se dedicarán a los estudios más abstractos y ocultos, la segunda parte del día a trabajo práctico.
+
+La base de todo crecimiento oculto es la meditación, o los periodos de gestación silenciosa, durante los cuales el alma se expande en el silencio. En consecuencia, para cada estudiante habrá tres períodos de meditación durante el día, a la salida del sol, al mediodía y a la puesta del sol. Durante la primera parte de <pin lang="en">327</pin> asistencia a la escuela, estos períodos durarán treinta minutos cada uno. Más adelante dedicará una hora a la práctica de la meditación ocultista, tres veces al día; durante el último año se espera que dedique cinco horas cada día a la meditación. Cuando sea capaz de hacer esto y obtener resultados, podrá ingresar en la escuela avanzada. Es la gran prueba y la marca de quien está preparado.
+
+:::note Recuerda
+
+Más adelante dedicará una hora a la práctica de la meditación ocultista, tres veces al día; durante el último año se espera que dedique cinco horas cada día a la meditación. Cuando sea capaz de hacer esto y obtener resultados, podrá ingresar en la escuela avanzada. Es la gran prueba y la marca de quien está preparado.
+
+:::
+
+El horario de la escuela comenzará a la salida del sol y <pin lang="es">238</pin> terminará a la puesta del sol. Luego de esto y una hora después de los otros dos períodos de meditación, se le permitirá descansar, comer y distraerse. Deberá retirarse a descansar a las diez de la noche, después de recapitular cuidadosamente durante media hora sobre el trabajo diario y de llenar ciertas planillas para completar su ficha.
+
+El tiempo de estadía del estudiante en la escuela dependerá de su progreso, de su poder interno de asimilación y de su vida externa de servicio y también de su etapa de evolución al ingresar en la escuela. Los que recién entran en el sendero de probación, permanecerán en ella de cinco a siete años y en algunas ocasiones quizás más; los antiguos discípulos y los que han recibido la iniciación en vidas anteriores, permanecerán poco tiempo, completarán el programa con rapidez, simplemente para aprender a extraer y aplicar el conocimiento anteriormente adquirido. Su período de permanencia será de uno a cinco años, generalmente tres. Su conocimiento innato será desarrollado por medio del estimulo para que enseñe a los hermanos más jóvenes. El estudiante egresa de la escuela, no como resultado de su examen exotérico sino simplemente por la notificación del Rector de la escuela, el cual funda su decisión en el examen esotérico de sus cuerpos, por la claridad de los colores de su aura, por el tono que emite su vida y por la clave de su vibración.
+
+#### <pin lang="en">328</pin> b. Tipos de trabajo.
+
+Primero, y principalmente, se debe practicar la meditación según se explica en estas cartas, y como lo asigne el Rector de la escuela. Una o dos veces al año el Rector iniciado de la escuela, a la que está vinculada la escuela preparatoria, examinará a los estudiantes y, previa consulta con el Rector, asignará una meditación específica ajustada a las necesidades de cada estudiante. Una vez al año, el Maestro responsable de ambas escuelas también los examinará y comunicará al Rector los ajustes que deben hacerse. (Les recordaré que la relación de Maestro a discípulo es de carácter privado, y aunque Él esté en continuo contacto con sus discípulos en forma privada, de ninguna manera afecta su análisis autorizado del conjunto de auras del grupo de la escuela.)
+
+Segundo, se hará un estudio graduado y científico del microcosmos, que comprenderá las siguiente materias, utilizándose el microscopio cuando sea necesario.
+
+##### El Microcosmos:
+
+1. Anatomía, fisiología y biología elementales.
+2. <pin lang="es">239</pin> Etnología.
+3. Estudio del cuerpo etérico y los temas relacionados: la vitalidad y el magnetismo.
+4. Estudio de la geología, del reino vegetal o botánica, y del reino animal.
+5. Estudio de la historia del hombre y el desarrollo de la ciencia.
+6. Estudio de las leyes del cuerpo microcósmico.
+
+##### El Macrocosmos:
+
+1. Estudio de las leyes de la electricidad, del Fohat, del prana y de la luz astral.
+2. <pin lang="en">329</pin> Estudio de astronomía y astrología.
+3. Estudio de la cosmogonía oculta.
+4. Estudio de la jerarquía humana.
+5. Estudio de la evolución dévica.
+6. Estudio de las leyes del sistema solar.
+7. Estudio de la telepatía, de la creación mental y de la psicometría.
+
+##### La Mente:
+
+1. Estudio del plano mental.
+2. Estudio de las leyes del fuego.
+3. Estudio del cuerpo causal.
+4. Estudio del quinto principio.
+5. Estudio del color y del sonido
+   
+##### Síntesis:
+
+1. Estudio del espíritu-materia-mente.
+2. Estudio de los números y de la simbología.
+3. Estudio de las matemáticas superiores.
+4. Estudio de las leyes de la unión.
+5. Estudio de las leyes del sexo.
+
+##### Desarrollo psíquico:
+
+1. Estudio del ocultismo práctico.
+2. Estudio del siquismo.
+3. Estudio de la luz astral y de los registros akásicos
+4. Estudio de la mediumnidad y de la inspiración.
+5. Estudio de las vidas pasadas.
+6. Estudio de los centros macro y microcósmicos.
+
+##### Trabajos prácticos:
+
+1. Servicio prestado a la raza.
+2. Estudio del trabajo grupal.
+3. Trabajo de recapitulación.
+4. <pin lang="es">240</pin> <pin lang="en">330</pin> Trabajo sobre los cuerpos sutiles, a fin de producir continuidad de conciencia.
+5. Estudio de la magia.
+6. Estudio del séptimo rayo.
+
+Como podrán ver, cuando el estudiante ha completado el programa mencionado será un mago en potencia y un miembro en embrión de la Fraternidad de la Luz. Estará equipado y preparado para ingresar en la escuela avanzada, donde se le enseñará a utilizar el conocimiento adquirido; se desarrollarán científicamente sus centros para que llegue a ser un psíquico consciente de tipo mental; se lo entrenará para controlar y hacer contacto con las evoluciones inferiores y a colaborar con otras evoluciones, tales como la dévica, donde sus cuerpos se alinearán y ajustarán de manera que al término del período (que será de dos a tres años) podrá presentarse ante el Iniciador.
+
+#### c. Potencias convertidas en poderes.
+
+El tercer tipo de trabajo está basado en el programa precedente y trata directamente del desarrollo individual. Abarca los siguientes temas:
+
+1. Alineamiento de los cuerpos, teniendo en cuenta el contenido egoico.
+2. Construcción del antakarana y desarrollo de la mente superior.
+3. Desarrollo de la intuición, y el definido despertar espiritual del estudiante.
+4. Estudio de la vibración, rayo, color y tono del estudiante.
+5. Refinamiento consciente de todos los cuerpos, empezando por el físico.
+
+<p>
+<pin lang="en">331</pin> Cuando se hayan estudiado debidamente estos tópicos y puesto en práctica todo el conocimiento adquirido, los poderes inherentes al alma se convertirán en poderes conscientes. Ante todo se hará hincapié en el hecho de que el mago blanco pone todo el poder y conocimiento al servicio de la raza. Su desenvolvimiento interno se ha de expresar en términos de servicio, antes de permitírsele ingresar en la escuela avanzada.
+</p>
+
+He indicado bastante para proporcionarles un amplio campo donde hacer interesantes conjeturas.
