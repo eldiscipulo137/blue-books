@@ -24,11 +24,11 @@ title: Libro I. El problema de la unión
 18. Se alcanza otra etapa de samadhi, cuando, mediante el pensamiento enfocado en una sola dirección, se aquieta la actividad externa. En esta etapa la sustancia mental o chitta, responde únicamente a impresiones subjetivas. <af book="1" af="18"/>
 19. El samadhi descrito no va más allá de los límites del mundo fenoménico; tampoco va más allá de los dioses ni de quienes se ocupan del mundo concreto. <af book="1" af="19"/> [e16]
 20. Otros yoguis alcanzan samadhi y llegan a la discriminación del espíritu puro a través de la creencia, seguida de energía, memoria, meditación y correcta percepción. <af book="1" af="20"/>
-21. Aquellos cuya voluntad está intensamente activa, alcanzan rápidamente la etapa de conciencia espiritual.
-22. Quienes emplean la voluntad difieren también, porque su empleo puede ser intenso, moderado o suave. Respecto al logro de la verdadera conciencia espiritual existe todavía otro camino.
-23. Por la intensa devoción a Ishvara se alcanza el conocimiento de Ishvara.
-24. Ishvara es el alma, a ésta no la afectan las limitaciones y está libre del karma y del deseo.
-25. En Ishvara, el Gurudeva, el germen de todo conocimiento, se expande al infinito.
+21. Aquellos cuya voluntad está intensamente activa, alcanzan rápidamente la etapa de conciencia espiritual. <af book="1" af="21"/>
+22. Quienes emplean la voluntad difieren también, porque su empleo puede ser intenso, moderado o suave. Respecto al logro de la verdadera conciencia espiritual existe todavía otro camino. <af book="1" af="22"/>
+23. Por la intensa devoción a Ishvara se alcanza el conocimiento de Ishvara. <af book="1" af="23"/>
+24. Ishvara es el alma, a ésta no la afectan las limitaciones y está libre del karma y del deseo. <af book="1" af="24"/>
+25. En Ishvara, el Gurudeva, el germen de todo conocimiento, se expande al infinito. <af book="1" af="25"/>
 26. Ishvara, el Gurudeva, como no está limitado por el factor tiempo, es el instructor de los Señores primitivos.
 27. La palabra de Ishvara es AUM (u OM). Ésta es el Pranava.
 28. Mediante la emisión de la Palabra y la reflexión sobre su significado, se descubre el Camino.
