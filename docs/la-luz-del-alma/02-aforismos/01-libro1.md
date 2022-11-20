@@ -15,15 +15,15 @@ title: Libro I. El problema de la unión
 9. La fantasía descansa sobre imágenes que no tienen existencia real.  <af book="1" af="9"/>
 10. La pasividad (sueño) está basada en el estado pasivo de los "vrittis" (o en la no percepción de los sentidos).  <af book="1" af="10"/>
 11. La memoria es retención de lo conocido.  <af book="1" af="11"/>
-12. El control de estas modificaciones del órgano interno, la mente, se logra mediante incansable esfuerzo y desapego.
-13. El esfuerzo incansable es empeño constante para restringir las modificaciones de la mente.
-14. Cuando el objetivo a alcanzar es valorado suficientemente, y los esfuerzos para lograrlo continúan persistentemente y sin interrupción, se asegura la estabilidad de la mente (restricción de los vrittis).
-15. Desapego es liberarse de la apetencia de los objetos deseados, ya sean terrenos o tradicionales, aquí o en el más allá.
-16. La consumación de este desapego da por resultado el exacto conocimiento del hombre espiritual, liberado de las cualidades o gunas.
-17. La conciencia de un objeto se obtiene concentrándose en su cuádruple naturaleza: la forma, por un examen de la misma; la cualidad (o guna), por participación discriminativa; el propósito, por inspiración (o beatitud), y el alma, por identificación.
-18. Se alcanza otra etapa de samadhi, cuando, mediante el pensamiento enfocado en una sola dirección, se aquieta la actividad externa. En esta etapa la sustancia mental o chitta, responde únicamente a impresiones subjetivas.
-19. El samadhi descrito no va más allá de los límites del mundo fenoménico; tampoco va más allá de los dioses ni de quienes se ocupan del mundo concreto. [e16]
-20. Otros yoguis alcanzan samadhi y llegan a la discriminación del espíritu puro a través de la creencia, seguida de energía, memoria, meditación y correcta percepción.
+12. El control de estas modificaciones del órgano interno, la mente, se logra mediante incansable esfuerzo y desapego. <af book="1" af="12"/>
+13. El esfuerzo incansable es empeño constante para restringir las modificaciones de la mente. <af book="1" af="13"/>
+14. Cuando el objetivo a alcanzar es valorado suficientemente, y los esfuerzos para lograrlo continúan persistentemente y sin interrupción, se asegura la estabilidad de la mente (restricción de los vrittis). <af book="1" af="14"/>
+15. Desapego es liberarse de la apetencia de los objetos deseados, ya sean terrenos o tradicionales, aquí o en el más allá. <af book="1" af="15"/>
+16. La consumación de este desapego da por resultado el exacto conocimiento del hombre espiritual, liberado de las cualidades o gunas. <af book="1" af="16"/>
+17. La conciencia de un objeto se obtiene concentrándose en su cuádruple naturaleza: la forma, por un examen de la misma; la cualidad (o guna), por participación discriminativa; el propósito, por inspiración (o beatitud), y el alma, por identificación. <af book="1" af="17"/>
+18. Se alcanza otra etapa de samadhi, cuando, mediante el pensamiento enfocado en una sola dirección, se aquieta la actividad externa. En esta etapa la sustancia mental o chitta, responde únicamente a impresiones subjetivas. <af book="1" af="18"/>
+19. El samadhi descrito no va más allá de los límites del mundo fenoménico; tampoco va más allá de los dioses ni de quienes se ocupan del mundo concreto. <af book="1" af="19"/> [e16]
+20. Otros yoguis alcanzan samadhi y llegan a la discriminación del espíritu puro a través de la creencia, seguida de energía, memoria, meditación y correcta percepción. <af book="1" af="20"/>
 21. Aquellos cuya voluntad está intensamente activa, alcanzan rápidamente la etapa de conciencia espiritual.
 22. Quienes emplean la voluntad difieren también, porque su empleo puede ser intenso, moderado o suave. Respecto al logro de la verdadera conciencia espiritual existe todavía otro camino.
 23. Por la intensa devoción a Ishvara se alcanza el conocimiento de Ishvara.
