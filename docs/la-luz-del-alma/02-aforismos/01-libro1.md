@@ -29,11 +29,11 @@ title: Libro I. El problema de la unión
 23. Por la intensa devoción a Ishvara se alcanza el conocimiento de Ishvara. <af book="1" af="23"/>
 24. Ishvara es el alma, a ésta no la afectan las limitaciones y está libre del karma y del deseo. <af book="1" af="24"/>
 25. En Ishvara, el Gurudeva, el germen de todo conocimiento, se expande al infinito. <af book="1" af="25"/>
-26. Ishvara, el Gurudeva, como no está limitado por el factor tiempo, es el instructor de los Señores primitivos.
-27. La palabra de Ishvara es AUM (u OM). Ésta es el Pranava.
-28. Mediante la emisión de la Palabra y la reflexión sobre su significado, se descubre el Camino.
-29. Por esto llega el conocimiento del yo (el alma) y la eliminación de todos los obstáculos.
-30. Los obstáculos para el conocimiento del alma son: incapacidad corporal, inercia mental, duda, abandono, pereza, apasionamiento, percepción errónea, incapacidad para lograr la concentración, o imposibilidad para mantener la actitud meditativa una vez alcanzada.
+26. Ishvara, el Gurudeva, como no está limitado por el factor tiempo, es el instructor de los Señores primitivos. <af book="1" af="26"/>
+27. La palabra de Ishvara es AUM (u OM). Ésta es el Pranava. <af book="1" af="27"/>
+28. Mediante la emisión de la Palabra y la reflexión sobre su significado, se descubre el Camino. <af book="1" af="28"/>
+29. Por esto llega el conocimiento del yo (el alma) y la eliminación de todos los obstáculos. <af book="1" af="29"/>
+30. Los obstáculos para el conocimiento del alma son: incapacidad corporal, inercia mental, duda, abandono, pereza, apasionamiento, percepción errónea, incapacidad para lograr la concentración, o imposibilidad para mantener la actitud meditativa una vez alcanzada. <af book="1" af="30"/>
 31. Los resultados de los obstáculos sobre la naturaleza psíquica inferior son: dolor, desesperación, errónea actividad corporal y equívoca dirección o control, de las corrientes de vida.
 32. Para superar los obstáculos y sus derivados, se requiere intensa aplicación de la voluntad a alguna verdad o principio.
 33. La paz de la sustancia mental o chitta, se puede alcanzar practicando la simpatía, la ternura, la firmeza de propósito y el desapasionamiento, respecto al placer y al dolor, o a todas las formas del bien y del mal.

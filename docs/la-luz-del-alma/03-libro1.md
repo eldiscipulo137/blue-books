@@ -387,3 +387,238 @@ Aquí tenemos la imagen del hombre espiritual tal cual es en realidad. Pone de m
 3. **Está libre de deseo**. Ya no le atraen ni tientan las cosas que percibe sensoriamente, en los tres planos. Su conciencia asciende y va hacia lo interno; ya no desciende ni va hacia lo externo. Se halla en el centro y no le atrae la periferia. Ansía experimentar; el anhelo por la existencia en el plano físico y el deseo por el aspecto forma, en sus muy diversas y múltiples variaciones, ya no ejercen atracción. Ha experimentado, conocido y sufrido; se ha visto obligado a encarnar debido a la ansiedad del no-yo. Ahora todo ha terminado y es un alma liberada.
 
 ### 25. En Ishvara, el Gurudeva, el germen de todo conocimiento se expande al infinito. {#af25}
+
+En sentido macrocósmico, Dios es el Amo de todo y la total omnisciencia, constituyendo, como se comprenderá fácilmente, la suma total de todos los estados de conciencia. Es el alma de todas las cosas; el alma del átomo de la materia, así como las almas de <pin lang="es">45</pin> los hombres son parte de Su infinita realización. El alma del ser humano es potencialmente igual; en cuanto la conciencia cesa de identificarse con sus vehículos u órganos, el germen de todo conocimiento empieza a expandirse. En el discípulo, en el Adepto, en el Maestro o Mahatma, en el Cristo, en el Buda y en el Señor del Mundo (llamado en La Biblia el Anciano de los Días), "este germen de total conocimiento" puede ser visto en diferentes etapas de desenvolvimiento. La conciencia de Dios <pin lang="en">50</pin> le pertenece, pasando de una iniciación a otra. En cada etapa el hombre es el amo; pero más allá del punto alcanzado siempre aparece la posibilidad de una mayor expansión, siendo el proceso siempre el mismo. Este proceso se puede compendiar como:
+
+1. El anhelo o la determinación de lograr el nuevo conocimiento.
+2. El mantenimiento de la conciencia en desarrollo y su utilización, y desde el punto alcanzado seguir hacia una mayor comprensión.
+3. El vencimiento de las dificultades incidentales a las limitaciones de los vehículos de la conciencia y al karma..
+4. Las pruebas esotéricas impuestas al aspirante cuando demuestra capacidad.
+5. El triunfo del aspirante.
+6. El reconocimiento de su triunfo y realización por los Guías de la raza, la Jerarquía planetaria.
+7. La visión de lo que está por delante.
+
+De esta manera prosigue el desenvolvimiento, y en cada ciclo de esfuerzo, el Hijo de Dios en evolución entra en posesión de su primogenitura y asume la posición de conocedor, "Aquel que escuchó la tradición, experimentó la disolución de lo hasta ahora poseído, vio lo que se oculta a quienes se apegan a la tradición, sustituyó lo nuevamente visto, donó las posesiones adquiridas a quienes le tendieron las manos vacías y pasó a las aulas internas del conocimiento".
+
+Deberían estudiarse detenidamente estos pocos <pin lang="en">51</pin> aforismos, relativos a Ishvara, teniendo en cuenta que se refieren al Hijo de Dios, la segunda persona de la Trinidad cuando se manifiesta por medio del sistema solar, es decir, el alma macrocósmica. El significado secundario se refiere también al divino Hijo de Dios, el segundo aspecto monádico cuando se manifiesta por intermedio del ser humano, es decir, el alma microcósmica. Serán de utilidad los siguientes sinónimos del aspecto Ishvara: <pin lang="es">46</pin>
+
+##### El Macrocosmos
+
+|                             |                                        |
+| --------------------------- | -------------------------------------- |
+| Ishvara, el segundo aspecto | Cuya naturaleza es amor.               |
+| El Hijo de Dios             | El revelador del Padre.                |
+| Cristo cósmico              | Dios en encarnación.                   |
+| Vishnu                      | Segunda persona de la Trinidad hindú.  |
+| El Alma de todas las cosas  | Átomos y almas son términos sinónimos. |
+| El Omni-yo                  | La suma total de todos los yoes.       |
+| Yo soy Ése                  | La conciencia grupal.                  |
+| AUM                         | La Palabra de la Revelación.           |
+| El Verbo                    | Dios encarnado.                        |
+| El Gurudeva                 | El Maestro de todos.                   |
+| La luz del mundo            | Brillando en la oscuridad.             |
+
+##### El Microcosmos
+
+|                       |                                                        |
+| --------------------- | ------------------------------------------------------ |
+| El segundo aspecto    | Amor-sabiduría.                                        |
+| El hijo del Padre     | El revelador de la Mónada.                             |
+| El Cristo             | Cristo en ti, esperanza es de gloria.                  |
+| El Alma               | La conciencia.                                         |
+| El Yo superior        | El señor de los cuerpos.                               |
+| El Ego                | La identidad autorrealizadora.                         |
+| El Verbo              | Dios encarnado.                                        |
+| AUM                   | La Palabra de la Revelación.                           |
+| El Maestro            | El yo en el trono.                                     |
+| El Augoeides radiante | La luz interna.                                        |
+| El Hombre espiritual  | Utilizando al hombre inferior. <pin lang="en">52</pin> |
+
+
+### 26. Ishvara (el Gurudeva), como no está limitado por el factor tiempo, es el instructor de los Señores primitivos. {#af26}
+
+Desde que existen los factores tiempo y espacio, hubo quienes alcanzaron la omnisciencia: aquellos cuyo germen del conocimiento fue sometido a un adecuado cultivo y se desarrolló hasta florecer en la plena gloria del alma liberada, lo cual fue posible por medio de ciertos factores:
+
+1. La identificación de cada alma individual con la Superalma.
+2. La fuerza atrayente de esa Superalma, cuando gradualmente atrajo hacia Sí al alma separada de todas las cosas, pues la fuerza de la evolución misma es el gran agente de atracción que hace retornar a su fuente de origen las exteriorizadas unidades de Vida divina, las unidades de conciencia. Ello implica la respuesta del alma individual a la fuerza del alma cósmica.
+3. El intenso entrenamiento, próximo a la culminación, dado por la Jerarquía oculta, mediante el cual las almas reciben el estímulo y la vitalización que les permite progresar más rápidamente,
+
+El estudiante de ocultismo debe recordar que este proceso se ha desarrollado en rondas y cielos anteriores a nuestro planeta <pin lang="es">47</pin> Tierra. Los Primitivos Señores o Sabios, son esos grandes Adeptos que, habiendo "pasado las experiencias" de acuerdo a la ley de renacimiento, fueron iniciados en los misterios por el único iniciador, el Representante, en nuestro planeta, de la <pin lang="en">53</pin> Superalma, y se convirtieron a su vez en instructores e iniciadores de los misterios.
+
+El Maestro único mora internamente; es el Alma, el Regente interno, el Pensador, en su propio plano. Es parte del Todo, de la Omni alma. Cada expansión de conciencia lograda por el hombre, lo capacita para ser Maestro de quienes no han obtenido una expansión similar. Por lo tanto, una vez lograda la maestría (hablando en términos del reino humano) sólo hay Maestros, que son también discípulos, todos aprendices e instructores, diferenciándose únicamente por su grado de conocimiento, por ejemplo:
+
+1. Los aspirantes a hollar el sendero son discípulos de discípulos de grado inferior.
+2. Los probacionistas que están en el sendero son discípulos de discípulos de grado superior.
+3. Los discípulos aceptados son discípulos de un adepto o de un Maestro.
+4. El adepto es discípulo de un Maestro.
+5. El Maestro es discípulo de un Mahatma.
+6. Los Mahatmas son discípulos de Iniciados de grado aún superior.
+7. Éstos, a su vez, son discípulos del Cristo o de quien estuviera al frente del sector de la enseñanza.
+8. Quien está al frente del sector de la enseñanza es discípulo del Señor del Mundo.
+9. El Señor del Mundo es discípulo de uno de los tres Espíritus planetarios, los cuales representan los tres aspectos principales. <pin lang="en">54</pin>
+10. Éstos, a su vez, son discípulos del Logos solar.
+
+El estudiante verá cuán interdependientes son y también se dará cuenta que la realización de uno afectará profundamente a todo el cuerpo. La palabra discipulado puede considerarse como un termino genérico que abarca todos los estados o condiciones del Ser en el cuarto y quinto reinos (humano y espiritual), donde se producen ciertas expansiones de conciencia, mediante entrenamientos específicos <pin lang="es">48</pin>
+
+### 27. La palabra de Ishvara es AUM (u OM). Ésta es el Pranava (Véase Libro I, Af. l). {#af27}
+
+Los estudiantes deben recordar que existen tres Palabras o sonidos básicos, en manifestación, en lo que concierne al reino humano, y son:
+
+1. **La Palabra o nota de la Naturaleza**, es la palabra o sonido de todas las formas que existen en la sustancia del plano físico, que comúnmente, como se sabe, lo emite la nota básica "FA." El ocultista blanco nada tiene que ver con esta nota, porque su trabajo no consiste en acrecentar lo tangible, sino en manifestar lo subjetivo o intangible. Es la palabra del tercer aspecto; el aspecto Brahma o Espíritu Santo.
+2. **La Palabra Sagrada**, es la palabra de Gloria, AUM. Es el Pranava, el sonido de la Vida consciente misma, cuando es exhalada a todas las formas. Es la palabra del segundo aspecto, y así como la Palabra de la Naturaleza, al ser emitida <pin lang="en">55</pin> correctamente, provee las formas destinadas a revelar el alma o segundo aspecto, también Pranava, cuando se expresa correctamente, pone de manifiesto al Padre o Espíritu, por medio del alma. Es la Palabra de los Hijos de Dios encarnados. En un comentario tan breve como éste, no es posible escribir un tratado sobre este secreto de secretos y gran misterio de las edades. Lo único que puede hacerse es cotejar ciertos hechos, respecto al AUM, y dejar que el estudiante, de acuerdo al grado de intuición, amplíe el concepto y capte el significado de las breves afirmaciones hechas.
+3. **La Palabra Perdida**. La Masonería ha preservado el concepto de esta palabra perdida. Es la Palabra del primer aspecto, el aspecto Espíritu; sólo el iniciado de tercer grado puede realmente comenzar la búsqueda de esta Palabra, pues sólo puede encontrarla el alma libre. Esta Palabra está vinculada a las iniciaciones superiores, por lo cual no tiene objeto que la consideremos más extensamente aquí.
+
+Podríamos hacer las siguientes afirmaciones, respecto a la Palabra Sagrada, que deberían ser estudiadas detenidamente:
+
+1. AUM es la palabra de gloria; Cristo es en nosotros esperanza de gloria.
+2. La Palabra, cuando es captada correctamente, hace que el segundo aspecto de la divinidad o crístico, surja en forma resplandeciente.
+3. Es el sonido que trae a la manifestación el alma encarnada <pin lang="es">49</pin> (macro o microcósmica), el Cristo, el ego, y hace visible en la tierra al "radiante Augoeides". <pin lang="en">56</pin>
+4. Es la palabra que libera la conciencia; cuando se la comprende y emplea correctamente libera al alma de las limitaciones de la forma en los tres mundos.
+5. AUM es el sintetizador de los tres aspectos, siendo por lo tanto y principalmente, la Palabra del reino humano, en el cual se unen las tres líneas de la Vida divina -espíritu, alma y cuerpo.
+6. Es también la Palabra de la quinta raza o raza Aria, en un sentido no común. La misión de esta raza es revelar, de manera nueva y plena, la naturaleza de la Entidad interna, el alma dentro de la forma, el Hijo de la mente, el Ángel solar, el quinto principio.
+7. El significado de la Palabra sólo es percibido después de obtenerse la "luz interna". Mediante su empleo la "chispa" se trasforma en luz radiante, la luz en llama, y la llama, con el tiempo, en sol. Por medio de la Palabra, nace el Sol de la Rectitud en la vida de cada hombre.
+8. Cada una de las tres letras del AUM tiene relación con los tres aspectos y puede aplicarse a cualquiera de las triplicidades conocidas.
+9. El Maestro, el Dios interno, es realmente el Verbo, el AUM, y de este Maestro (que se halla en el corazón de todos los seres) puede decirse que "En el principio era el Verbo, y el Verbo era con Dios (por eso la dualidad) y el Verbo era Dios". Mediante el empleo de la Palabra, el hombre llega a comprender:
+   1.  Su Propia divinidad esencial.
+   2.  El propósito del proceso de tomar forma. <pin lang="en">57</pin>
+   3.  La constitución y la naturaleza de esas formas.
+   4.  La realidad de la conciencia, o la relación del yo divino o espíritu, con la forma, su polo opuesto.
+ A esta relación, en su desenvolvimiento evolutivo, la llamamos conciencia, y la característica esencial de esta conciencia es amor.
+10. El Gurú o Maestro, que conduce al estudiante hasta el portal de la Iniciación y vigila todas las pruebas y procesos iniciales y subsiguientes, también representa la Palabra, y mediante el empleo científico de este gran sonido, el maestro produce cierto estímulo y vitalización en los centros del discípulo, posibilitando determinados desarrollos.
+
+No es conveniente agregar nada más aquí sobre la Palabra Sagrada. Bastante se ha dicho para dar a entender al aspirante su objetivo y potencia. Se darán mayores datos y otros métodos <pin lang="es">50</pin> cuando el estudiante, mediante el estudio y el esfuerzo autoiniciado, llegue a conclusiones correctas. Sin embargo puede agregarse que, si se medita sobre esta gran Palabra, proporcionará la clave del verdadero significado esotérico de lo expresado por H. P. Blavatsky en La Doctrina Secreta:
+
+> Consideramos la Vida como una forma de existencia que se manifiesta en lo que llamamos materia o, incorrectamente separado, denominamos espíritu, alma y materia en el hombre. Materia es el vehículo para la manifestación del alma, en este plano de existencia; alma es el vehículo, para la <pin lang="en">58</pin> manifestación del espíritu, en un plano superior; los tres son una Trinidad sintetizada por la Vida, que los compenetra a todos
+
+### 28. Mediante la emisión de la Palabra y la reflexión sobre su significado, se descubre el Camino. {#af28}
+
+Esta paráfrasis muy general expresa no obstante el significado correcto de los términos empleados en sánscrito. Únicamente Vivekananda, de los muchos traductores, lo interpreta de la manera siguiente:
+
+> La repetición del OM, y la meditación sobre su significado (es el Camino)
+
+Los demás traductores omiten las tres palabras finales, entre paréntesis, aunque la inferencia es clara.
+
+La expresión "emisión de la Palabra" no debe interpretarse demasiado literalmente; la "emisión" esotérica está basada en el estudio de la Ley de Vibración y en la sintonización gradual de las vibraciones inferiores de las envolturas o vestiduras de la conciencia, de modo que se sincronicen con la nota o sonido del consciente morador interno. Hablando correctamente, la Palabra debe ser emitida por el alma o ego en su propio plano, y la vibración afectará en consecuencia a los diversos cuerpos o vehículos que albergan a esa alma. El proceso, por lo tanto, es mental, y pueden realizarlo únicamente quienes, por la meditación y disciplina, conjuntamente con el servicio, han alcanzado la unificación consciente con el alma. Los que aspiran a realizarlo deben <pin lang="en">59</pin> utilizar las potentes facultades de la imaginación y visualización y la perseverancia en la meditación, a fin de alcanzar esta etapa inicial. Téngase en cuenta que esta etapa debe asesorarse aunque sólo sea en grado relativamente limitado, antes de que el aspirante pueda llegar a ser un discípulo aceptado.
+
+El proceso de emitir la Palabra es doble, y este aforismo lo hace resaltar. <pin lang="es">51</pin> Ante todo tenemos el acto del ego, ángel solar, yo superior o alma, al emitir la Palabra desde su propio plano, en los niveles abstractos del plano mental. Dirige ese sonido, por medio del sutratma y las vestiduras de la conciencia, al cerebro físico del hombre en encarnación, sombra o reflejo. Esta "emisión", debe repetirse constantemente. El sutratma es el vínculo magnético que La Biblia cristiana denomina "Cordón Plateado", el hilo de luz viviente, que conecta a la Mónada, el Espíritu en el hombre, con el cerebro físico.
+
+En segundo lugar tenemos el reflejo veraz del hombre en su cerebro físico cuando oye el sonido y lo reconoce. Aquí se insinúan los dos polos del ser: el alma y el hombre en encarnación; entre ambos se halla el hilo a lo largo del cual vibra el Pranava (o palabra). Los que estudian la ciencia esotérica deben conocer la técnica del proceso delineado. En esta emisión de la Palabra tenemos los siguientes factores:
+
+1. El alma que la emite o exhala.
+2. El sutratma o hilo a través del cual el sonido vibra, y es llevado o trasmitido. <pin lang="en">60</pin>
+3. Los vehículos de la conciencia, mental, emocional y etérico, que vibran en respuesta a la vibración o aliento, siendo así estimulados.
+4. El cerebro, que puede ser entrenado para reconocer ese sonido y vibrar al unísono con el aliento.
+5. El siguiente acto que efectúa el hombre durante la meditación. Oye el sonido (a veces denominado "la queda y tenue Voz" o "La Voz del Silencio"), lo reconoce por lo que es y, en profunda reflexión, asimila los resultados de la actividad de su alma.
+
+Una vez que el aspirante ha penetrado en los misterios y aprendido a unificar al alma y al hombre inferior, para que funcionen como una unidad coordinada en la tierra, el aspirante aprende a emitir la Palabra en el plano físico, a fin de despertar las fuerzas latentes en él y también los centros. De esta manera participa acrecentadamente en el trabajo creador, mágico y síquico de la manifestación, con el propósito de beneficiar a sus semejantes y desarrollar los planes de la Jerarquía planetaria.
+
+### 29. Por esto llega el conocimiento del yo (el alma) y la eliminación de todos los obstáculos. {#af29}
+
+Cuando se conoce al Maestro interno, se siente, cada vez más, afirmar su poder, y el aspirante somete su naturaleza inferior al control de ese nuevo regente.
+
+<p>
+<pin lang="es">52</pin> Debe observarse que la oportuna y total <pin lang="en">61</pin> remoción de los obstáculos, transcurre después de producirse el destello inicial de comprensión. El orden consecutivo de los acontecimientos es:
+</p>
+
+1. La aspiración por obtener el conocimiento del alma.
+2. El conocimiento de los obstáculos y la comprensión de las cosas que impiden alcanzar el verdadero conocimiento.
+3. La comprensión intelectual de la naturaleza de tales obstáculos.
+4. La determinación de eliminarlos.
+5. Un repentino destello o visión de la realidad del alma.
+6. La renovada aspiración y la firme determinación de hacer de esa fugaz visión una realidad permanente durante la experiencia en el plano inferior.
+7. La batalla de Kurukshetra, con Krishna, el alma, alentando a Arjuna, el aspirante, a mantener un esfuerzo firme y constante. La misma idea aparece en El Antiguo Testamento, en el caso de Josué, ante las murallas de Jericó.
+
+Será útil concluir este comentario, trascribiendo los Afs. 31, 32, 33 y 34 del Libro IV
+
+:::note
+
+31. Cuando se han eliminado todos los obstáculos y purificado las envolturas, se dispone de todo el conocimiento, entonces nada le queda al hombre por hacer.
+32. Las modificaciones de la sustancia mental (cualidades de la materia), mediante la naturaleza inherente a los tres gunas, llegan a su término, pues han cumplido ya su propósito.
+33. El tiempo, secuencia de las modificaciones de la mente, también llega a su término, cediendo su lugar al Eterno Ahora.
+34. El estado de "unidad aislada" llega a ser posible cuando las tres cualidades de la materia (los tres gunas o potencias de la naturaleza, A.A.B.) ya no aferran al yo. La conciencia espiritual pura se retrotrae en el Uno. <pin lang="en">62</pin>
+
+:::
+
+### 30. Los obstáculos para el conocimiento del alma son: incapacidad corporal, inercia mental, duda, abandono, pereza, apasionamiento, percepción errónea, incapacidad para lograr la concentración, o imposibilidad para mantener la actitud meditativa una vez alcanzada. {#af30}
+
+#### I. Obstáculo. Incapacidad corporal.
+
+Es interesante observar que el primer obstáculo se relaciona con el cuerpo físico. Los aspirantes deberían recordarlo y tratar de ajustar el vehículo físico a las demandas que posteriormente se <pin lang="es">53</pin> le harán. Estos reajustes serán de importancia y están comprendidos en cuatro grupos:
+
+1. La inmunización del cuerpo contra los ataques de las enfermedades o indisposiciones. Esto, en sí, es un proceso triple, que implica:
+   1. La extirpación de la enfermedad existente.
+   2. El refinamiento y la purificación del cuerpo, a fin de reconstruirlo oportunamente.
+   3. La protección del cuerpo contra ataques futuros y su utilización como vehículo del alma.
+2. El fortalecimiento y refinamiento del cuerpo etérico, para que finalmente se sintonice y así la tarea de dirigir la fuerza pueda emprenderse sin peligro. El discípulo debe hacer pasar a través de su cuerpo las fuerzas que utiliza en su trabajo.
+3. El despertar y el desarrollo de los centros del cuerpo etérico; la centralización de los fuegos del cuerpo y su correcta progresión a lo largo de la <pin lang="en">63</pin> columna vertebral, a fin de unirlos al fuego del alma.
+4. La coordinación de las dos divisiones del cuerpo físico y su subsiguiente alineamiento con el alma, mediante el sutratma o hilo, el vínculo magnético.
+
+El tercer reajuste mencionado sólo puede emprenderse sin peligro después de haber empleado y desarrollado los primeros tres métodos de Yoga, y son:
+
+1. Los cinco mandamientos. (Libro II, Afs. 30 y 31).
+2. Las cinco reglas. (Libro II, Afs. 32 al 46).
+3. El correcto equilibrio. (Libro II, Afs. 46 al 48).
+
+Los que aspiran a la Yoga frecuentemente olvidan esto, y a ello se deben los desastres y dificultades que experimentan quienes se ocupan de despertar prematuramente los centros y de avivar el fuego serpentino. Sólo cuando se ha establecido completamente la relación entre el aspirante y la economía social (como lo exponen los mandamientos); realizado la tarea de purificar y regularizar la triple naturaleza inferior (como se delinea en las reglas); logrado el equilibrio y el control de la naturaleza emocional, y obtenido el correcto equilibrio, puede, quien aspira al Raja Yoga, comenzar sin peligro el trabajo más esotérico y oculto, vinculado con los fuegos de su pequeño sistema. Nunca se hará bastante hincapié sobre este punto. Solo cuando se ha alcanzado un grado muy avanzado en el discipulado, el hombre puede ocuparse conscientemente y sin peligro de los fuegos vitales y dirigir <pin lang="en">64</pin> su correcta ascensión por la columna vertebral. Muy pocos todavía "han cumplido la ley y los mandamientos". <pin lang="es">54</pin>
+
+#### II. Obstáculo. Inercia mental.
+
+El siguiente y básico gran obstáculo (estos obstáculos se trascriben en el orden de su poder relativo ejercido sobre el hombre común) es la incapacidad de pensar con claridad sobre el problema de la realización. Si la acción no va precedida de un claro pensar, no habrá suficiente impulso ni podrá apreciarse la magnitud del problema. La inercia mental se debe a la condición letárgica de la "vestidura de la conciencia", denominada cuerpo mental, y al pesado ritmo de la mayor parte de las personas. Esto explica por qué el Raja Yoga tiene más atractivo para los de tipo mental que para los puramente devotos, y también por qué quienes poseen un cuerpo mental bien dotado y activamente empleado pueden entrenarse más rápidamente en esta sagrada ciencia. Para la mayoría, despertar el cuerpo mental, desarrollar el interés intelectual y sustituir el control emocional por el mental debe preceder a toda comprensión posterior sobre la necesidad de cultivar el alma. Debe hacerse contacto con el mecanismo mental y emplearlo, antes de poder apreciar inteligentemente la naturaleza del pensador.
+
+Cuando se llegue a captar esto, se comprenderá con mayor precisión que las grandes escuelas de pensamiento denominadas: Ciencia Mental, Ciencia Cristiana (Christian Science), Nuevo Pensamiento y otros grupos, han contribuido al mejoramiento humano, pues ponen el énfasis sobre los estados mentales. <pin lang="en">65</pin> Sólo ahora la familia humana empieza a darse cuenta de la "vestidura de la conciencia", denominada cuerpo mental.
+
+Una mayoría aún tiene que construir esa vestidura que los estudiantes esotéricos denominan cuerpo mental. De entre estos trabajadores se extraerá a los verdaderos yoguis de Raja Yoga.
+
+#### III. Obstáculo. Duda.
+
+Esta tercera etapa depende también en cierta medida del desenvolvimiento mental. Algunos traductores denominan a esto "duda” y tiene como base la percepción inferior y la identificación del hombre real con el instrumento ilusorio, su cuerpo mental, lo cual hace que dude de las verdades eternas y de la existencia de las realidades fundamentales, buscando la solución de sus problemas en lo efímero y transitorio y en las cosas de los sentidos.
+
+Hay dudas correctas y apropiadas, es decir, la formulación de preguntas a las cuales se refería Cristo en las palabras: "Pedid y recibiréis". Esta facultad de inquirir la cultivan deliberadamente entre sus discípulos los verdaderos Maestros de Oriente. Se les enseña a formular preguntas acerca de las realidades internas y <pin lang="es">55</pin> luego a hallar la respuesta por sí mismos, buscando la fuente de todo conocimiento, latente en el corazón de todos los seres. Formular preguntas inteligentes y hallar sus respuestas significa primeramente haberse liberado de toda autoridad externa impuesta, tradición e imposición de dogmas <pin lang="en">66</pin> teológicos, religiosos o científicos. Sólo así se puede descubrir la realidad y percibir la verdad
+
+> Cuando tu alma haya pasado más allá de la selva de la ilusión, ya no considerarás lo que se debe enseñar o lo que ha sido enseñado
+>
+> Cuando te hayas apartado de la enseñanza tradicional, tu alma permanecerá constante y firme en la visión del alma; entonces alcanzará la unión con el alma
+> Gita, Cap. II, Vers. 51, 52.
+
+#### IV. Obstáculo. Abandono.
+
+Esta actitud mental algunos la traducen como "mentalidad inestable". En realidad, es esa versátil actitud mental que hace tan difícil alcanzar la centralización y la atención. Literalmente es la tendencia de la sustancia mental a crear formas mentales, descrita también como la "tendencia de la mente a saltar de un objeto a otro" (Libro  III, Af. 11).
+
+#### V. Obstáculo. Pereza.
+
+Todos los comentadores concuerdan respecto a esta traducción y aplican los términos: flojedad, languidez o pereza. Esto no se refiere tanto a la inercia mental (puesto que puede ir paralela a la aguda percepción mental) como a la flojedad del hombre inferior, que le impide ponerse a la altura del conocimiento intelectual y de la aspiración interna. Se le ha expuesto al aspirante lo que debe hacer, se le han explicado los "métodos de la yoga", ha percibido el ideal y se da cuenta de los obstáculos; conoce teóricamente los pasos precisos que debe dar, pero su actividad no responde a su conocimiento. Existe un vacío entre su aspiración y su actuación. <pin lang="en">67</pin> Aunque anhela realizar y saber, le resulta demasiado difícil llenar las condiciones. Su voluntad no es aún bastante fuerte para obligarlo a avanzar. Deja pasar el tiempo y no hace nada.
+
+#### VI. Obstáculo. Apasionamiento.
+
+Esto ha sido traducido muy correctamente por algunos como "apego a los objetos" y deseo por las cosas materiales y de los sentidos. Es amor a las percepciones sensorias y a la atracción de todo lo que hace retornar al hombre una y otra vez, a la existencia en el plano físico. El discípulo debe cultivar el desapasionamiento, o esa actitud de no identificarse con ningún tipo de forma, <pin lang="es">56</pin> sino mantenerse apartado y desapegado, libre de las limitaciones impuestas por posesiones y pertenencias. Este punto es tratado en muchos aforismos y no es necesario ampliarlo aquí.
+
+#### VII. Obstáculo. Percepción errónea.
+
+La incapacidad de percibir correctamente y de ver las cosas tal como son en realidad, es consecuencia natural de los seis obstáculos anteriores. Mientras el pensador se identifique con la forma, mientras las vidas menores de las vestiduras inferiores de la conciencia lo aprisionen y mientras se niegue a separarse del aspecto material, sus percepciones serán erróneas. La visión abarca diversos tipos, los cuales pueden ser enumerados como:
+
+1. La **visión física** revela la naturaleza del plano físico, y se logra por medio de los ojos, fotografiando a través del lente ocular el aspecto de la forma tangible, sobre <pin lang="en">68</pin> la maravillosa película que todo hombre posee. Esta visión es circunscripta y limitada.
+2. La **visión etérica** es una facultad del ojo humano que va desarrollándose rápidamente, y revelará, con el tiempo, el aura de salud de todas las formas, en los cuatro reinos de la naturaleza; ello traerá el reconocimiento de las emanaciones vitales pránicas en todos los centros vivientes y pondrá de manifiesto la condición de los mismos.
+3. La **clarividencia** es la facultad de ver en el plano astral, uno de los "siddhis" o poderes síquicos inferiores. Se obtiene por la sensibilidad superficial del "cuerpo sensorio" o envoltura emocional; es la percepción sensoria llevada a una condición muy desarrollada. Es engañosa y, aparte de su analogía superior, que es la percepción espiritual, constituye la apoteosis de maya o ilusión.
+4. La **visión simbólica** es una facultad del cuerpo mental y el factor que produce la percepción de los colores, los símbolos geométricos, la visión cuatridimensional y esos sueños y visiones resultantes de la actividad mental y no de la visión astral. Con frecuencia tales visiones tienen el carácter de previsiones.
+
+Estos cuatro tipos de visión son la causa de la percepción errónea, producen sólo ilusión y error, hasta ser reemplazados por tipos superiores de visión, que se enumeran más adelante. Estos tipos superiores de visión incluyen los demás.
+
+5. La **visión pura**. Patanjali la define como:
+   
+   "El vidente es conocimiento puro (gnosis). Aunque <pin lang="en">69</pin> puro, observa la idea presentada por medio de la mente" (Libro II, Af. 20). Las palabras "conocimiento puro" se han traducido como "visión pura", facultad del alma, que a su vez es conocimiento puro y se manifiesta citando el alma utiliza la mente como instrumento de <pin lang="es">57</pin> visión. Charles Johnston traduce este aforismo: "El vidente es visión pura... mira a través de la vestidura de la mente".
+
+   Es también la clara captación del conocimiento y la perfecta comprensión de las cosas del alma, característica del hombre que, por medio de la concentración y la meditación, ha logrado controlar la mente. Entonces la mente se convierte en la ventana del alma, a través de la cual el hombre espiritual puede percibir una esfera de conocimiento nuevo y más elevado. Simultáneamente, con el desarrollo de este tipo de visión, se pone en actividad la glándula pineal, y el tercer ojo (en materia etérica) se desarrolla por una actividad paralela.
+6. La **visión espiritual** o verdadera percepción es el tipo de visión que abre el mundo intuicional o plano búdico, y lleva a su poseedor más allá de los niveles abstractos del plano mental. Se llegan a comprender las cosas del espíritu puro y los propósitos básicos que subyacen en toda manifestación, así como la visión pura permitió a su poseedor extraer de las fuentes de la sabiduría pura. Con el desarrollo de esta visión entra en actividad el centro alta mayor y se abre el loto de mil pétalos.
+7. La **visión cósmica**, cuya naturaleza es inconcebible para el hombre, caracteriza el conocimiento de esas Existencias que se Manifiestan por <pin lang="en">70</pin> medio de un esquema planetario en un sistema solar, así como el hombre se manifiesta por medio de sus cuerpos.
+
+Por el estudio de estos tipos de percepción, el estudiante podrá apreciar con exactitud el trabajo que debe realizar, lo cual lo ayudará a determinar el lugar que ocupa y, en consecuencia, a prepararse inteligentemente para el siguiente paso.
+
+#### VIII. Obstáculo. Incapacidad para lograr la concentración.
+
+Los dos últimos obstáculos indican que "las cosas viejas pueden desaparecer" y el hombre nuevo entrar en posesión de su herencia. El método del discípulo no sólo debe incluir la autodisciplina o la subyugación de las vestiduras o envolturas, y el servicio o la identificación con la conciencia grupal, sino también dos etapas, la de concentración, enfoque o control de la mente, más la de meditación, ese constante proceso de reflexionar sobre aquello con lo cual el alma se ha puesto en contacto y conoce. Ambos serán tratados más adelante, y no nos detendremos ahora.
+
+#### IX. Obstáculo. Imposibilidad para mantener la actitud meditativa.
+
+Por lo antedicho se verá claramente que los primeros seis obstáculos se refieren a las condiciones erróneas y los tres últimos a los resultados de esas condiciones. Contienen una sugerencia <pin lang="es">58</pin> respecto a los métodos para librarse de los erróneos estados de conciencia.
+
+El aforismo que sigue es muy interesante, pues trata de los efectos producidos en los cuerpos <pin lang="en">71</pin> de la naturaleza inferior, en el caso del hombre que no ha superado los obstáculos.
