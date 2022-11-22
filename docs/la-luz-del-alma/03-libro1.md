@@ -622,3 +622,106 @@ Los dos últimos obstáculos indican que "las cosas viejas pueden desaparecer" y
 Por lo antedicho se verá claramente que los primeros seis obstáculos se refieren a las condiciones erróneas y los tres últimos a los resultados de esas condiciones. Contienen una sugerencia <pin lang="es">58</pin> respecto a los métodos para librarse de los erróneos estados de conciencia.
 
 El aforismo que sigue es muy interesante, pues trata de los efectos producidos en los cuerpos <pin lang="en">71</pin> de la naturaleza inferior, en el caso del hombre que no ha superado los obstáculos.
+
+### 31. Los resultados de los obstáculos para la naturaleza síquica inferior son: dolor, desesperación, errónea actividad corporal y equivoca dirección o control, de las corrientes de la vida {#af31}
+
+Cada uno de estos cuatro resultados expresa la condición del hombre inferior y trata de los efectos de la errónea centralización o identificación.
+
+1. El **dolor** es el efecto producido cuando el cuerpo astral o emocional está erróneamente polarizado. El dolor es la consecuencia de no equilibrar correctamente los pares de opuestos, e indica falta de equilibrio.
+2. La **desesperación** es efecto del remordimiento, producido en el cuerpo mental, siendo en sí una característica de lo que podemos llamar "naturaleza mental no regenerada". El aspirante tiene la percepción de lo que podría ser, aunque los obstáculos todavía lo vencen; incesantemente es consciente del fracaso y esto genera en él un estado de remordimiento, disgusto, desesperación y desaliento.
+3. La **errónea actividad corporal**. La condición interna se manifiesta en el plano físico como intensa actividad, enérgica búsqueda por soluciones o alivio; un constante ir y venir en pos de la paz. En esta época es la principal característica de nuestra mental raza aria, y la causa del intenso y agresivo esfuerzo realizado en todas las actividades de la vida. A esto han contribuido, en gran medida, los sistemas pedagógicos, pues aceleran la actividad del cuerpo mental. La <pin lang="en">72</pin> gran contribución de la pedagogía (en las escuelas, institutos, liceos, universidades y otras actividades afines) ha sido estimular el cuerpo mental del hombre. Todo forma parte del gran plan, que tiende siempre a alcanzar el objetivo uno, el desarrollo del alma.
+4. La **equívoca dirección de las corrientes de la vida**. Este efecto es producido en el cuerpo etérico, por trastornos internos. Las corrientes de la vida, para el estudiante de ocultismo, son dos:
+   1. El aliento de la vida o el prana.
+   2. La fuerza vital o los fuegos del cuerpo.
+
+El mal empleo del aliento de la vida, o la errónea utilización del prana, es la causa del ochenta por ciento de las actuales <pin lang="es">59</pin> enfermedades físicas. El otro veinte se debe a que la fuerza vital es mal dirigida a través de los centros, atacando principalmente a ese porcentaje de la humanidad que, puede decirse, está mentalmente polarizado. La clave para el estudiante esotérico que aspira obtener la liberación, no está en los ejercicios respiratorios ni en ningún sistema para el desarrollo de los siete centros del cuerpo, sino en la intensa concentración interna sobre el vivir rítmico y en la cuidadosa organización de la vida. A medida que efectúa esto, la coordinación de los cuerpos sutiles con el físico por una parte y con el alma por otra, se producirá con el tiempo el automático y consiguiente reajuste de las energías pránicas y vitales.
+
+### 32. Para superar los obstáculos y sus derivados, se requiere intensa aplicación (de la voluntad a alguna verdad o principio. {#af32}
+
+Es Conveniente que el aspirante a la yoga <pin lang="en">73</pin> observe que hay siete métodos para alcanzar la paz y así llegar a la meta, los cuales se tratarán a continuación cada uno tiene relación precisa con los siete obstáculos considerados anteriormente.
+
+| Obstáculo            | Remedio                                      |
+| -------------------- | -------------------------------------------- |
+| Incapacidad corporal | Vivir sano y saludable ([1. 33](#af33)).     |
+| Inercia mental       | Control de la fuerza vital ([1. 34](#af34)). |
+| Duda                 | Pensamiento centralizado ([1. 35](#af35)).   |
+| Abandono             | Meditación ([1. 36](#af36)).                 |
+| Pereza               | Autodisciplina ([1. 37](#af37)).             |
+| Apasionamiento       | Correcto análisis ([1. 38](#af38)).          |
+| Percepción errónea   | Iluminación ([1. 39](#af39)).                |
+
+Corregir las condiciones erróneas es de suma importancia en las primeras etapas de la yoga, razón por la cual se hace hincapié sobre ellas en el Libro I. Pero una comprensión teórica de los obstáculos y de su curación, de nada sirven si no se aplica intensamente la voluntad. Sólo el constante, firme y persistente esfuerzo de la voluntad, actuando por medio de la mente, será suficiente para llevar al aspirante de la oscuridad a la luz y conducirlo de la muerte a la inmortalidad.
+
+Una vez comprendido el principio, el discípulo puede trabajar inteligentemente, de allí la necesidad de correcta comprensión de los principios o cualidades por los cuales se puede conocer la verdad respecto a la Realidad o Dios.
+
+Todas las formas existen a fin de expresar la verdad. Aplicando constantemente la voluntad de Dios en el Todo, se revela la verdad por medio de la materia. Cuando se conozca la verdad o principio <pin lang="es">60</pin> básico, el espíritu entonces quedará revelado. Cuando el discípulo comprenda <pin lang="en">74</pin> qué principios deben expresar sus diferentes formas, envolturas o cuerpos, sabrá dirigir con exactitud su voluntad y así producirá las condiciones deseadas. Las envolturas y vehículos son, simplemente, sus cuerpos de manifestación en los diversos planos del sistema; tales envolturas deben expresar el principio que constituye la característica o cualidad subyacente en cada plano. Por ejemplo, los siete principios que conciernen al hombre son:
+
+|                |                     |                |               |
+| -------------- | ------------------- | -------------- | ------------- |
+| Prana          | energía vital       | cuerpo etérico | plano físico. |
+| Kama           | deseo, sentimiento  | cuerpo astral  | plano astral. |
+| Manas inferior | mente concreta      | cuerpo mental  | plano mental. |
+| Manas superior | mente abstracta     | cuerpo egoico  | plano mental. |
+| Budi           | intuición           | cuerpo búdico  | plano búdico. |
+| Atma           | voluntad espiritual | cuerpo átmico  | plano átmico. |
+
+Y lo que corresponde al ilimitado e inmutable principio en el macrocosmos, la Mónada (en su propio plano), es el séptimo principio. Hay otra manera de enumerar los principios, pues Subba Row está en lo cierto cuando dice que existen sólo cinco principios. Los dos superiores, la vida monádica y atma, no son principios.
+
+Aplicando conscientemente la voluntad en cada plano, el vehículo es dirigido constantemente a expresar con mayor exactitud la verdad una. Éste es el verdadero significado del aforismo en consideración y la razón por la cual los Adeptos todavía estudian este tratado sobre yoga. No poseen un total <pin lang="en">75</pin> conocimiento verdadero en todos los planos, aunque las reglas básicas rigen en todo sentido y se aplican diversamente. Los principios son aplicables a todas las diferenciaciones y a todos los estados del ser.
+
+A medida que el hombre estudia las esferas donde actúa su conciencia, a medida que llega a comprender los vehículos que debe utilizar en determinada esfera, y a medida que despierta al conocimiento de la cualidad divina específica que el cuerpo está destinado a expresar, como parte o aspecto de una verdad o realidad, se da cuenta de las fallas presentes, de los obstáculos que entorpecen y de las dificultades a vencer. Luego viene la aplicación de la voluntad y su concentración sobre el principio o cualidad que trata de expresarse. Así la manifestación inferior se alinea con la superior, pues "como el hombre piensa, así es él". <pin lang="es">61</pin>
+
+### 33. La paz de la sustancia mental o chitta, se puede alcanzar practicando la simpatía, la ternura, la firmeza de propósito y, el desapasionamiento, en lo que al placer o al dolor, bien y mal concierne. {#af33}
+
+Este aforismo trata del cuerpo físico, sujeto a experiencias en el plano físico, el cual utiliza la conciencia del cerebro. La tendencia de ese cuerpo es hacia las formas objetivas; propenso (en su estado no regenerado) a gravitar fácilmente hacia los objetivos materiales. La naturaleza de esos objetivos dependerá del grado de evolución del ego experimentador. Esto debe tenerse muy en cuenta <pin lang="en">76</pin> al estudiar este aforismo, de lo contrario será mal interpretada la cláusula final. Debe actuarse con discernimiento en lo que atañe a todas las manifestaciones de fuerza, buena o mala; la ley actúa aquí, pero la emancipación de las formas físicas que dicha energía pueda asumir, se logra aplicando el desapasionamiento a esas formas objetivas. Es conveniente observar que la simpatía a que se refiere, concierne a nuestra relación con los demás peregrinos o con el cuarto reino de la naturaleza; la compasión incluye nuestra relación con los animales o tercer reino; la firmeza de propósito concierne a nuestra relación con la Jerarquía del planeta, y el desapasionamiento a nuestra actitud hacia las reacciones del yo personal inferior. Por lo tanto, el alcance de este aforismo es manifiesto y concierne a todas las vibraciones cerebrales del estudiante.
+
+:::note Recuerda
+
+Es conveniente observar que la simpatía a que se refiere, concierne a nuestra relación con los demás peregrinos o con el cuarto reino de la naturaleza; la compasión incluye nuestra relación con los animales o tercer reino; la firmeza de propósito concierne a nuestra relación con la Jerarquía del planeta, y el desapasionamiento a nuestra actitud hacia las reacciones del yo personal inferior. Por lo tanto, el alcance de este aforismo es manifiesto y concierne a todas las vibraciones cerebrales del estudiante.
+
+:::
+
+En consecuencia el cuerpo físico está considerado como el vehículo que:
+
+1. Ayuda a nuestros semejantes.
+2. Trata compasivamente al reino animal.
+3. Sirve en el plano físico en colaboración con la Jerarquía.
+4. Disciplina el apetito físico y logra el desapasionamiento respecto a todas las formas de atracción hacia los apetitos de los sentidos, sean o no considerados perjudiciales. Todos han de ser trascendidos.
+
+Así se logra la paz, paz de chitta o sustancia mental, paz de las reacciones del cerebro y oportunamente total tranquilidad y calma. La idea está bien expresada por Charles Johnston al traducir este aforismo: "La naturaleza síquica <pin lang="en">77</pin> pasa a una gozosa paz" y el hombre expresa plenitud, naturaleza equilibrada y cabal sensatez de pensamiento y de acción. Toda incapacidad corporal se supera de esta manera y la plenitud expresa la naturaleza de la manifestación. <pin lang="es">62</pin>
+
+### 34. Además la paz de chitta se alcanza mediante la regulación del prana o aliento de la vida. {#af34}
+
+Los estudiantes harán bien en observar que Patanjali incluye el Pranayama (la Ciencia de la Respiración o de la energía pránica), entre otros métodos, para lograr "la paz de chitta. Sin embargo, no hace especial hincapié en ello. Como se ha dicho anteriormente, pranayama es un término que se puede aplicar a tres procedimientos interrelacionados y afines:
+
+1. La **ciencia del vivir rítmico** o regulación de los actos de la vida cotidiana mediante la organización del tiempo y la inteligente utilización del espacio. Por medio de esto, el hombre se convierte en adepto, en creador en el plano físico y en colaborador en los planes de la Jerarquía, tal como se manifiestan en la evolución cíclica.
+2. La **ciencia de la respiración** o la vitalización del hombre inferior, por medio de la inhalación y la exhalación. El hombre se conoce a sí mismo como "alma viviente" y utiliza el factor aliento. Por este medio se hace consciente de la unidad de la vida y de la relación existente entre todas las formas donde mora la vida de Dios. Se convierte en un hermano y también en un adepto, y sabe <pin lang="en">78</pin> que la hermandad es una realidad en la naturaleza y no una sublime teoría.
+3. La **ciencia de los centros** o laya yoga, es la aplicación de la ley a las fuerzas de la naturaleza y la utilización científica de éstas por el hombre. Atañe al ascendente paso de -ciertos septenarios de energía, a través de los centros, a lo largo de la columna vertebral hasta la cabeza, en determinada y específica progresión geométrica. Esto hace del hombre un síquico capacitado y desarrolla en él determinados poderes latentes, que una vez desarrollados lo ponen en contacto con el alma de todas las cosas y con el aspecto subjetivo de la naturaleza.
+
+Es muy significativo observar que este método de llegar a la paz sigue al método de vivir sanamente, dando por resultado un cuerpo físico sano. Más adelante, cuando Patanjali vuelve a referirse a la regulación del aliento y de las corrientes de energía, lo da como el cuarto método de yoga y declara que sólo cuando se ha alcanzado correcto equilibrio (tercer método), por haber guardado los Mandamientos y las Reglas (métodos uno y dos), se ha de intentar tal regulación. Los estudiantes harán bien en estudiar tales métodos y en observar que al hombre sólo le es permitido ocuparse de los centros después que ha equilibrado su vida y purificado su naturaleza, en tal forma, que ya no existe peligro. <pin lang="es">63</pin>
+
+### 35. La estabilidad mental puede obtenerse mediante esas fórmulas de concentración, relacionadas con la percepción sensoria. {#af35}
+
+Aquí tratamos las formas de desenvolvimiento <pin lang="en">79</pin> y de control que culminan en lo que se denomina "gozosa paz"` Hemos visto que las relaciones grupales correctas y un vivir rítmico producirán esa condición donde se logra el aquietamiento de los vehículos o envolturas, pudiendo así el hombre inferior reflejar adecuadamente al hombre superior o espiritual. Veremos ahora ciertos aspectos de la filosofía del Raja Yoga, y la clave para la comprensión de este aforismo reside en la palabra **desapego**. El aspirante, a medida que establece contactos sensorios y, por medio de los cinco sentidos, se relaciona con el mundo fenoménico, asumirá progresivamente la posición del observador. Su conciencia, por lo tanto, se transfiere lentamente de la esfera de los vehículos sensorios a la del "morador del cuerpo".
+
+Es interesante observar aquí la enseñanza hindú sobre el empleo de la lengua y de toda la zona de la nariz y del paladar. La enseñanza ortodoxa oriental hace las siguientes sugerencias:
+
+| Método                                 | Sentido | Resultado           |
+| -------------------------------------- | ------- | ------------------- |
+| Concentración en la punta de la nariz  | olfato  | perfumes.           |
+| Concentración en la raíz de la lengua  | oído    | sonidos.            |
+| Concentración en la punta de la lengua | gusto   | llamas.             |
+| Concentración en mitad de la lengua    | tacto   | vibraciones.        |
+| Concentración en el paladar            | vista   | imágenes, visiones. |
+
+El aspirante no debe tomar estas cosas textualmente ni tratar de meditar a ciegas, por ejemplo, sobre <pin lang="en">80</pin> la punta de la lengua. La lección a aprender, de acuerdo a la Ley de Analogía, es que la lengua tipifica la facultad creadora, el tercer aspecto en su quíntuple naturaleza. La relación de los cinco sentidos (sintetizada en la región de la boca) con los cinco rayos, que constituyen la síntesis regida por el Mahachoan (rector del aspecto de Tercer Rayo en nuestro planeta) será muy iluminadora. El estudiante hallará de valor desentrañar la analogía entre estos cinco rayos, los cinco sentidos y la boca, como órgano de la palabra. A medida que se estudia se verá que dos órganos físicos -la pituitaria y la pineal corresponden a otros dos aspectos, amor-sabiduría o poder organizador, voluntad o propósito. Los siete puntos en la cabeza (en una zona pequeña) son los símbolos, en materia física, de los tres grandes aspectos que se manifiestan como los siete. Por lo tanto, a medida que el aspirante asume la posición de regente de los sentidos y de analizador de sus percepciones sensorias, en forma gradual se va concentrando más mentalmente, y el yogui avanzado <pin lang="es">64</pin> puede, en todo momento, identificarse con cualquiera de las energías de rayo, excluyendo las demás si lo desea.
+
+Se advierte al estudiante que no suponga que esta "paz gozosa" puede lograrse meditando definidamente sobre algún sentido específico. Por la comprensión de las leyes de la creación y del sonido, por el estudio de la placa sonora de la boca y del método por el cual es posible hablar, se pueden conocer los procesos creadores <pin lang="en">81</pin> del mundo, y el hombre adquiere el conocimiento de las leyes, por las cuales todas las formas vienen a la existencia. Los sentidos de los yoguis son por lógica anormalmente agudos, hecho que debe ser recordado.
+
+### 36. Meditando sobre la luz y el resplandor, se puede llegar al conocimiento del espíritu y alcanzar la paz. {#af36}
+
+El estudiante debe observar que cada uno de los métodos que hemos delineado atañe a ciertos centros. Se han mencionado siete métodos de realización y, en consecuencia, puede deducirse que están implicados los siete centros.
+
+| 1er. Método. [Af. 33.](#af33) Centro plexo solar.                                                                                                                                               |
+| ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| La paz de la sustancia mental o chitta, se puede alcanzar practicando la simpatía, la ternura, la firmeza de propósito y el desapasionamiento, respecto al placer y al dolor, al bien y al mal. |
