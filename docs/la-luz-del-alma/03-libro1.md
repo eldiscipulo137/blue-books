@@ -725,3 +725,117 @@ El estudiante debe observar que cada uno de los métodos que hemos delineado ata
 | 1er. Método. [Af. 33.](#af33) Centro plexo solar.                                                                                                                                               |
 | ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | La paz de la sustancia mental o chitta, se puede alcanzar practicando la simpatía, la ternura, la firmeza de propósito y el desapasionamiento, respecto al placer y al dolor, al bien y al mal. |
+
+| 2do. Método. [Af. 34.](#af34) Centro en la base de la columna vertebral.                   |
+| ------------------------------------------------------------------------------------------ |
+| La paz de chitta se alcanza también mediante la regulación del prana o aliento de la vida. |
+
+| 3er. Método. [Af. 35.](#af35) Centro entre las cejas.                                                                   |
+| ----------------------------------------------------------------------------------------------------------------------- |
+| La estabilidad mental puede obtenerse mediante esas fórmulas de concentración, relacionadas con la percepción sensoria. |
+
+| 4to. Método. [Af. 36.](#af36) Centro coronario                                                          |
+| ------------------------------------------------------------------------------------------------------- |
+| Meditando sobre la luz y el resplandor,  se puede llegar al conocimiento del espíritu y alcanzar la paz |
+
+| 5to. Método. [Af. 37.](#af37) Centro sacro.                                                                                     |
+| ------------------------------------------------------------------------------------------------------------------------------- |
+| La mente se estabiliza y queda liberada de la ilusión, a medida que se purifica la naturaleza inferior y ya no se la satisface. |
+
+| 6to. Método. [Af. 38.](#af38) Centro laríngeo.                                                                           |
+| ------------------------------------------------------------------------------------------------------------------------ |
+| La paz (estabilización de la mente o chitta) puede lograrse meditando sobre el conocimiento que proporcionan los sueños. |
+
+| 7mo. Método. [Af. 39.](#af39) Centro cardíaco.                               |
+| ---------------------------------------------------------------------------- |
+| La paz también se alcanza concentrándose e en lo que el corazón más aprecia. |
+
+<p>
+<pin lang="es">65</pin> Estos métodos deberían ser considerados cuidadosamente, aunque aquí no se puedan dar detalles acerca del procedimiento. El estudiante sólo puede considerar el principio y la ley involucrados. Además debe recordar que estos centros tienen sus analogías en la materia etérica de la región de la cabeza, y que, cuando estos siete centros de la cabeza han despertado, las contrapartes se despiertan sin ningún peligro. Estos siete centros de la cabeza corresponden en el microcosmos a los siete Rishis de la Osa Mayor, los prototipos de los siete Hombres celestiales, y los siete centros ya enumerados se relacionan con la energía de los siete Hombres celestiales.
+</p>
+
+No es necesario que nos extendamos aquí sobre estos siete centros, excepto para indicar que:
+
+1. El aspirante puede considerar simbólicamente cada centro como una flor de loto.
+2. Este loto está formado por unidades de energía que se mueven o vibran en forma específica, y estas ondas vibratorias asumen las formas que denominamos pétalos del loto. <pin lang="en">83</pin>
+3. Cada loto consta de
+   1. un cierto número de pétalos,
+   2. un pericarpio o cáliz que lo sostiene,
+   3. un centro de luz blanca pura, denominado  “la Joya".
+4. Cada centro corresponde a un planeta sagrado, el cuerpo de manifestación de cada uno de los siete Hombres celestiales.
+5. Cada centro debe ser desarrollado mediante el empleo de la Palabra. Esta palabra es AUM, y debe surgir oportunamente en el vibrante centro. Cuando brille perfectamente dentro de la rueda, entonces ese centro estará perfectamente despierto.
+6. Ciertas cualidades del Sol son cualidades de los centros:
+
+| Centro                                    | Cualidad                  |
+| ----------------------------------------- | ------------------------- |
+| Centro plexo solar                        | Calor.                    |
+| Centro en la base de la columna vertebral | Fuego kundalini.          |
+| Centro ajna, entre las cejas              | Luz iluminadora.          |
+| Centro coronario                          | Luz fría                  |
+| Centro sacro                              | Humedad                   |
+| Centro laríngeo                           | Luz roja                  |
+| Centro cardíaco                           | luz radiante o magnética. |
+
+Este aforismo recomienda practicar la meditación sobre la luz y el resplandor, y enseña que por medio de esa luz y la capacidad de emplearla, es posible conocer el espíritu. En el centro del "chacra del corazón mora Brahma, dice la antigua Escritura, y Él se <pin lang="es">66</pin> revela en la luz. Por lo tanto, el aspirante debe ser consciente del "punto de luz dentro de la rueda de doce <pin lang="en">84</pin> rayos”, y a medida que se concentra sobre ese punto de luz, le es revelado el camino que el aspirante debe recorrer si quiere alcanzar su meta. Lo primero que se revela es la oscuridad, lo cual debe tenerse en cuenta. En términos del misticismo occidental, esto produce "la noche oscura del alma". Sin embargo, no nos detendremos en el aspecto místico, pues es necesario mantener nuestras conclusiones dentro de las líneas esotéricas. La verdad ha sido tratada frecuente y adecuadamente en términos del misticismo cristiano.
+
+### 37. La mente (chitta) se estabiliza y queda liberada de la ilusión, a medida que se purifica la naturaleza inferior y ya no se la satisface. {#af37}
+
+Esta traducción es particularmente libre, debido a que las palabras empleadas en sánscrito son difíciles de interpretar con exactitud. Imparte la idea de que cuando los órganos de percepción y los contactos sensorios son continuamente rechazados por el verdadero hombre (que ya no trata de identificarse con ellos), entonces "queda liberado de la pasión", supera el calor o deseo por los objetos, liberándose de su naturaleza inferior sensoria. Ello da por resultado la correspondiente estabilidad mental y la capacidad de concentrarse, porque la sustancia mental ya no está sujeta a las modificaciones producidas por las reacciones sensorias de todo tipo, denominadas buenas o malas.
+
+Esto mismo lo recomiendan insistentemente muchos sistemas. Uno de los métodos sugeridos es la <pin lang="en">85</pin> meditación constante sobre grandes Entidades, Krishna, Buda y Cristo, liberadas ya de todas las reacciones sensorias. Esta idea se destaca en alguna de las traducciones, pero desde cierto punto de vista no parece ser la idea principal. La liberación del apego se produce cuando se vencen los fuegos del deseo. Aunque se representa al centro sacro como específicamente relacionado con la naturaleza sexual (cuando se expresa en el plano físico), sin embargo simboliza cualquier apego entre el alma y algún objeto deseado, que no sea el espíritu.
+
+### 38. La paz (estabilización de la sustancia mental o chitta) puede lograrse meditando sobre el conocimiento que proporcionan los sueños. {#af38}
+
+Las palabras significativas de este aforismo son "el conocimiento que proporcionan los sueños". A este respecto es interesante el comentario sobre el [Af. 10.](#af10) El ocultista oriental emplea <pin lang="es">67</pin> la palabra "sueño" en un sentido mucho más técnico que el occidental, y el estudiante debe captarlo plenamente. Sueño profundo para el oriental es esa condición en que está sumido el verdadero hombre cuando está en encarnación física. Esto corresponde al estado de ensueño causado por la vibración de las células del cerebro físico. Caos, carencia de continuidad y acontecimientos irregulares, más la incapacidad de recordar verdadera y exactamente, se producen cuando despertamos. Esto es soñar en el plano físico. <pin lang="en">86</pin> Además tenemos el ensueño, del que el hombre participa cuando está sumergido en cualquier percepción sensoria, ya sea de placer o dolor, experimentándolo en el cuerpo astral o emocional. El conocimiento adquirido en el plano físico es, en su mayor parte, instintivo; el que se obtiene en el sueño astral es en gran parte sensorio. Uno es comprensión racial y grupal; el otro es relativo al no-yo y a la relación del hombre con el no-yo.
+
+Tenemos además un estado más elevado de conciencia en el sueño, donde entra en juego una facultad de otro tipo, que podemos denominar imaginación, trayendo su propia forma de conocimiento. La imaginación implica ciertos estados mentales como:
+
+1. Recordación de las cosas según fueron conocidas, como ser los estados de conciencia
+2. Anticipación de las cosas tal como pueden ser conocidas, o de los estados de conciencia.
+3. Visualización de las condiciones imaginarias, y luego utilización de la imagen invocada como una forma, por la cual puede hacerse contacto con un nuevo reino de conocimiento, cuando el soñador puede identificarse con lo imaginado.
+
+En estos tres estados de ensueño tenemos la condición del pensador en los tres planos de los tres mundos, desde el estado de ignorante salvajismo, al del hombre inteligente común, condición que lleva luego a un estado mucho más elevado de conciencia en el sueño.
+
+El verdadero empleo de la imaginación requiere un alto grado de control y poder mental, y <pin lang="en">87</pin> cuando existen, conduce oportunamente al estado de "samadhi", condición en que el adepto puede hacer dormir al hombre inferior y pasar él, a su vez, al reino donde los "sueños de Dios" son conocidos y puede conocer, ver y hacer contacto con las imágenes que la Deidad ha creado De esta manera el adepto podrá participar inteligentemente en el gran plan de evolución.
+
+Más allá de este estado de samadhi, está el estado de ensueño de los Nirmanakayas y de los Budas, y así sucesivamente, en la escala de la vida jerárquica, hasta que se conoce al Gran Soñador, <pin lang="es">68</pin> el Uno, el único Narayana, el Señor del Mundo, el Anciano de los Días, nuestro Logos planetario. El estudiante sólo puede alcanzar una muy tenue comprensión de la naturaleza de estos estados de ensueño, a medida que estudia la idea impartida en la afirmación anterior de que, para el ocultista, la vida en el plano físico no es más que un sueño.
+
+### 39. La paz también se alcanza concentrándose en lo que el corazón más aprecia. {#af39}
+
+Por su misma sencillez este aforismo encierra un poderoso atractivo. En él se pueden seguir las variadas etapas de realización -deseo, anhelo, fija determinación de poseer, rechazo de todo lo que no satisface ese requisito, abandono de todo a fin de obtener nuevas posesiones, luego la posesión en sí, la satisfacción, la paz. Pero como sucede con todo lo que pertenece a <pin lang="en">88</pin> los deseos inferiores, la paz es temporaria; despierta un nuevo deseo, y lo que se ha retenido tan gozosamente se abandona. Sólo satisface plenamente el fruto de las edades y la recuperación de las antiguas posesiones. Por lo tanto, que el estudiante analice y compruebe si lo que más aprecia su corazón es temporario, transitorio y efímero, o si es, como el gran Señor ha dicho, "el tesoro acumulado en los cielos".
+
+Llegamos ahora al aforismo 40, el más comprensible del libro. Debe tenerse aquí presente que estos "siete caminos hacia la paz síquica" según se los denomina, abarcan los siete métodos de los siete rayos, en relación con el control de la naturaleza síquica. Es importante hacer resaltar esto. Los siete caminos tienen relación directa con las cuatro iniciaciones en el umbral, pues ningún hijo de Dios podrá recibir una iniciación mayor si no ha logrado cierta medida de paz síquica. Será de interés para el estudiante desarrollar estos siete caminos hacia la paz, en relación con cualquiera de los siete rayos, asignándole uno de los caminos que le parece más apropiado al rayo.
+
+:::note Recuerda
+
+Será de interés para el estudiante desarrollar estos siete caminos hacia la paz, en relación con cualquiera de los siete rayos, asignándole uno de los caminos que le parece más apropiado al rayo.
+
+:::
+
+
+### 40. Así su comprensión se extiende desde lo infinitamente pequeño a lo infinitamente grande, y su conocimiento se perfecciona desde annu (el átomo o partícula) hasta atma (o espíritu). {#af40}
+
+Esta traducción no se ajusta exactamente a los términos sánscritos, no obstante, expresa el significado exacto del original, lo cual es algo <pin lang="en">89</pin> de vital importancia. Un versículo de una escritura oculta, que sirve para dilucidar la idea de este aforismo, dice: <pin lang="es">69</pin> "Dentro de la partícula se puede ver a Dios. Dentro del hombre, Dios puede reinar. Ambos se hallan dentro de Brahma; no obstante, todo es uno. El átomo es como Dios, Dios como el átomo".
+
+Es una manifiesta verdad oculta que cuando el hombre llega a conocerse a sí mismo, de acuerdo a la gran Ley de Analogía, llega a conocer a Dios. Este conocimiento comprende cinco grandes aspectos:
+
+1. Forma
+2. Componentes de la forma
+3. Fuerzas
+4. Grupos
+5. Energía
+
+El hombre debe comprender la naturaleza de su cuerpo y de todas sus envolturas. Esto concierne al conocimiento que él tiene de la forma. Descubre que las formas se componen de átomos o "puntos de energía", y que todas son iguales en ese sentido. Este conocimiento concierne a los componentes de la forma. Luego llega a conocer el conjunto de energías de los átomos que constituyen sus formas o, en otras palabras, el conocimiento de las diversas fuerzas, cuya naturaleza está determinada por el ritmo, la actividad y la cualidad de los átomos, que forman la envoltura o envolturas. Este conocimiento concierne a las fuerzas. Más tarde descubre formas análogas con vibraciones y manifestaciones de fuerza también análogas. Este conocimiento concierne a los grupos, en consecuencia, descubre el lugar que le corresponde y sabe cuál es su trabajo. Finalmente alcanza el conocimiento <pin lang="en">90</pin> de lo que concierne a todas las formas y de lo que controla todas las fuerzas, y constituye el poder motivador de todos los grupos. Este conocimiento concierne a la energía y tiene que ver con la naturaleza del espíritu. Por medio de estos cinco conocimientos el hombre llega a la maestría, porque el conocimiento implica ciertos factores que podrían ser enumerados como:
+
+1. Aspiración
+2. Estudio e investigación
+3. Experimento
+4. Descubrimiento
+5. Identificación
+6. Comprensión
+
+El adepto puede identificarse con la conciencia de lo infinitamente pequeño, o penetrar en ella. Puede identificarse con el átomo de sustancia y conocer lo que aún es desconocido para el científico moderno. También se da cuenta que el reino humano (compuesto de átomos humanos) es el punto medio o estación intermedia en la escala de evolución, por lo tanto, lo infinitamente <pin lang="es">70</pin> pequeño está relativamente tan alejado de él como lo infinitamente grande. El camino a recorrer para abarcar la conciencia más diminuta de todas las manifestaciones de Dios, es tan largo como lo es abarcar la conciencia más grande, un sistema solar. No obstante, en todos estos campos de la conciencia, el método para dominarlos es el mismo, meditación perfectamente concentrada que lleva a ejercer perfecto poder sobre la mente, y está constituida en tal forma, que lo mismo sirve de telescopio, que pone al observador en contacto con el macrocosmos, como un microscopio, que lo pone en contacto con el átomo más diminuto. <pin lang="en">91</pin>
+
+### 41. Aquel que ha controlado totalmente sus "vrittis" (modificaciones de la sustancia mental), llega a un estado de identificación y similitud con lo que ha conocido. El conocedor, el conocimiento y el campo del conocimiento se convierten en uno, así como el cristal toma los colores de lo que refleja. {#af41}
+
+Este aforismo deriva lógicamente del anterior. El perfecto vidente abarca en su conciencia todo el campo del conocimiento, desde el punto de vista del observador o del perceptor y desde el ángulo de la identificación. Es uno con el átomo de sustancia, siendo capaz de conocer el universo más diminuto; es uno con el sistema solar, el más vasto universo que se le permite conocer en este ciclo mayor. Ve que su alma y al alma del átomo y del sistema son idénticas –en uno observa la potencialidad y (desde el punto de vista humano) en el otro un incomprensible orden que lleva a la perfección final. La actividad que mantiene a los electrones unidos alrededor de su centro, es reconocida como de naturaleza idéntica a la que mantiene a los planetas en sus órbitas alrededor del sol, y entre ambas manifestaciones divinas se halla toda la gama de formas.

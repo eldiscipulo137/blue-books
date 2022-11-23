@@ -34,16 +34,16 @@ title: Libro I. El problema de la unión
 28. Mediante la emisión de la Palabra y la reflexión sobre su significado, se descubre el Camino. <af book="1" af="28"/>
 29. Por esto llega el conocimiento del yo (el alma) y la eliminación de todos los obstáculos. <af book="1" af="29"/>
 30. Los obstáculos para el conocimiento del alma son: incapacidad corporal, inercia mental, duda, abandono, pereza, apasionamiento, percepción errónea, incapacidad para lograr la concentración, o imposibilidad para mantener la actitud meditativa una vez alcanzada. <af book="1" af="30"/>
-31. Los resultados de los obstáculos sobre la naturaleza psíquica inferior son: dolor, desesperación, errónea actividad corporal y equívoca dirección o control, de las corrientes de vida.
-32. Para superar los obstáculos y sus derivados, se requiere intensa aplicación de la voluntad a alguna verdad o principio.
-33. La paz de la sustancia mental o chitta, se puede alcanzar practicando la simpatía, la ternura, la firmeza de propósito y el desapasionamiento, respecto al placer y al dolor, o a todas las formas del bien y del mal.
-34. Además la paz de chitta se alcanza mediante la regulación del prana o aliento de la vida.
-35. La estabilidad mental puede obtenerse mediante esas fórmulas de concentración, relacionadas con la percepción sensoria.
-36. Meditando sobre la luz y el resplandor, se puede llegar al conocimiento del espíritu y alcanzar la paz.
-37. La mente (chitta) se estabiliza y queda liberada de la ilusión, a medida que se purifica la naturaleza inferior y ya no se la satisface.
-38. La paz (estabilización de la sustancia mental o chitta) puede lograrse meditando sobre el conocimiento que proporcionan los sueños.
-39. La paz también se alcanza concentrándose en lo que el corazón más aprecia.
-40. Así su comprensión se extiende desde lo infinitamente pequeño hasta lo infinitamente grande y su conocimiento se perfecciona desde annu (el átomo o partícula) hasta atma (o espíritu).
+31. Los resultados de los obstáculos sobre la naturaleza psíquica inferior son: dolor, desesperación, errónea actividad corporal y equívoca dirección o control, de las corrientes de vida. <af book="1" af="31"/>
+32. Para superar los obstáculos y sus derivados, se requiere intensa aplicación de la voluntad a alguna verdad o principio. <af book="1" af="32"/>
+33. La paz de la sustancia mental o chitta, se puede alcanzar practicando la simpatía, la ternura, la firmeza de propósito y el desapasionamiento, respecto al placer y al dolor, o a todas las formas del bien y del mal. <af book="1" af="33"/>
+34. Además la paz de chitta se alcanza mediante la regulación del prana o aliento de la vida. <af book="1" af="34"/>
+35. La estabilidad mental puede obtenerse mediante esas fórmulas de concentración, relacionadas con la percepción sensoria. <af book="1" af="35"/>
+36. Meditando sobre la luz y el resplandor, se puede llegar al conocimiento del espíritu y alcanzar la paz. <af book="1" af="36"/>
+37. La mente (chitta) se estabiliza y queda liberada de la ilusión, a medida que se purifica la naturaleza inferior y ya no se la satisface. <af book="1" af="37"/>
+38. La paz (estabilización de la sustancia mental o chitta) puede lograrse meditando sobre el conocimiento que proporcionan los sueños. <af book="1" af="38"/>
+39. La paz también se alcanza concentrándose en lo que el corazón más aprecia. <af book="1" af="39"/>
+40. Así su comprensión se extiende desde lo infinitamente pequeño hasta lo infinitamente grande y su conocimiento se perfecciona desde annu (el átomo o partícula) hasta atma (o espíritu). <af book="1" af="40"/>
 41. Aquel que ha controlado totalmente sus "vrittis" (modificaciones de la sustancia mental), llega a un estado de identificación y similitud con lo que ha conocido. El conocedor, el conocimiento y el campo del conocimiento se convierten en uno; así como el cristal toma los colores de lo que refleja. [e17]
 42. Cuando el perceptor mezcla la palabra, la idea (el significado) y el objeto, esto es denominado estado mental de razonamiento sensato.
 43. Se llega a la percepción sin un razonamiento sensato cuando la memoria ya no controla, entonces la palabra y el objeto son trascendidos y sólo la idea está presente.
