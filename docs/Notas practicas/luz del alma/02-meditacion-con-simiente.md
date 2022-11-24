@@ -9,7 +9,7 @@ title: Meditación con simiente
 
 ### 42. Cuando el perceptor mezcla la palabra, la idea (el significado) y el objeto, esto es denominado estado mental de razonamiento sensato. {#af42}
 
-Patanjali amplía, en este aforismo y en el siguiente, la verdad formulada anteriormente ([véase Af. 7</pin>{#af7}) y enseña que la meditación es de dos tipos:
+Patanjali amplía, en este aforismo y en el siguiente, la verdad formulada anteriormente ([véase Af. 7](#af7)) y enseña que la meditación es de dos tipos:
 
 1. **Con un objeto o con simiente**, por lo tanto se emplea la mente razonadora sensatamente, el cuerpo mental con su facultad concretizadora y su capacidad de crear formas mentales.
 2. **Sin un objeto o sin simiente**, empleando por consiguiente una facultad distinta, posible solo cuando se comprende y utiliza correctamente la mente concreta, <pin lang="en">95</pin> lo cual implica la capacidad de aquietar "las modificaciones de la mente", chitta o sustancia mental, de manera que pueda tomar el matiz del conocimiento superior y reflejar las realidades superiores.
