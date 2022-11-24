@@ -44,14 +44,14 @@ title: Libro I. El problema de la unión
 38. La paz (estabilización de la sustancia mental o chitta) puede lograrse meditando sobre el conocimiento que proporcionan los sueños. <af book="1" af="38"/>
 39. La paz también se alcanza concentrándose en lo que el corazón más aprecia. <af book="1" af="39"/>
 40. Así su comprensión se extiende desde lo infinitamente pequeño hasta lo infinitamente grande y su conocimiento se perfecciona desde annu (el átomo o partícula) hasta atma (o espíritu). <af book="1" af="40"/>
-41. Aquel que ha controlado totalmente sus "vrittis" (modificaciones de la sustancia mental), llega a un estado de identificación y similitud con lo que ha conocido. El conocedor, el conocimiento y el campo del conocimiento se convierten en uno; así como el cristal toma los colores de lo que refleja. [e17]
-42. Cuando el perceptor mezcla la palabra, la idea (el significado) y el objeto, esto es denominado estado mental de razonamiento sensato.
-43. Se llega a la percepción sin un razonamiento sensato cuando la memoria ya no controla, entonces la palabra y el objeto son trascendidos y sólo la idea está presente.
-44. Ambos procesos de concentración, con o sin la acción sensata de la mente, pueden ser aplicados también a cosas sutiles
-45. Lo denso conduce a lo sutil; lo sutil lleva, por etapas sucesivas, al estado del ser espiritual puro llamado Pradhana.
-46. Todo esto es meditación con simiente.
-47. Cuando se ha alcanzado este estado super contemplativo, el yogui adquiere la comprensión espiritual pura, por medio de la quietud equilibrada de la sustancia mental o chitta.
-48. Su percepción es ahora infaliblemente exacta, o su mente revela únicamente la Verdad.
-49. Esta percepción particular es excepcional y revela lo que la mente razonadora, mediante el testimonio, la inferencia y la deducción, no puede revelar.
-50. Es hostil a las demás impresiones o las reemplaza.
-51. Cuando este estado de percepción se ha refrenado o es reemplazado, se alcanza el estado puro de samadhi.
+41. Aquel que ha controlado totalmente sus "vrittis" (modificaciones de la sustancia mental), llega a un estado de identificación y similitud con lo que ha conocido. El conocedor, el conocimiento y el campo del conocimiento se convierten en uno; así como el cristal toma los colores de lo que refleja. [e17] <af book="1" af="41"/>
+42. Cuando el perceptor mezcla la palabra, la idea (el significado) y el objeto, esto es denominado estado mental de razonamiento sensato. <af book="1" af="42"/>
+43. Se llega a la percepción sin un razonamiento sensato cuando la memoria ya no controla, entonces la palabra y el objeto son trascendidos y sólo la idea está presente. <af book="1" af="43"/>
+44. Ambos procesos de concentración, con o sin la acción sensata de la mente, pueden ser aplicados también a cosas sutiles <af book="1" af="44"/>
+45. Lo denso conduce a lo sutil; lo sutil lleva, por etapas sucesivas, al estado del ser espiritual puro llamado Pradhana. <af book="1" af="45"/>
+46. Todo esto es meditación con simiente. <af book="1" af="46"/>
+47. Cuando se ha alcanzado este estado super contemplativo, el yogui adquiere la comprensión espiritual pura, por medio de la quietud equilibrada de la sustancia mental o chitta. <af book="1" af="47"/>
+48. Su percepción es ahora infaliblemente exacta, o su mente revela únicamente la Verdad. <af book="1" af="48"/>
+49. Esta percepción particular es excepcional y revela lo que la mente razonadora, mediante el testimonio, la inferencia y la deducción, no puede revelar. <af book="1" af="49"/>
+50. Es hostil a las demás impresiones o las reemplaza. <af book="1" af="50"/>
+51. Cuando este estado de percepción se ha refrenado o es reemplazado, se alcanza el estado puro de samadhi. <af book="1" af="51"/>
