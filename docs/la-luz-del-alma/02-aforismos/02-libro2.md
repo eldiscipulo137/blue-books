@@ -4,33 +4,33 @@ title: Libro II. Los pasos hacia la unión
 
 # Libro II. Los pasos hacia la unión 
 
-1. La yoga de acción, que conduce a la unión con el alma, es aspiración ardiente, lectura espiritual y devoción a Ishvara.
-2. La finalidad de aspiración ardiente, lectura espiritual y devoción a Ishvara, consiste en obtener la visión del alma y en eliminar los obstáculos.
-3. Los obstáculos que traen dificultad son: avidya (ignorancia), el sentido de lo personal, deseo, odio y apego.
-4. Avidya (ignorancia) es la causa de las demás obstrucciones, ya sean latentes, en proceso de eliminación, de superación o en plena actividad.
-5. Avidya es la condición en que se confunde lo permanente, puro, bienaventurado y el yo, con lo transitorio, impuro, doloroso y el no-yo.
-6. El sentido de lo personal se debe a que el conocedor se identifica con el instrumento del conocimiento.
-7. El deseo es apego a los objetos de placer.
-8. El odio es aversión a cualquier objeto de los sentidos.
-9. El apego es intenso deseo por la existencia sensoria, inherente a toda forma; es la propia perpetuación, y es conocido hasta por los más sabios.
-10. Cuando estos cinco obstáculos son sutilmente conocidos, pueden ser superados mediante la actitud mental opuesta.
-11. Las actividades de los obstáculos deben cesar por el proceso de la meditación.
-12. El karma tiene sus raíces en estos cinco obstáculos y debe fructificar en esta vida o en una posterior. [i116]
-13. Mientras existan las raíces (o samskaras), fructificarán como nacimiento, vida y experiencias, y su resultado será placer o dolor.
-14. Las simientes (o samskaras) traen placer y dolor, si sus causas originantes fueron el bien o el mal.
-15. El hombre iluminado considera que toda existencia (en los tres mundos) es dolor, debido a las actividades de los gunas. Estas actividades son tres, produciendo consecuencias, ansiedades e impresiones sublimadas.
-16. El dolor puede ser evitado antes de producirse.
-17. La ilusión de que el Perceptor y lo percibido son una y la misma cosa, es la causa (de los efectos que producen dolor) que debe evitarse
-18. Lo que se percibe tiene tres cualidades: sattva, rajas y tamas (ritmo, movimiento e inercia), y está compuesto de elementos y órganos [e83] sensorios. Su empleo produce experiencia y eventualmente liberación.
-19. La división de los gunas (o cualidades de la materia) son cuatro: lo específico, lo no específico, lo insinuado y lo intocable.
-20. El vidente es conocimiento puro (gnosis). Aunque puro, observa la idea presentada, valiéndose de la mente.
-21. Todo lo que es, existe para bien del alma.
-22. Para el hombre que ha alcanzado la yoga (unión), ya no existe el universo objetivo. No obstante, sigue existiendo para quienes aún no se han liberado.
-23. La asociación del alma con la mente y con todo cuanto la mente percibe, produce la comprensión de la naturaleza de lo percibido y también la del Perceptor.
-24. La causa de esta asociación es ignorancia o avidya, y esto debe superarse.
-25. Cuando la ignorancia llega a su término, debido a la no asociación con las cosas percibidas, se obtiene la gran liberación.
-26. El estado de esclavitud se supera manteniendo una perfecta discriminación. [i117]
-27. El conocimiento (o iluminación) alcanzado es séptuple y se obtiene progresivamente.
+1. La yoga de acción, que conduce a la unión con el alma, es aspiración ardiente, lectura espiritual y devoción a Ishvara. <af book="2" af="1"/>
+2. La finalidad de aspiración ardiente, lectura espiritual y devoción a Ishvara, consiste en obtener la visión del alma y en eliminar los obstáculos. <af book="2" af="2"/>
+3. Los obstáculos que traen dificultad son: avidya (ignorancia), el sentido de lo personal, deseo, odio y apego. <af book="2" af="3"/>
+4. Avidya (ignorancia) es la causa de las demás obstrucciones, ya sean latentes, en proceso de eliminación, de superación o en plena actividad. <af book="2" af="4"/>
+5. Avidya es la condición en que se confunde lo permanente, puro, bienaventurado y el yo, con lo transitorio, impuro, doloroso y el no-yo. <af book="2" af="5"/>
+6. El sentido de lo personal se debe a que el conocedor se identifica con el instrumento del conocimiento. <af book="2" af="6"/>
+7. El deseo es apego a los objetos de placer. <af book="2" af="7"/>
+8. El odio es aversión a cualquier objeto de los sentidos. <af book="2" af="8"/>
+9. El apego es intenso deseo por la existencia sensoria, inherente a toda forma; es la propia perpetuación, y es conocido hasta por los más sabios. <af book="2" af="9"/>
+10. Cuando estos cinco obstáculos son sutilmente conocidos, pueden ser superados mediante la actitud mental opuesta. <af book="2" af="10"/>
+11. Las actividades de los obstáculos deben cesar por el proceso de la meditación. <af book="2" af="11"/>
+12. El karma tiene sus raíces en estos cinco obstáculos y debe fructificar en esta vida o en una posterior. [i116] <af book="2" af="12"/>
+13. Mientras existan las raíces (o samskaras), fructificarán como nacimiento, vida y experiencias, y su resultado será placer o dolor. <af book="2" af="13"/>
+14. Las simientes (o samskaras) traen placer y dolor, si sus causas originantes fueron el bien o el mal. <af book="2" af="14"/>
+15. El hombre iluminado considera que toda existencia (en los tres mundos) es dolor, debido a las actividades de los gunas. Estas actividades son tres, produciendo consecuencias, ansiedades e impresiones sublimadas. <af book="2" af="15"/>
+16. El dolor puede ser evitado antes de producirse. <af book="2" af="16"/>
+17. La ilusión de que el Perceptor y lo percibido son una y la misma cosa, es la causa (de los efectos que producen dolor) que debe evitarse <af book="2" af="17"/>
+18. Lo que se percibe tiene tres cualidades: sattva, rajas y tamas (ritmo, movimiento e inercia), y está compuesto de elementos y órganos [e83] sensorios. Su empleo produce experiencia y eventualmente liberación. <af book="2" af="18"/>
+19. La división de los gunas (o cualidades de la materia) son cuatro: lo específico, lo no específico, lo insinuado y lo intocable. <af book="2" af="19"/>
+20. El vidente es conocimiento puro (gnosis). Aunque puro, observa la idea presentada, valiéndose de la mente. <af book="2" af="2"/>
+21. Todo lo que es, existe para bien del alma. <af book="2" af="21"/>
+22. Para el hombre que ha alcanzado la yoga (unión), ya no existe el universo objetivo. No obstante, sigue existiendo para quienes aún no se han liberado. <af book="2" af="22"/>
+23. La asociación del alma con la mente y con todo cuanto la mente percibe, produce la comprensión de la naturaleza de lo percibido y también la del Perceptor. <af book="2" af="23"/>
+24. La causa de esta asociación es ignorancia o avidya, y esto debe superarse. <af book="2" af="24"/>
+25. Cuando la ignorancia llega a su término, debido a la no asociación con las cosas percibidas, se obtiene la gran liberación. <af book="2" af="25"/>
+26. El estado de esclavitud se supera manteniendo una perfecta discriminación. [i117] <af book="2" af="26"/>
+27. El conocimiento (o iluminación) alcanzado es séptuple y se obtiene progresivamente. <af book="2" af="27"/>
 28. Cuando los métodos de la yoga han sido practicados con constancia y se ha vencido la impureza, tiene lugar el esclarecimiento, que conduce a la plena iluminación.
 29. Los ocho métodos de yoga son: los mandamientos o yama, las reglas o nijama, la postura o asana, correcto control de la fuerza vital o pranayama, abstracción o pratyahara, atención o dharana, meditación o dhyana y contemplación o samadhi.
 30. Inofensividad, veracidad, no hurtar, continencia, no ser avaro, constituyen yama o los cinco mandamientos.
