@@ -506,3 +506,154 @@ Un instructor hindú ha descrito las siete etapas de la iluminación de la maner
 Éstas son las siete etapas del sendero, las siete estaciones de la cruz, como dice el cristiano, las siete grandes iniciaciones y los siete caminos hacia la bienaventuranza. Ahora el "sendero de los justos brilla cada vez más hasta el día perfecto". <pin lang="es">121</pin>
 
 ## LOS OCHO MÉTODOS
+
+### 28. Cuando los métodos de la yoga han sido practicados con constancia y se ha vencido la impureza, tiene lugar el esclarecimiento, que conduce a la plena iluminación. {#af28}
+
+Llegamos ahora a la parte práctica en la cual se da instrucción sobre el método a seguir para alcanzar la yoga, la plena unión o unificación. El trabajo puede considerarse dual.
+
+1. La práctica de los métodos correctos, por los cuales se logra la unión.
+2. La disciplina del triple hombre inferior, a fin de desarraigar toda impureza de los tres cuerpos.
+
+La persistente aplicación a este trabajo dual produce los resultados correspondientes, dependiendo cada uno de su causa:
+
+1. La **discriminación** se hace posible. La práctica de los métodos lleva al aspirante a la comprensión científica de la diferencia existente entre el yo y el no-yo y entre espíritu y materia. Este conocimiento ya no es teórico, ni lo que el hombre aspira, pues se convierte en una realidad en la experiencia del discípulo, en la cual basa todas las actividades subsiguientes.
+2. El **discernimiento** tiene lugar. A medida que avanza el proceso de purificación, las envolturas o cuerpos que velan la realidad se sutilizan y ya no actúan como densos velos que le ocultan al alma el mundo donde normalmente ella actúa. El aspirante se da cuenta de una parte de sí mismo, <pin lang="en">179</pin> hasta entonces oculta y desconocida. Se acerca al corazón del misterio de sí mismo; se aproxima al "Ángel de la Presencia", al que sólo puede ver realmente en el momento de la iniciación. Percibe un nuevo factor y un nuevo mundo, y trata de apropiarse de ello durante la experiencia consciente en el plano físico.
+
+Se verá que las dos causas de la revelación, la práctica de los ocho métodos de la yoga y la purificación de la vida en los tres mundos, tienen que ver con el hombre desde el punto de vista de los tres mundos y producen (en su cerebro físico) el poder de discriminar entre lo real y lo irreal y discernir sobre las cosas del espíritu. Producen también ciertos cambios en las condiciones existentes dentro de la cabeza, reorganizan los aires vitales, actuando directamente sobre la glándula pineal y el cuerpo pituitario. Cuando
+
+1. la práctica,
+2. la purificación, <pin lang="es">122</pin>
+3. la discriminación y
+4. el discernimiento,
+
+forman parte de la vida del hombre en el plano físico, entonces el hombre espiritual, el ego o pensador, en su propio plano, desempeña su parte en el proceso liberador, y las dos etapas finales son llevadas a cabo en forma descendente. Este séxtuple proceso es la analogía, en el sendero del discipulado, del proceso de individualización, por el cual el hombre-animal, el cuaternario inferior (físico, etérico, astral y mental inferior) recibió esa doble expresión del espíritu, atma-budi, voluntad y amor espirituales, que lo completaron y convirtieron en el <pin lang="en">180</pin> hombre verdadero. Las dos etapas de desarrollo inducidas por el ego, en el aspirante purificado y decidido, son
+
+1. **Esclarecimiento**. La luz de la cabeza, que al principio es sólo una chispa, se convierte en una llama que ilumina todas las cosas, siendo nutrida constantemente desde arriba. Esto es progresivo (véase el aforismo anterior) y depende de la práctica persistente, de la meditación y del servicio activo.
+2. **Iluminación**. El descenso, de la energía ígnea acrecentado gradualmente, intensifica constantemente la "luz de la cabeza" o el resplandor en el cerebro, alrededor de la glándula pineal. Esto, respecto al pequeño sistema del triple hombre en manifestación física, es lo que el sol físico para el sistema solar. La luz se convierte con el tiempo en un resplandor de gloria y el hombre se trasforma en un "hijo de la luz" o en un "sol de rectitud". Tales fueron Buda el Cristo y todos los grandes Seres que han alcanzado la meta.
+
+### 29. Los ocho métodos de yoga son: los mandamientos o yama, las reglas o nijama, la postura o asana, correcto control de la fuerza vital o pranayama, abstracción o pratyahara, atención o dharana, meditación o dhyana y contemplación o samadhi. {#af29}
+
+Se observará que estos métodos o prácticas son aparentemente simples, pero se tendrá muy en cuenta que no se refieren a algo que debe realizarse en cualquier plano, en determinado cuerpo, sino a la actividad y práctica simultánea de estos métodos en los tres cuerpos a la vez; <pin lang="en">181</pin> de modo que el entero triple hombre inferior practica los métodos cuando se refieren a los vehículos físico, astral y mental. Esto frecuentemente se olvida. Por lo tanto al estudiar los diversos métodos de yoga o unión, debemos considerar que se aplican al hombre físico, luego al hombre emocional y después al hombre mental. Por ejemplo, el yogui debe comprender el significado de la respiración correcta o de la postura, pues se relacionan <pin lang="es">123</pin> con el triple hombre inferior, alineado y coordinado, teniendo presente que sólo cuando el hombre inferior constituye un instrumento coherente y rítmico, el ego puede esclarecerlo e iluminarlo. La práctica de ejercicios de respiración, por ejemplo, con frecuencia ha conducido al aspirante a concentrarse en el mecanismo físico de respiración, excluyendo la práctica análoga del control rítmico de la vida emocional.
+
+Antes de entrar a considerar cada método de yoga, será útil enumerarlos detenidamente, dando los sinónimos que sean factibles.
+
+#### Primer Método - Mandamientos
+
+Los Mandamientos. Yama. Autocontrol o clemencia. Restricción. Abstención de actos erróneos. Éstos son cinco y se refieren a la relación del discípulo con sus semejantes y con el mundo externo.
+
+#### Segundo Método - Reglas
+
+Las Reglas. Nijama o correcta observancia. Éstas son también cinco y se las denomina con <pin lang="en">182</pin> frecuencia "observancias religiosas”, porque se refieren a la vida interna del discípulo y a ese vínculo, el sutratma o eslabón que lo relaciona con Dios o Padre en el Cielo. Ambos, los cinco Mandamientos y las cinco Reglas, son la analogía hindú de los diez Mandamientos de la Biblia y abarcan la vida diaria del aspirante, según afecten a quienes lo rodean y a sus propias reacciones internas.
+
+#### Tercer Método - Postura
+
+Postura. Asana. Correcto aplomo. Correcta actitud. Posición. Este tercer método concierne a la actitud física del discípulo durante la meditación, a la actitud emocional que adopta en el medio ambiente o grupo, y a la actitud mental respecto a las ideas, corrientes de pensamiento y conceptos abstractos. Finalmente, la práctica de este método coordina y perfecciona al triple hombre inferior, de modo que las tres envolturas lleguen a formar un canal perfecto para la expresión o manifestación de la vida del espíritu.
+
+#### Cuarto Método - Pranayama
+
+Correcto control de la fuerza vital. Pranayama. Supresión del aliento. Regulación del aliento. Esto se refiere al control, a la regulación y supresión de los aires vitales, al aliento y a las fuerzas o shaktis del cuerpo. En realidad conduce a la organización del cuerpo vital o etérico, de modo que las corrientes o fuerzas de vida, que emanan del ego u hombre espiritual, en su propio plano, <pin lang="en">183</pin> sean trasmitidas correctamente al hombre físico, en manifestación objetiva. <pin lang="es">124</pin>
+
+### Quinto Método - Pratyahara 
+
+Abstracción. Pratyahara. Restricción. Unión. Retraimiento de los sentidos. Con este método, nos ubicamos detrás de los cuerpos físico y etérico, en el cuerpo emocional, asiento de los deseos, de la percepción sensoria y del sentimiento. Aquí se puede observar el método ordenado que se sigue al practicar la yoga o unión. La atención se dirige a las vidas interna y externa del plano físico; se cultiva la correcta actitud hacia la triple manifestación de la vida; se organiza y controla el cuerpo etérico y se reorienta el cuerpo astral, porque la naturaleza de deseos es subyugada y el hombre real va retirándose gradualmente de los contactos de los sentidos. Los dos métodos siguientes se relacionan con el cuerpo mental, y el último con el hombre real o pensador.
+
+### Sexto Método - Concentración
+
+Atención. Dharana. Concentración. Fijación de la mente. Con este método se controla el instrumento del pensador, el hombre real. El sexto sentido es coordinado, comprendido, enfocado y utilizado.
+
+### Séptimo Método - Meditación
+
+Meditación Dhyana. La capacidad del pensador para emplear la mente como desee y trasmitir al cerebro pensamientos elevados, ideas abstractas y conceptos idealistas. Este método concierne a la mente superior y a la inferior. <pin lang="en">184</pin>
+
+### Octavo Método - Contemplación
+
+Contemplación. Samadhi. Se refiere al ego u hombre real y concierne al reino del alma. El hombre espiritual contempla, estudia y medita sobre el mundo de las causas y las "cosas de Dios". Luego utiliza su instrumento controlado, la mente (controlada por la práctica de la concentración y la meditación) transmite al cerebro físico, por conducto del sutratma o hilo, que atraviesa las tres envolturas y lleva al cerebro, lo que el alma sabe, ve y entiende. Esto produce plena iluminación.
+
+## PRIMER MÉTODO. LOS MANDAMIENTOS
+
+### 30. Inofensividad, veracidad, no hurtar, continencia, no ser avaro, constituyen yama, o los cinco mandamientos. {#af30}
+
+Estos cinco mandamientos son sencillos y claros; no obstante, si se practican, harán que el hombre perfeccione sus relaciones con los demás, con los superhombres y con los reinos subhumanos. <pin lang="es">125</pin>
+
+El primer mandamiento, inofensividad, resume en realidad a los demás. Estos mandamientos son muy completos y abarcan la triple naturaleza. Al estudiar estos métodos veremos su relación con determinada parte de la triple manifestación inferior del ego.
+
+#### I. Naturaleza Física
+
+1. **Inofensividad**. Comprende los actos físicos del hombre, respecto a todas las formas de la manifestación divina, <pin lang="en">185</pin> y concierne específicamente a su naturaleza fuerza, o la energía que él expresa por medio de sus actividades en el plano físico. No daña ni perjudica a nadie.
+2. **Veracidad**. Concierne principalmente al uso de la palabra y de los órganos del sonido, y se refiere a "la verdad” en lo más profundo, de modo que sea posible su exteriorización. Este tema es muy amplio y se refiere a la formulación de las creencias del hombre respecto a Dios, a sus semejantes, a las cosas y a las formas, por medio de la lengua y la voz. Esto lo trata "Luz en el Sendero" en el aforismo: "Antes de que la voz pueda hablar en presencia del Maestro, debe haber perdido el poder de herir".
+3. **Contenerse de hurtar**. El discípulo es justo y preciso en todas sus cosas y no se apropia de lo que no le pertenece. Este amplio concepto abarca algo más que el mero hecho de apropiarse físicamente de las posesiones de otro.
+
+#### II. Naturaleza Astral
+
+4. **Continencia**. Es ausencia total de deseos, y rige la exteriorización de las tendencias hacia lo que no es el yo, cuya expresión en el plano físico es la relación entre los sexos. Sin embargo, se debe recordar que el estudiante esotérico considera esta expresión como la forma que adopta el impulso exteriorizado, lo cual vincula íntimamente al hombre con el reino animal. Todo impulso que concierne a las formas y al hombre real <pin lang="en">186</pin> y tiende a vincularlo a una forma y al plano físico, es considerado como un tipo de incontinencia. Existe una incontinencia en el plano físico que el discípulo debe haber trascendido hace mucho tiempo. También hay muchas tendencias hacia la búsqueda del placer con la consiguiente satisfacción de la naturaleza del deseo y esto, el verdadero aspirante, también lo considera como incontinencia.
+
+#### III. Naturaleza Mental
+
+5. **No ser avaro** concierne al pecado de la codicia, que textualmente significa hurtar en el plano mental. El pecado de la avaricia puede conducir a diversos pecados en el plano físico, y es muy poderoso. Concierne a la fuerza mental, siendo un término <pin lang="es">126</pin> genérico que abarca los fuertes anhelos, cuyo origen no está sólo en el cuerpo emocional o kámico (deseo), sino también en el cuerpo mental. Este mandamiento está comprendido en lo que San Pablo dice: "He aprendido a estar contento en cualquier estado en que me encuentre". Se debe alcanzar ese estado para poder aquietar la mente, de tal manera que puedan entrar las cosas del alma.
+
+### 31. Yama constituye el deber universal, sin tener en cuenta raza, lugar, tiempo o emergencia {#af31}
+
+Este aforismo pone en claro la universalidad de ciertos requisitos, y el estudio de estos cinco mandamientos, que forman la base de lo que el budista llama "recta conducta", demostrará <pin lang="en">187</pin> que forman la base de toda verdadera ley y que su infringimiento constituye ilegalidad. La palabra traducida por "deber" u "obligación" podría muy bien expresarse por la comprensiva palabra dharma, en lo que a los demás respecta. Dharma significa textualmente, el adecuado cumplimiento de las propias obligaciones (o karma) en el lugar y medio ambiente que el destino le depara. Deben observarse ciertos factores que rigen la conducta, sin permitir laxitud alguna a este respecto, no importa cual sea su nacionalidad, localidad, edad o la emergencia que pueda surgir. Estas cinco leyes inmutables rigen la conducta humana, y cuando todos los hijos de los hombres las cumplan, se comprenderá el pleno significado de la expresión: "paz a todos los seres".
+
+## SEGUNDO METODO. LAS REGLAS
+
+### 32. Purificación interna y externa, gozo, ardiente aspiración, lectura espiritual y devoción a Ishvara, constituyen nijama (o las cinco reglas). {#af32}
+
+Como se dijo anteriormente, las cinco reglas rigen la vida del ser inferior personal y constituyen los fundamentos del carácter. El verdadero gurú o instructor no le consiente al aspirante las prácticas de yoga, tan interesantes para el pensador o aspirante occidental, a quien le atraen por su aparente sencillez y por la valiosa recompensa, tal como el desarrollo psíquico, hasta que yama o nijama sean <pin lang="en">188</pin> los factores que rigen la vida diaria del discípulo. Deben observarse primero los mandamientos y las reglas; una vez que la conducta externa del aspirante hacia sus semejantes, y la disciplina de la vida interna estén de acuerdo con tales requisitos, <pin lang="es">127</pin> entonces, pero no antes, pueden proseguir sin peligro con las formas y rituales de la yoga práctica.
+
+La falta de cumplimiento de este requisito es la causa de muchas dificultades entre los estudiantes occidentales de yoga. No hay fundamento mejor para la práctica del ocultismo oriental, que la sujeción estricta a los requisitos formulados por el Maestro en El Sermón de la Montaña. El cristiano auto disciplinado, dedicado a una vida pura y al servicio altruista, puede emprender la práctica de la yoga con menos peligro que su mundano y egoísta, aunque intelectual, hermano. No correrá los mismos riesgos que su hermano sin preparación.
+
+Las palabras: **purificación interna y externa** se refieren a las tres envolturas que velan al yo, debiendo interpretarse en doble sentido. Cada envoltura tiene su forma densa y tangible, que debe mantenerse limpia; en un sentido los cuerpos mental y astral se pueden mantener limpios de impurezas, que provienen de su medio ambiente, de la misma manera que el físico debe mantenerse limpio de impurezas similares. También se ha de mantener limpia la materia más sutil de esos cuerpos. Esto constituye la base del estudio de la pureza magnética, que da lugar en Oriente a tantas observaciones inexplicables para el occidental. Por ejemplo, la sombra de un extraño proyectada <pin lang="en">189</pin> sobre el alimento, produce condiciones de impureza; esto se debe a la creencia de que ciertas emanaciones de fuerza producen condiciones impuras. Aunque los métodos de contrarrestar tales condiciones tienen visos de ritual, de letra muerta, sin embargo, la idea detrás de la observancia es siempre verdad. Se sabe tan poco acerca de las emanaciones de fuerza del ser humano o de las que actúan sobre el mecanismo humano, que lo que podríamos llamar "purificación científica" está todavía en su infancia.
+
+**Gozo** produce esas condiciones en que la mente está en reposo; se basa en el reconocimiento de las leyes que rigen la vida, principalmente la ley del karma. Origina ese estado mental en que todas las condiciones se consideran correctas y justas, bajo las cuales el aspirante puede resolver mejor sus problemas y alcanzar la meta específica en cualquier vida. Esto no implica el acomodo definitivo, ni la pasividad que trae inercia, sino el reconocimiento del acervo que se posee y el aprovechamiento de las oportunidades disponibles, convirtiéndolas en trasfondo y base de todo futuro progreso. Si esto se lleva a cabo debidamente, las restantes tres reglas se cumplirán más fácilmente.
+
+:::note Recuerda
+
+Gozo no implica el acomodo definitivo, ni la pasividad que trae inercia, sino el reconocimiento del acervo que se posee y el aprovechamiento de las oportunidades disponibles, convirtiéndolas en trasfondo y base de todo futuro progreso.
+
+:::
+
+**Ardiente aspiración**. Este tema será tratado más plenamente en el Libro Tercero, el siguiente; pero es conveniente hacer resaltar aquí que este anhelo de "avanzar" hacia el ideal o de esforzarse <pin lang="es">128</pin> por alcanzar el objetivo, debe ser tan profundo en el aspirante a la yoga, que ninguna dificultad lo hará retroceder. Únicamente cuando esta cualidad ha sido desarrollada y probada y cuando ningún problema, confusión ni <pin lang="en">190</pin> el factor tiempo pueden entorpecer, se permite al aspirante ser discípulo de un Maestro. Ardiente esfuerzo, constante y persistente anhelo e inquebrantable lealtad al ideal presentido, son la condición "sine qua non" del discipulado. Estas características deben existir en los tres cuerpos, y conducen a la constante disciplina del vehículo físico, a la firme orientación de la naturaleza emocional y a una actitud mental que permite al hombre "considerar perdidas todas las cosas", si quiere alcanzar su meta.
+
+**Lectura espiritual**. Concierne al desenvolvimiento del sentido de las realidades subjetivas. Se fomenta mediante el estudio, según se lo entiende en sentido físico, y por el esfuerzo de llegar a comprender los pensamientos expresados en palabras. Se desarrolla mediante el detenido escrutinio de las causas subyacentes en todos los deseos, aspiraciones y sentimientos, relacionándose así con el plano astral o de deseo. Se refiere a la lectura de símbolos o formas geométricas que animan una idea o pensamiento, lo cual concierne al plano mental. Esto se tratará más adelante en el Libro Tercero.
+
+**Devoción a Ishvara**. Brevemente puede decirse que constituye la actitud del triple yo inferior, demostrada como servicio al ego, el regente interno, Dios o Cristo interno. Esta devoción será triple en su manifestación y llevará al yo personal inferior a una vida de obediencia al Maestro en el corazón, y con el tiempo guiará al aspirante al grupo de algún adepto o instructor espiritual, llevándolo también al devocional servicio a Ishvara, el Yo divino, que mora en el corazón de todos los hombres y subyace en todas las formas de la manifestación divina. <pin lang="en">191</pin>
+
+### 33. Cuando se tienen pensamientos contrarios a la yoga, deben cultivarse los opuestos. {#af33}
+
+La traducción de Johnston da la misma idea en bellas palabras, y expone el método con claridad, y dice:
+
+> Cuando las transgresiones obstruyen, el peso de la imaginación debe ponerse en el platillo opuesto
+
+La ciencia de equilibrar los pares de opuestos está contenida en estas dos traducciones; una no es completa sin la otra. A menudo resulta difícil traducir los antiguos términos sánscritos en una sola palabra o frase, pues en ese lenguaje una palabra representa toda una idea y requiere varias frases para dar el verdadero significado en los limitados idiomas occidentales. <pin lang="es">129</pin>
+
+En este aforismo están comprendidos ciertos conceptos básicos, los cuales, para mayor claridad, podemos expresarlos:
+
+1. Como el hombre piensa así es él. Lo que se manifiesta en objetividad física es siempre un pensamiento; según sea el pensamiento o idea, así será la forma o el propósito en la vida.
+2. Los pensamientos son de dos clases: los que tienden a construir formas, limitar y expresarse en el plano físico, y los que tienden a alejarse de los tres planos inferiores y por lo tanto del aspecto forma tal como lo conocemos en los tres mundos, conduciendo a la unión (yoga o unificación) con el alma o aspecto crístico. <pin lang="en">192</pin>
+3. Cuando se descubre que los pensamientos habitualmente cultivados producen reacciones y resultados astrales y físicos, significa que son contrarios a la yoga, pues entorpecen el proceso unificador.
+4. Deben cultivarse pensamientos contrarios a los anteriores, y pueden determinarse fácilmente porque son los opuestos directos de los pensamientos inhibidores.
+5. El cultivar pensamientos que tienden a la yoga y llevan al hombre al conocimiento de su yo real, y la consiguiente unión con ese yo, involucra un triple proceso:
+   1. Se debe determinar y considerar el nuevo concepto mental formulado definidamente y considerado contrario a la antigua corriente de pensamiento.
+   2. Le sigue el empleo de la imaginación a fin de llevar el pensamiento a la manifestación. Esto lleva al aspecto deseo, y por lo tanto afecta al cuerpo astral o emocional.
+   3. Luego viene la visualización definida del efecto de lo que se ha pensado e imaginado, y la forma en que se manifestará en el plano físico.
+
+Se hallará que esto genera energía, lo cual significa que el cuerpo etérico se vitaliza o energetiza, gracias a las nuevas corrientes de pensamientos, teniendo lugar ciertas transformaciones y reorganizaciones que, oportunamente, cambiarán totalmente las actividades del hombre en el plano físico. El constante cultivo de todo esto llega a trasformar al entero triple hombre inferior y, eventualmente, pone de manifiesto la verdad de la frase cristiana: <pin lang="en">193</pin> "sólo Cristo es visto y oído". Únicamente el hombre real o espiritual puede expresarse por medio de un instrumento físico, así como Cristo se expresó por medio de Jesús, su instrumento y discípulo. <pin lang="es">130</pin>
+
+### 34. Los pensamientos contrarios a la yoga son: ofensividad, falsedad, hurto, incontinencia y avaricia, ya sean cometidos personalmente, obligando a otros a cometerlos o aprobarlos, o surgidos de la avaricia, la ira o el engaño (ignorancia), y pueden ser veniales, capitales o mortales. Dan siempre por resultado, excesivo dolor e ignorancia. Por esta razón deben cultivarse los pensamientos opuestos. {#af34}
+
+Se observará que los cinco mandamientos se refieren específicamente a estos pensamientos contrarios a la yoga o unión, y que el cumplimiento de los mandamientos traerá:
+
+1. Inofensividad, en vez de ofensividad.
+2. Verdad, en vez de falsedad.
+3. No hurtar, en vez de hurtar.
+4. Autocontrol, en vez de incontinencia.
+5. Conformidad, en vez de avaricia o codicia.
+
+Al aspirante no le queda excusa alguna al inculcarle la verdad de que la transgresión de los mandamientos produce igualmente efectos, tanto si la violación es leve como si es grave. "Un pensamiento contrario" debe producir efecto; este efecto es dual: dolor, e ignorancia o engaño. Existen tres palabras que el estudiante esotérico asocia siempre con los tres mundos: <pin lang="en">194</pin>
+
+1. Maya o ilusión, referida al mundo de las formas, donde el verdadero yo se halla durante la encarnación, y con las cuales ignorantemente se identifica durante largos eones.
+2. Engaño, el proceso de identificación errónea, donde el yo se engaña a sí mismo y dice: "Yo soy la forma".
+3. Ignorancia o avidya, el resultado de esta errónea identificación y al mismo tiempo su causa.
+
+El yo está revestido por la forma; es engañado en el mundo de la ilusión. Sin embargo, cada vez que a sabiendas tiene pensamientos contrarios a la yoga, el yo se sumerge aún más en el mundo ilusorio y hace que el velo de la ignorancia sea más tupido. Cada vez que el peso de la imaginación se inclina hacia la naturaleza real del yo y se aleja del mundo del no-yo, la ilusión disminuye, se desvanece el engaño y el conocimiento reemplaza gradualmente a la ignorancia. <pin lang="es">131</pin>

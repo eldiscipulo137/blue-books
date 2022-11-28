@@ -31,13 +31,13 @@ title: Libro II. Los pasos hacia la unión
 25. Cuando la ignorancia llega a su término, debido a la no asociación con las cosas percibidas, se obtiene la gran liberación. <af book="2" af="25"/>
 26. El estado de esclavitud se supera manteniendo una perfecta discriminación. [i117] <af book="2" af="26"/>
 27. El conocimiento (o iluminación) alcanzado es séptuple y se obtiene progresivamente. <af book="2" af="27"/>
-28. Cuando los métodos de la yoga han sido practicados con constancia y se ha vencido la impureza, tiene lugar el esclarecimiento, que conduce a la plena iluminación.
-29. Los ocho métodos de yoga son: los mandamientos o yama, las reglas o nijama, la postura o asana, correcto control de la fuerza vital o pranayama, abstracción o pratyahara, atención o dharana, meditación o dhyana y contemplación o samadhi.
-30. Inofensividad, veracidad, no hurtar, continencia, no ser avaro, constituyen yama o los cinco mandamientos.
-31. Yama constituye el deber universal, sin tener en cuenta raza, lugar, tiempo o emergencia.
-32. La purificación interna y externa, gozo, ardiente aspiración, lectura espiritual y devoción a Ishvara, constituyen nijama (o las cinco reglas).
-33. Cuando se tienen pensamientos contrarios a la yoga, deben cultivarse los opuestos.
-34. Los pensamientos contrarios a la yoga son: ofensividad, falsedad, hurto, incontinencia y avaricia, ya sean cometidos personalmente, obligando a otros a cometerlos o aprobarlos, o surgidos de la avaricia, la ira o el engaño (ignorancia), y pueden ser veniales, capitales o mortales. Dan siempre por resultado, excesivo dolor e ignorancia. Por esta razón deben cultivarse los pensamientos opuestos.
+28. Cuando los métodos de la yoga han sido practicados con constancia y se ha vencido la impureza, tiene lugar el esclarecimiento, que conduce a la plena iluminación. <af book="2" af="28"/>
+29. Los ocho métodos de yoga son: los mandamientos o yama, las reglas o nijama, la postura o asana, correcto control de la fuerza vital o pranayama, abstracción o pratyahara, atención o dharana, meditación o dhyana y contemplación o samadhi. <af book="2" af="29"/>
+30. Inofensividad, veracidad, no hurtar, continencia, no ser avaro, constituyen yama o los cinco mandamientos. <af book="2" af="30"/>
+31. Yama constituye el deber universal, sin tener en cuenta raza, lugar, tiempo o emergencia. <af book="2" af="31"/>
+32. La purificación interna y externa, gozo, ardiente aspiración, lectura espiritual y devoción a Ishvara, constituyen nijama (o las cinco reglas). <af book="2" af="32"/>
+33. Cuando se tienen pensamientos contrarios a la yoga, deben cultivarse los opuestos. <af book="2" af="33"/>
+34. Los pensamientos contrarios a la yoga son: ofensividad, falsedad, hurto, incontinencia y avaricia, ya sean cometidos personalmente, obligando a otros a cometerlos o aprobarlos, o surgidos de la avaricia, la ira o el engaño (ignorancia), y pueden ser veniales, capitales o mortales. Dan siempre por resultado, excesivo dolor e ignorancia. Por esta razón deben cultivarse los pensamientos opuestos. <af book="2" af="34"/>
 35. Frente a quien ha perfeccionado la inofensividad, cesa toda enemistad.
 36. Quien se perfecciona en ser veraz, observa inmediatamente la eficacia de sus palabras y actos.
 37. Cuando la abstención de hurtar es perfecta, el yogui puede tener cuanto desea.
