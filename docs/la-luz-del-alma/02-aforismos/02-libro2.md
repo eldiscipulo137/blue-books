@@ -38,13 +38,13 @@ title: Libro II. Los pasos hacia la unión
 32. La purificación interna y externa, gozo, ardiente aspiración, lectura espiritual y devoción a Ishvara, constituyen nijama (o las cinco reglas). <af book="2" af="32"/>
 33. Cuando se tienen pensamientos contrarios a la yoga, deben cultivarse los opuestos. <af book="2" af="33"/>
 34. Los pensamientos contrarios a la yoga son: ofensividad, falsedad, hurto, incontinencia y avaricia, ya sean cometidos personalmente, obligando a otros a cometerlos o aprobarlos, o surgidos de la avaricia, la ira o el engaño (ignorancia), y pueden ser veniales, capitales o mortales. Dan siempre por resultado, excesivo dolor e ignorancia. Por esta razón deben cultivarse los pensamientos opuestos. <af book="2" af="34"/>
-35. Frente a quien ha perfeccionado la inofensividad, cesa toda enemistad.
-36. Quien se perfecciona en ser veraz, observa inmediatamente la eficacia de sus palabras y actos.
-37. Cuando la abstención de hurtar es perfecta, el yogui puede tener cuanto desea.
-38. Cuando se practica la continencia, se adquiere energía.
-39. Cuando la abstención de la avaricia es perfecta, se llega a la comprensión de la ley de renacimiento. [i118]
-40. La purificación interna y externa produce aversión a la forma, tanto a la propia como a las demás formas. [e84]
-41. Por la purificación llega también la quietud del espíritu, la concentración, el dominio de los órganos y la capacidad de ver al yo.
+35. Frente a quien ha perfeccionado la inofensividad, cesa toda enemistad. <af book="2" af="35"/>
+36. Quien se perfecciona en ser veraz, observa inmediatamente la eficacia de sus palabras y actos. <af book="2" af="36"/>
+37. Cuando la abstención de hurtar es perfecta, el yogui puede tener cuanto desea. <af book="2" af="37"/>
+38. Cuando se practica la continencia, se adquiere energía. <af book="2" af="38"/>
+39. Cuando la abstención de la avaricia es perfecta, se llega a la comprensión de la ley de renacimiento. [i118] <af book="2" af="39"/>
+40. La purificación interna y externa produce aversión a la forma, tanto a la propia como a las demás formas. [e84] <af book="2" af="40"/>
+41. Por la purificación llega también la quietud del espíritu, la concentración, el dominio de los órganos y la capacidad de ver al yo. <af book="2" af="41"/>
 42. El gozo trae por resultado la bienaventuranza.
 43. Por la ardiente aspiración y la eliminación de toda impureza, se perfeccionan los poderes del cuerpo y de los sentidos.
 44. La lectura espiritual trae como resultado el contacto con el alma o el divino Uno.

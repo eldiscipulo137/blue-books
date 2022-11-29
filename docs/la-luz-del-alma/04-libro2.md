@@ -657,3 +657,109 @@ Al aspirante no le queda excusa alguna al inculcarle la verdad de que la transgr
 3. Ignorancia o avidya, el resultado de esta errónea identificación y al mismo tiempo su causa.
 
 El yo está revestido por la forma; es engañado en el mundo de la ilusión. Sin embargo, cada vez que a sabiendas tiene pensamientos contrarios a la yoga, el yo se sumerge aún más en el mundo ilusorio y hace que el velo de la ignorancia sea más tupido. Cada vez que el peso de la imaginación se inclina hacia la naturaleza real del yo y se aleja del mundo del no-yo, la ilusión disminuye, se desvanece el engaño y el conocimiento reemplaza gradualmente a la ignorancia. <pin lang="es">131</pin>
+
+### 35. Frente a quien ha perfeccionado la inofensividad, cesa toda enemistad. {#af35}
+
+Este aforismo pone de manifiesto la actuación de una gran ley. En el [Libro Cuarto, Af. 17](/la-luz-del-alma/libro4#af17), Patanjali dice que la percepción de una característica, de una cualidad y de una forma objetiva, depende de que el perceptor posea características, cualidades y capacidades objetivas similares. Esta similitud es la base de la percepción. Se señala la misma verdad en la primera <pin lang="en">195</pin> Epístola de San Juan, en las palabras: "Seremos semejantes a Él, porque lo veremos como Él es". Sólo puede establecerse contacto con lo que ya está presente en la conciencia del perceptor. Por lo tanto, si en el perceptor hay enemistad y odio, es porque residen en él las simientes de la enemistad y el odio. Cuando están ausentes, no existe más que unidad y armonía. Éste es el primer paso hacia el amor universal, esfuerzo práctico del aspirante para llegar a ser uno con todos los seres. Empieza consigo mismo y procura desarraigar de su propia naturaleza todas las semillas de la ofensividad. Se ocupa así de la causa que produce la enemistad hacia él y los demás. El resultado natural es que disfruta de paz, y los demás están en paz con él. En su presencia, hasta las bestias salvajes se sienten impotentes, en virtud del estado mental del aspirante a yogui.
+
+### 36. Quien se perfecciona en ser veraz, observa inmediatamente la eficacia de sus palabras y actos. {#af36}
+
+Esta cuestión de la verdad es uno de los grandes problemas que el aspirante debe resolver; quien intente decir únicamente lo que es estrictamente exacto, enfrentará dificultades bien definidas. La verdad es muy relativa mientras prosigue la evolución y su manifestación progresiva. Podría definirse como la manifestación, en el plano físico, de esa medida de realidad divina que permite expresar la etapa de evolución y el medio <pin lang="en">196</pin> empleado. Por lo tanto, la verdad involucra la habilidad del perceptor o aspirante, para ver correctamente la medida de divinidad que encierra una forma (tangible, objetiva o verbal). Implica, por lo tanto, la capacidad de penetrar hasta lo subjetivo y establecer contacto con lo que toda forma encubre, y también la habilidad del aspirante para construir una forma (tangible, objetiva o verbal) que exprese la verdad tal cual es. Éstas son, en realidad, las dos primeras etapas del gran proceso creador,
+
+1. correcta percepción,
+2. exacta construcción, <pin lang="es">132</pin>
+
+que llevan a la consumación, de la que trata el aforismo en consideración, o sea la efectividad de las palabras y los actos para expresar la realidad o la verdad tal cual es. Este aforismo es la clave del trabajo del mago y la base de la gran ciencia de los mántram o palabras de poder, que constituyen el equipo de todo adepto.
+
+Mediante la comprensión de
+
+1. la ley de vibración,
+2. la ciencia del sonido,
+3. la finalidad de la evolución,
+4. la etapa cíclica actual,
+5. la naturaleza de la forma,
+6. la manipulación de la sustancia atómica,
+
+el adepto, no sólo ve la verdad en todas las cosas, sino que comprende cómo hacer visible la verdad, ayudando así al proceso evolutivo y "proyectando imágenes sobre la pantalla del tiempo".
+
+Esto lo hace por medio de ciertas palabras y acciones. En el aspirante, el desarrollo de esta capacidad se realiza gracias al constante <pin lang="en">197</pin> esfuerzo por llenar los siguientes requisitos:
+
+1. Estricta atención a todas las formas verbales que emplea.
+2. Empleo inteligente del silencio, como factor de servicio.
+3. Estudio constante de las causas subyacentes en cada acto, a fin de comprender la razón de la efectividad, o no efectividad de la acción.
+4. Esfuerzo constante para ver la realidad en todas las formas. Esto implica, textualmente, el estudio de la ley de causa y efecto o karma; el objetivo de la ley kármica es poner los polos opuestos, espíritu y materia, en concordancia con los requisitos del espíritu, a fin de que la materia y la forma puedan expresar perfectamente la naturaleza del espíritu.
+
+### 37. Cuando la abstención de hurtar es perfecta, el yogui puede tener cuanto desea. {#af37}
+
+Aquí tenemos la clave de la gran ley de oferta y demanda. Cuando el aspirante ha aprendido a no desear nada para el yo separado, se le pueden confiar las riquezas del Universo; cuando nada exige para la naturaleza inferior ni reclama para el triple hombre físico, entonces le llega todo lo que desea, sin pedirlo ni reclamarlo. En algunas traducciones se expresa esto mismo, diciendo: "todas las joyas son suyas".
+
+Debe recordarse que no hurtar se refiere no sólo a abstenerse de sustraer cosas tangibles y físicas, sino a no hurtar en los planos <pin lang="es">133</pin> emocional y mental. El aspirante no sustrae nada <pin lang="en">198</pin> ni reclama beneficios emocionales (tales como amor y favoritismo, antipatía u odio) ni los absorbe cuando no le pertenecen; repudia todo beneficio intelectual; no reclama una reputación injustificada; no asume el deber, el favor o la popularidad de otro; se adhiere estrictamente a lo que le pertenece. El mandato oriental es: "que cada uno atienda su propio dharma" y cumpla su parte. "Ocúpate de tus cosas” es la forma occidental de enseñar la misma verdad y trasmitir el mandato de que no hemos de hurtar a otros la oportunidad de obrar correctamente, de estar a la altura de la responsabilidad y de cumplir con el deber. Ésta es la verdadera abstención de hurtar que hace al hombre cumplir perfectamente con sus propias obligaciones, cargar con sus responsabilidades y desempeñar sus deberes, lo cual evitará apropiarse de lo que pertenece a su hermano, en los tres mundos del esfuerzo humano.
+
+### 38. Cuando se practica la continencia, se adquiere energía. {#af38}
+
+La incontinencia se considera como disipación de la vitalidad o virilidad de la naturaleza animal. El poder de crear en el plano físico y de perpetuar la especie, es la acción más elevada de que el hombre es capaz. La disipación de los poderes vitales y la incontinencia en la vida libertina, es el gran pecado contra el cuerpo físico. Indica que no se reconoce ni aprecia el acto procreador; acusa incapacidad <pin lang="en">199</pin> de resistir los deseos y placeres inferiores y la pérdida del propio control. Los resultados hoy se manifiestan en la familia humana en la poca salud, en los hospitales colmados y en los hombres, mujeres y niños enfermizos, débiles y anémicos, que vemos por todas partes. Esto significa poca conservación de la energía, y las mismas palabras "disipación" y "hombres disipados" contienen una lección.
+
+Lo primero que el discípulo debe hacer es aprender la verdadera naturaleza de la creación y conservar su energía. No se impone el celibato, pero sí el autocontrol. Durante un ciclo relativamente corto de vida, donde el estudiante se prepara para hollar el sendero, posiblemente habrá una vida, o quizás varias, en que tendrá que abstenerse de procrear, a fin de dominarse y demostrar que ha subyugado completamente su naturaleza sexual inferior. El correcto empleo del principio del sexo, de acuerdo a la ley vigente en el país, caracteriza al verdadero aspirante.
+
+Aparte de la consideración de este tema, en relación con la conservación de energía, hay otro punto de vista, desde el cual el aspirante encara el problema, y es la transmutación del principio vital (tal como se manifiesta a través del organismo físico) en su <pin lang="es">134</pin> expresión dinámica, cuando lo hace por medio del órgano del sonido o de creación, es decir mediante la palabra, o sea el trabajo del verdadero mago. Existe, como bien saben todos los estudiantes esotéricos, una íntima relación entre los órganos de la procreación y el <pin lang="en">200</pin> tercer centro mayor, el laríngeo. Esto se manifiesta fisiológicamente en el cambio producido en la voz, en el período de la adolescencia. Mediante la verdadera conservación de la energía y la continencia, el yogui se convierte en un creador, en el plano mental, mediante la palabra y el sonido; así la energía que pudo ser disipada en la actividad del centro inferior se concentra y trasmuta en el gran trabajo creador del mago. Esto se lleva a cabo por la continencia, el vivir puro y el pensar limpio, en vez de las perversiones de la verdad esotérica, como la magia sexual y las monstruosas perversiones sexuales practicadas por ciertas escuelas seudo ocultistas. Éstas últimas están en el sendero negro, y no conducen al portal de la iniciación
+
+### 39. Cuando la abstención de la avaricia es perfecta se llega a la comprensión de la ley de renacimiento. {#39}
+
+Este aforismo imparte en forma inequívoca la gran enseñanza de que el espíritu encarna por el deseo de adoptar determinada forma. Cuando no existe deseo, los tres mundos no pueden retener al yogui. El deseo, los diversos anhelos por las cosas, las experiencias o el ansia de vivir en la forma, constituyen la fragua donde forjamos nuestras cadenas.
+
+Cuando se cultiva y está presente la conformidad, se rompen gradualmente tales cadenas y ya no se forjan otras; a medida que nos desligamos del mundo de la ilusión, se aclara nuestra visión y paulatinamente se nos hacen aparentes y <pin lang="en">201</pin> comprensibles las leyes del ser y de la existencia. Esto explica el cómo y el por qué de la vida. La razón de la existencia y del método del plano físico ya no constituye un problema, y el yogui comprende la razón de por qué ha existido el pasado y cuáles son sus características; entiende la razón del presente ciclo de vida y experiencia, aplica cada día prácticamente la ley, y sabe muy bien qué debe hacer para el futuro. De esta manera se libera a sí mismo, nada desea de los tres mundos y se reorienta hacia el mundo del ser espiritual.
+
+En estas cualidades tenemos el cumplimiento de los cinco mandamientos. <pin lang="es">135</pin>
+
+### 40. La purificación interna y externa produce aversión a la forma, tanto a la propia como a las demás formas. {#af40}
+
+La paráfrasis del Af. 40 no coincide con la traducción técnica de las palabras sánscritas, debido a que las palabras empleadas han sido mal interpretadas. Literalmente la traducción es: "La purificación interna y externa produce odio contra el propio cuerpo y el rechazo de todo intercambio con otros cuerpos". La tendencia de los estudiantes de Occidente a interpretar literalmente, exige una traducción más libre. El estudiante oriental, más versado en la presentación simbólica de la verdad, no es tan propenso a equivocarse en este sentido. Al considerar este aforismo debe tenerse presente que la pureza es una cualidad del espíritu. <pin lang="en">202</pin> La purificación es necesariamente de varios tipos y se relaciona con los cuatro vehículos (los cuerpos físico, etérico, emocional y mental) mediante los cuales el hombre se pone en contacto con los tres mundos de su actividad. Podemos, por lo tanto, diferenciarlos así:
+
+|                  |                  |                              |
+| ---------------- | ---------------- | ---------------------------- |
+| Pureza externa   | vehículo físico  | cuerpo denso.                |
+| Pureza magnética | vehículo etérico | pureza interna.              |
+| Pureza síquica   | vehículo astral  | pureza emocional.            |
+| Pureza mental    | vehículo mental  | pureza de la mente concreta. |
+
+Debe tenerse cuidadosamente en cuenta que esta pureza concierne a la sustancia, de la cual está compuesto cada uno de los vehículos, lográndose de tres maneras:
+
+1. Por la eliminación de la sustancia impura, o los átomos y moléculas que limitan la libre expresión del espíritu y lo confinan en la forma, y no le permiten ingresar ni egresar libremente.
+2. Por la asimilación de los átomos y moléculas que tienden a proporcionar una forma, mediante la cual el espíritu pueda actuar adecuadamente.
+3. Por la protección de la forma purificada contra la contaminación y deterioración.
+
+En el sendero de purificación o de probación comienza el proceso eliminatorio; en el sendero del discipulado se aprenden las reglas del proceso constructivo o asimilativo, y en el sendero de iniciación (después de la segunda iniciación) se inicia el trabajo protector.
+
+En Occidente son bien conocidas y generalmente practicadas las reglas de purificación externa, de sanidad y de higiene. Oriente <pin lang="es">136</pin> conoce mejor las reglas <pin lang="en">203</pin> de purificación magnética; una vez que ambos sistemas se sinteticen y reconozcan mutuamente, la envoltura física, en su doble naturaleza, alcanzará, con el tiempo, un alto grado de refinamiento.
+
+Sin embargo, en el actual ciclo, el interés de la Jerarquía está centrado en gran parte, en el problema de la pureza síquica, razón por la cual en la actualidad se desarrolla la tendencia a la enseñanza esotérica. Ésta se aleja de lo que comúnmente se entiende por desarrollo psíquico y, sin hacer hincapié sobre los poderes síquicos inferiores, trata de entrenar al aspirante en las leyes de la vida espiritual. Esto produce la comprensión de la naturaleza de la psiquis o alma, y el control de la naturaleza síquica inferior. El gran "empuje" del esfuerzo jerárquico, correspondiente a este siglo 1926-2026, será hecho en esa dirección, conjuntamente con la difusión de las leyes del pensamiento. De ahí la necesidad de promulgar las enseñanzas dadas en los aforismos de la yoga, que proporcionan las reglas para el control de la mente, pero al mismo tiempo tratan extensamente de la naturaleza de los poderes síquicos y el desenvolvimiento de la conciencia síquica.
+
+El Libro Tercero trata de tales poderes; podría decirse brevemente que todo el tema de los aforismos consiste en desarrollar el control de la mente, con el propósito de establecer contacto con el alma y obtener el consiguiente control de los poderes síquicos inferiores, y su desenvolvimiento debe ir paralelo al de los poderes superiores. Debe hacerse hincapié sobre esto. Aversión a la forma o "ausencia de deseo" (término genérico, que abarca esta condición de la mente) es el gran impulso que, <pin lang="en">204</pin> con el tiempo, lleva a liberarse completamente de la forma.
+
+Esto no significa que la forma, o tomar una forma, es malo en sí. Tanto las formas como el proceso de encarnación, son correctos y adecuados en su lugar; pero para el hombre que ya no tiene necesidad de experimentar en los tres mundos y ha aprendido las lecciones necesarias en la escuela de la vida, la forma y el renacimiento son malos, y debe relegarlos a una posición fuera de la vida del ego. Es verdad que el hombre liberado puede decidir limitarse a sí mismo en una forma, para fines específicos de servicio, pero lo hace por un acto de voluntad y autoabnegación; no se siente impelido a ello por el deseo, sino por el amor a la humanidad y el anhelo de permanecer con sus hermanos, hasta que el último de los hijos de Dios haya llegado al portal de la liberación. <pin lang="es">137</pin>
+
+### 41. Por la purificación llega también la quietud del espíritu, la concentración, el dominio de los órganos y la capacidad de ver al yo. {#af41}
+
+Debe recordarse que tanto los mandamientos como las reglas (yama y nijama) tienen que ver con el cuádruple yo inferior, el cual funciona en los tres mundos, y se lo denomina frecuentemente cuaternario inferior. Hemos visto en el aforismo precedente, que la purificación requerida es cuádruple y concierne a los cuatro vehículos. Los resultados de tal pureza son también cuádruples, y corresponden igualmente a las cuatro envolturas. Estos resultados son, de acuerdo a los vehículos: <pin lang="en">205</pin>
+
+|                           |                                                                              |
+| ------------------------- | ---------------------------------------------------------------------------- |
+| El dominio de los órganos | el cuerpo físico.                                                            |
+| La quietud del espíritu   | el vehículo emocional.                                                       |
+| La concentración          | la mente inferior o cuerpo mental.                                           |
+| La capacidad de ver al yo | el resultado sintético de la triple condición de las envolturas mencionadas. |
+
+El "dominio de los órganos" concierne especialmente a los sentidos; es el resultado de la pureza magnética o del refinamiento del cuerpo etérico. A este respecto los estudiantes deben tener presente que el cuerpo físico no es un principio, sino que se construye exactamente de acuerdo al cuerpo etérico, el vehículo magnético en el plano físico, y atrae (según su naturaleza y elementos constituyentes) a los átomos y partículas de sustancia con los cuales es construido el físico denso. Una vez refinadas las percepciones sensorias y sintonizada con exactitud la condición vibratoria del cuerpo vital, los órganos sensorios quedan totalmente dominados y controlados por el hombre real y, con el tiempo, lo pondrán en contacto con los dos subplanos más elevados del plano físico y no con el astral inferior como ocurre ahora. El orden correcto de este control de los órganos de percepción física o de los cinco sentidos es:
+
+1. Correcta percepción intelectual del ideal, en el plano mental.
+2. Deseo puro, libre del amor a la forma, en el plano emocional o astral.
+3. Uso y desenvolvimiento correcto de los cinco centros <pin lang="en">206</pin> en la columna vertebral (base de la columna, sacro, plexo solar, cardíaco y laríngeo), cada uno de los cuales se halla en el cuerpo etérico y está vinculado a uno de los cinco sentidos.
+4. La consiguiente correcta reacción de los órganos de los sentidos a las demandas del hombre verdadero o espiritual. <pin lang="es">138</pin>
+
+En conexión con el cuerpo astral, la purificación da por resultado la tranquilidad de espíritu o la "suave quietud" del vehículo, a fin de reflejar adecuadamente el principio crístico o la naturaleza búdica. Se debe tener muy en cuenta la relación del astral o principio kámico (que utiliza el vehículo medio del triple hombre inferior) con el principio búdico (que utiliza el vehículo medio de la tríada espiritual o atma-budi-manas). El aquietamiento de las emociones y el control de la naturaleza de deseos preceden siempre a la reorientación de lo inferior. Antes que el hombre desee las cosas del espíritu debe cesar de desear las cosas del mundo y de la carne, lo cual trae un período de gran dificultad en la vida del neófito; el proceso está simbolizado en la palabra “conversión", empleada en los círculos ortodoxos cristianos; significa "darse vuelta", con el consiguiente trastorno temporario, pero que eventualmente traerá quietud.
+
+En el cuerpo mental el efecto de la purificación es el desarrollo de la capacidad de concentrarse o enfocarse en una sola dirección. La mente no va de un lado a otro, queda controlada, pasiva y receptiva a las impresiones superiores. <pin lang="en">207</pin> Esto es tratado extensamente en el Libro Tercero, por eso no nos ocuparemos aquí.
+
+Cuando los tres resultados de la purificación se hacen sentir en la vida del aspirante, está próximo a cierta culminación, que es la repentina percepción de la naturaleza del alma. El aspirante alcanza la visión de la realidad que es él mismo, y descubre la verdad de las palabras de Cristo: "Los puros de corazón verán a Dios". Contempla el alma, y desde entonces su deseo va dirigido siempre a la realidad, alejándose de lo irreal y del mundo de la ilusión.
+
+
