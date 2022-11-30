@@ -77,18 +77,7 @@ const config = {
       },
     }),
 
-  plugins: [
-    "docusaurus-plugin-sass",
-    [
-      require.resolve("@cmfcmf/docusaurus-search-local"),
-      {
-        language: "es",
-        indexBlog: false,
-        indexPages: false,
-        maxSearchResults: 30,
-      },
-    ],
-  ],
+  plugins: ["docusaurus-plugin-sass"],
 };
 
 module.exports = config;
