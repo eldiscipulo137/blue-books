@@ -762,4 +762,216 @@ En el cuerpo mental el efecto de la purificación es el desarrollo de la capacid
 
 Cuando los tres resultados de la purificación se hacen sentir en la vida del aspirante, está próximo a cierta culminación, que es la repentina percepción de la naturaleza del alma. El aspirante alcanza la visión de la realidad que es él mismo, y descubre la verdad de las palabras de Cristo: "Los puros de corazón verán a Dios". Contempla el alma, y desde entonces su deseo va dirigido siempre a la realidad, alejándose de lo irreal y del mundo de la ilusión.
 
+### 42. El gozo trae por resultado la bienaventuranza. {#af42}
 
+Poco puede decirse respecto a este aforismo, salvo indicar que todo sufrimiento, desagrado e infelicidad, se deben a la rebelión. Desde el punto de vista del ocultista, la rebeldía sólo trae mayores dificultades, y la resistencia sólo sirve para nutrir el mal, cualquiera sea. El hombre que ha aprendido a aceptar su sino, no malgasta el tiempo en vanas lamentaciones y puede dedicar toda su energía en cumplir perfectamente su dharma o trabajo obligatorio. En vez de quejarse y oscurecer las cuestiones de la vida con la preocupación, la duda y la desesperación, despeja su camino mediante la sana comprensión de la vida, tal como es, y la directa apreciación de lo que puede hacer de ella. Así no malgasta fuerza, tiempo ni pierde oportunidad, y avanza constantemente hacia la meta. <pin lang="es">139</pin>
+
+### 43. Por la ardiente aspiración y la eliminación de toda impureza, se perfeccionan los poderes del cuerpo y de los sentidos. {#af43}
+
+Aunque las dos causas del proceso de perfeccionamiento son: aspiración y purificación, sin embargo, ambas constituyen realmente una sola y son los dos aspectos de la disciplina del sendero de probación. El Antiguo Comentario, que constituye la base esotérica de las enseñanzas internas del raja yoga, contiene algunas frases valiosas porque imparten un concepto correcto:
+
+> A medida que el aliento de fuego asciende a través del sistema y a medida que el elemento ígneo hace sentir su presencia, se ve desaparecer lo que obstaculiza y se ilumina lo que estaba oscuro.
+>
+> El fuego asciende y consume las barreras; el aliento se expande y las limitaciones desaparecen. Los siete, hasta entonces pasivos, vuelven a la vida. Los diez portales, cerrados y sellados, parcialmente entornados, se abren de par en par
+>
+> Los cinco métodos de contacto se precipitan a la actividad. Se vencen los obstáculos y las barreras ya no obstaculizan. El que se ha purificado se convierte en el gran receptor y el Uno es conocido
+
+Estas palabras se refieren a la purificación por el fuego y el aire, purificación impuesta en el sendero de la yoga. La purificación por agua tiene lugar en las últimas etapas de la vida del hombre muy evolucionado, antes de hollar el sendero del discipulado, y es sugerida en las palabras tan frecuentemente empleadas "aguas del infortunio". Ahora se somete a la prueba ígnea y toda la naturaleza inferior pasa a través del fuego. Éste es el primer significado y el que más concierne <pin lang="en">209</pin> al aspirante. Surge desde su corazón cuando clama por fuego, expresado en las palabras:
+
+> Busco el Camino; ansío saber. Veo visiones, y fugaces impresiones profundas. Detrás del Portal, al otro lado, está lo que llamo hogar, porque el círculo casi ha sido hollado en su totalidad y el fin se aproxima al principio
+>
+> Busco el Camino. Mis pies han hollado todos los caminos. El Camino de Fuego me llama con irresistible atracción. Nada en mí busca el camino de la paz; nada en mí ansía la tierra
+>
+> Que el fuego ruja; que las llamas devoren; que se queme toda la escoria; que se me permita trasponer ese Portal, y hollar el Camino del Fuego
+
+El aliento de Dios se siente como brisa purificadora y es también la respuesta del alma a la aspiración del discípulo. El alma "inspira" al hombre inferior.
+
+El significado secundario se refiere, lógicamente, en forma directa, a la actividad del kundalini o fuego serpentino, en la base <pin lang="es">140</pin> de la columna vertebral, cuando responde a la vibración del alma (sentida en la cabeza, en la región de la glándula pineal, y denominada: "la luz en la cabeza"). El fuego kundalini asciende, quema todas las obstrucciones del canal etérico en la columna vertebral y vitaliza o electrifica los cinco centros de la columna y los dos de la cabeza. Los aires vitales, dentro de los ventrículos de la cabeza, son puestos también en actividad y producen un efecto purificador, o más bien eliminador. El estudiante aún nada tiene que ver con ellos, excepto procurar, dentro de lo posible, que la aspiración de su corazón sea de carácter "ígneo" y que prosiga, como es de desear, la constante purificación de su naturaleza física, emocional <pin lang="en">210</pin> y mental. Cuando esto sucede la respuesta del alma es efectiva y tiene lugar, sin peligro y normalmente, de acuerdo a la ley, las consiguientes reacciones en los centros etéricos.
+
+Los tres versículos citados se refieren a:
+
+1. Los siete centros, hasta entonces pasivos,
+2. Los diez portales cerrados, los diez orificios del cuerpo físico.
+3. Los cinco sentidos, mediante los cuales se establece contacto con el plano físico, abarcando con estos términos todas las actividades entrantes y salientes en el plano físico.
+
+Cuando estas actividades son dirigidas por el alma o regidor interno, se efectúa la unión con el alma y la consiguiente identificación con Aquel en Quien vivimos, nos movemos y tenemos nuestro ser.
+
+### 44. La lectura espiritual trae como resultado el contacto con el alma o el divino Uno. {#af44}
+
+Este aforismo quizás podría traducirse más literalmente si se dijera: “La lectura de símbolos produce contacto con el alma”. El símbolo es una forma de determinado tipo, que vela u oculta un pensamiento, una idea o una verdad; en consecuencia, se puede establecer como axioma general, que cualquier tipo de forma es un símbolo o el velo objetivo de un pensamiento. Esto aplicado a toda forma, se refiere igualmente a la forma humana, que está destinada a ser el símbolo (hecho a imagen) de Dios; constituye la forma <pin lang="en">211</pin> objetiva que vela un pensamiento, idea o verdad divinos, la manifestación tangible de un concepto divino; la meta de la evolución es llevar a la perfección esta forma simbólica objetiva. Cuando el hombre conoce esto, deja de identificarse con el símbolo, su naturaleza inferior; empieza a actuar conscientemente como el divino Yo subjetivo interno, utilizando al hombre inferior <pin lang="es">141</pin> para velar y ocultar su forma, trabajar diariamente sobre esa forma, a fin de moldearla y forjarla en un instrumento adecuado de expresión. Esta idea también se lleva a cabo en la vida diaria, en la actitud del hombre hacia todas las formas (en los tres reinos de la naturaleza) con las cuales se pone en contacto. Trata de ver debajo de la superficie y llegar a la idea divina.
+
+Ésta es la cuarta regla y concierne a la actitud interna que el hombre adopta hacia el universo objetivo. Podría decirse que las reglas tienen que ver con la actitud del hombre hacia:
+
+|                                                 |                                 |
+| ----------------------------------------------- | ------------------------------- |
+| Su propia naturaleza inferior                   | purificación interna y externa. |
+| Su karma o sino en la vida                      | conformidad.                    |
+| Su alma o ego                                   | ardiente aspiración.            |
+| Su medio ambiente y contacto en el plano físico | lectura espiritual.             |
+| La Existencia una, Dios                         | devoción a Ishvara.             |
+
+Así esta serie de reglas abarca la "correcta actitud" hacia todas las cosas.
+
+### 45. Por la devoción a Ishvara se alcanza la meta de la meditación o samadhi. {#af45}
+
+La meta de la meditación es lograr la capacidad de ponerse en contacto con el divino yo interno y, por medio de este contacto, llegar a la <pin lang="en">212</pin> comprensión de la unidad de ese yo con todos los yoes y con el Omni-yo, no sólo teóricamente sino como una realidad en la naturaleza. Esto se produce cuando se alcanza el estado llamado samadhi, en el cual la conciencia del pensador se transfiere de la conciencia del cerebro inferior a la del hombre espiritual o alma, en su propio plano. Las etapas de esta transferencia pueden ser descritas como:
+
+1. Transferencia de la conciencia del cuerpo, la conciencia saliente instintiva del hombre físico, a la cabeza. Esto requiere retirar conscientemente la conciencia en un punto dentro del cerebro, en la cercanía de la glándula pineal, y centrarla consciente y definidamente allí.
+2. Transferencia de la conciencia de la cabeza o cerebro, a la mente o cuerpo mental. En esta transferencia el cerebro permanece agudamente alerta, y el retiro de la conciencia se efectúa conscientemente por medio del cuerpo etérico, utilizando el brahmarandra, o abertura en la cima de la cabeza. En ningún momento el hombre está en trance, inconsciente o dormido. Emprende este proceso de abstracción o retiro y lo efectúa activamente. <pin lang="es">142</pin>
+3. Transferencia de la conciencia del cuerpo mental al cuerpo del ego, el alma, alojada en el cuerpo causal o loto egoico. Entonces se produce una condición en que el cerebro, el cuerpo mental y el cuerpo egoico, forman una unidad coherente, pasiva, alerta, positiva y firme
+4. Así se puede entrar en el estado de samadhi o <pin lang="en">213</pin> contemplación espiritual, donde el alma observa su propio mundo, percibe la visión de las cosas tal cual son, se pone en contacto con la realidad y "conoce a Dios".
+
+Luego viene la etapa en que el hombre espiritual trasmite al cerebro, por conducto de la mente, lo que ha visualizado, visto, hecho contacto y conocido; de esta manera el conocimiento forma parte del contenido del cerebro y queda disponible para ser utilizado en el plano físico.
+
+Ésta es la meta del proceso de la meditación, y los resultados, en sus muchas variaciones, son el tema del Libro Tercero, y se producen de acuerdo a los ocho métodos de la yoga, tratados en el Libro Segundo. Únicamente la devoción a Ishvara o verdadero amor a Dios, con las cualidades asociadas de servicio, amor al semejante y la paciente constancia en obrar bien, llevarán al hombre por este difícil sendero de disciplina, purificación y arduo trabajo.
+
+## MÉTODO TERCERO. LA POSTURA
+
+### 46. La postura adoptada debe ser estable y cómoda. {#af46}
+
+Este aforismo ha conducido a los estudiantes occidentales a grandes dificultades, pues lo interpretan en sentido completamente físico. Es verdad que tiene un significado físico, pero si lo tomamos en relación con la triple naturaleza inferior, puede decirse que se refiere a una posición de constante inmovilidad del cuerpo físico, durante la meditación una condición firme e indesviable del cuerpo astral o emocional al pasar por la existencia mundana y una mente inalterable y sin fluctuaciones <pin lang="en">214</pin> totalmente controlada. De estas tres, podría decirse que la postura física tiene menos importancia. La mejor es aquella en que el aspirante puede olvidar con más rapidez que posee un cuerpo físico. Hablando en forma general podría establecerse que una posición erecta en una silla confortable, manteniendo derecha la columna, los pies cruzados en forma natural, las manos unidas sobre el regazo, los ojos cerrados y la cabeza ligeramente inclinada, es la mejor postura para el aspirante occidental. En Oriente hay una ciencia de las posturas, más de ochenta y cuatro posiciones distintas, algunas <pin lang="es">143</pin> de las cuales son muy complicadas y dolorosas. Esta ciencia es una rama del Hatha Yoga y no debiera ser seguida por la quinta raza raíz; es el remanente de esa yoga, necesaria y suficiente para los hombres de la raza raíz lemuriana, quienes tenían que aprender a controlar el cuerpo físico. Bhakti Yoga, o yoga de la devoción, fue la yoga de los atlantes o cuarta raza raíz, con algo del Hatha Yoga. En nuestra quinta raza raíz, la aria, Hatha Yoga debería caer totalmente en desuso, en lo que concierne al discípulo, el cual debiera ocuparse del Raja Yoga y Bhakti Yoga –el cual debería ser un devoto mental.
+
+El discípulo de la época lemuriana aprendió a controlar su cuerpo físico y dedicarlo al servicio de Ishvara, por la práctica del Hatha Yoga, aspirando al control emocional.
+
+El discípulo de la época atlante aprendió a controlar el cuerpo emocional y dedicarlo al servicio a Ishvara, mediante la práctica del Bhakti Yoga, aspirando a obtener control mental. <pin lang="en">215</pin>
+
+El discípulo de esta época aria debe aprender a controlar el cuerpo mental y dedicarlo al servicio a Ishvara, mediante la práctica de Raja Yoga, aspirando a conocer al morador interno, el alma. Así, en la actual raza raíz, todo el hombre inferior, la personalidad, queda subyugado y tiene lugar la “Trasfiguración" de la humanidad.
+
+### 47. La estabilidad y la comodidad de la postura se deben lograr mediante un ligero y persistente esfuerzo y la concentración de la mente en lo infinito. {#af47}
+
+Este aforismo abarca los dos aspectos que presentan dificultades en la meditación: la comodidad del cuerpo y el control de la mente. Es digno observar que el esfuerzo para alcanzar el olvido del cuerpo físico, mediante la correcta postura, se realiza con la práctica persistente, regular, más bien que forzando violentamente el cuerpo a adoptar posturas incómodas y actitudes no acostumbradas. Cuando logra esto y la mente puede estar ensimismada en las cosas del alma, entonces la estabilidad y la comodidad caracterizan al hombre en el plano físico; se olvida del vehículo físico y puede concentrar la mente, la cual está tan enfocada en una sola dirección, que es imposible pensar en el cuerpo.
+
+### 48. Cuando se ha realizado esto, los pares de opuestos ya no limitan. {#af48}
+
+Los pares de opuestos conciernen al cuerpo de deseos. Es significativo que el aforismo precedente <pin lang="en">216</pin> sólo trata de la mente y del cuerpo físico. Según este aforismo la naturaleza emocional, expresándose <pin lang="es">144</pin> por medio del deseo, no se siente influida por ninguna fuerza atrayente. El cuerpo astral se hace pasivo y negativo y no responde a ninguna atracción del mundo de la ilusión.
+
+Existe un gran misterio respecto al cuerpo astral del hombre y a la luz astral; la naturaleza de este misterio, hasta ahora es conocida únicamente por los iniciados avanzados. La luz astral es proyectada objetivamente por dos factores, y el cuerpo astral del hombre responde a estos dos tipos de energía. Esencialmente parecerían carecer de carácter o forma, pero su manifestación depende de "lo que está arriba y de lo que está abajo". La naturaleza de deseos del hombre, por ejemplo, parece responder a la atracción del gran mundo de la ilusión, el maya de los sentidos, o a la voz del ego que utiliza el cuerpo mental. Las vibraciones llegan al cuerpo astral desde el plano físico y desde el mundo mental, y según sea la naturaleza del individuo y el punto de la evolución alcanzado, así será la respuesta al llamado de lo superior o de lo inferior.
+
+El cuerpo astral está atento a las impresiones egoicas, o es atraído por el millón de voces de la tierra. Al parecer no tiene voz ni carácter propios. Esto ha sido representado en el Bhagavad Gita cuando Arjuna está entre las dos fuerzas opuestas del bien y del mal, y busca la correcta actitud hacia ambos. El plano astral es el campo de batalla del alma, el lugar de la victoria o de la derrota; es el <pin lang="en">217</pin> kurukshetra, en el cual se hace la gran elección.
+
+En estos aforismos, concernientes a la postura, está latente la misma idea. Se hace hincapié en los planos físico y mental y, si están debidamente ajustados y se consigue aplomo en el plano físico y enfoque en una sola dirección en el mental, los pares de opuestos ya no limitan. Así se llega al punto de equilibrio, y el hombre se libera. Los platillos en la balanza de la vida del hombre están equilibrados y por lo tanto se halla libre.
+
+## MÉTODO CUARTO. PRANAYAMA
+
+### 49. Cuando se ha adoptado la correcta postura (asana), le sigue el correcto control del prana y la adecuada inhalación y exhalación del aliento. {#af49}
+
+Tenemos aquí otro aforismo que ha dado lugar a muchos malentendidos y ha causado gran daño. Prevalecen varias enseñanzas sobre el control del prana, lo cual ha inducido a muchos a practicar ejercicios respiratorios, y a prácticas cuyo éxito depende de la suspensión del proceso de la respiración. Esto proviene en gran parte porque la mente occidental considera que prana <pin lang="es">145</pin> y aliento son términos sinónimos, y de ninguna manera es así. Vivekananda lo señala al comentar este aforismo, y dice:
+
+> Cuando se ha dominado la postura, entonces debe interrumpirse y controlarse el movimiento, obteniéndose el pranayama, el control de las fuerzas vitales del cuerpo. Prana no es aliento, <pin lang="en">218</pin> aunque comúnmente se lo traduzca así. Es la suma total de la energía cósmica, energía que está en cada cuerpo, cuya manifestación más evidente es el movimiento de los pulmones, causado por el prana al inhalar el aliento, y es lo que tratamos de controlar en el pranayama. Empezamos por controlar el aliento, como el medio más fácil de regular el prana
+
+Prana es la suma total de la energía del cuerpo (esto se aplica similarmente al cuerpo solar y al planetario), en consecuencia, concierne a la energía que entra en el cuerpo etérico y a su salida por medio del cuerpo físico, simbolizada en el cuerpo físico por la necesaria inhalación y exhalación del aliento. Gran parte del verdadero sentido de este aforismo se ha perdido por el hecho de hacer resaltar demasiado el acto físico de respirar.
+
+Cuando se estudia pranayama deben tenerse en cuenta ciertas cosas. Primero, que una de las funciones principales del cuerpo etérico es actuar como estimulador y vitalizador del cuerpo físico denso. Parecería que el cuerpo físico denso no tuviera una vida independiente, sino que simplemente actuara dirigido y motivado por el cuerpo etérico, que constituye el cuerpo vital o de fuerza, e interpenetrara cada parte del vehículo denso, siendo el fundamento y la verdadera sustancia del cuerpo físico. Según sea la naturaleza que anima al cuerpo etérico, la actividad de esa fuerza en el cuerpo etérico, el dinamismo o lentitud de las partes más importantes del cuerpo etérico (los centros de la <pin lang="en">219</pin> columna vertebral), así será la correspondiente actividad del cuerpo físico. En forma similar y simbólica, según sea la plenitud del aparato respiratorio y su capacidad para oxigenar y purificar la sangre, así será la salud o plenitud del cuerpo físico denso.
+
+Además debe tenerse en cuenta que la clave para la exacta respuesta de lo inferior a lo superior, reside en el ritmo y en la capacidad del cuerpo físico para responder o vibrar, en forma rítmica, al unísono con el cuerpo etérico. El estudiante ha descubierto que esto se logra fácilmente con la respiración pareja y constante, y que la mayoría de los ejercicios de respiración, cuando se les da preeminencia, excluyendo los tres métodos de yoga ya impartidos (los Mandamientos, las Reglas y la Postura), tienen un efecto definido sobre los centros etéricos y pueden acarrear resultados desastrosos. Es sumamente necesario que los estudiantes practiquen los métodos de la yoga en el orden dado por <pin lang="es">146</pin> Patanjali, y que procuren completar el proceso purificador, la disciplina de la vida interna y externa y la centralización de la mente en una sola dirección, antes de intentar la regulación del vehículo etérico por medio de la respiración y el despertar de los centros.
+
+El trabajo que se realiza por medio del pranayama podría decirse que es:
+
+1. La oxigenación de la sangre, a fin de purificar la corriente sanguínea y obtener la consiguiente salud física.
+2. Llevar el cuerpo físico a una vibración sincrónica con la del cuerpo <pin lang="en">220</pin> etérico. Esto da como resultado la completa subyugación del cuerpo físico denso y lo correlaciona con el etérico. Ambas partes del vehículo físico constituyen una unidad.
+3. La transmisión de energía, vía el cuerpo etérico, a todas partes del cuerpo físico denso. Esta energía puede provenir de varias fuentes:
+   1. Del aura planetaria. En este caso es prana planetario, que concierne principalmente al bazo y a la salud del cuerpo físico.
+   2. Del mundo astral, por conducto del cuerpo astral. Esta fuerza será puramente kámica o de deseo, y afectará principalmente a los centros ubicados abajo del diafragma.
+   3. De la mente universal o fuerza manásica, la cual constituye mayormente fuerza mental, e irá al centro laríngeo.
+   4. Del ego mismo, estimulando principalmente los centros coronario y cardíaco.
+
+La mayoría de las personas reciben la fuerza de los planos físico y astral exclusivamente, pero los discípulos también reciben fuerza de los niveles mental y egoico,
+
+### 50. El correcto control del prana (o de las corrientes de vida) es externo, interno o inmóvil; está sujeto a lugar, tiempo y número, siendo también prolongado o breve. {#af50}
+
+Este aforismo es muy difícil de entender y deliberadamente se ha oscurecido su significado, debido a los peligros incidentales al control de las fuerzas corporales. Las ideas y enseñanzas que encierra se dividen en tres partes:
+
+1. El control externo, interno o inmóvil <pin lang="en">221</pin> de las corrientes de vida del cuerpo (denso y etérico). Esto concierne: <pin lang="es">147</pin>
+   1. Al aparato respiratorio y al empleo del aliento.
+   2. A los aires vitales y su irradiación.
+   3. A los centros y su despertar.
+   4. Al fuego Kundalini y a su correcta progresión ascendente por la columna vertebral.
+2. Al significado astrológico y la relación del individuo con su grupo, planetario o de otra índole. A esto se refieren las palabras: "lugar, tiempo y número".
+3. Al proceso de iluminación y a la respuesta del hombre físico a las impresiones superiores por medio del cerebro. Tal capacidad de responder a la voz del ego y de llegar a ser pasivo y receptivo, debe preceder a los cuatro últimos métodos de la yoga, los cuales no conciernen muy de cerca al plano físico denso o a los niveles etéricos de la conciencia.
+
+Por lo tanto, será evidente que gran parte de la enseñanza contenida en este aforismo sólo puede impartirla el Instructor al alumno, directamente y sin peligro, después de un debido estudio de las condiciones corporales de éste. No es posible ni conveniente dar en este libro, destinado al público, las reglas, prácticas y métodos que permiten al discípulo entrenado sincronizar instantáneamente el vehículo físico denso con el cuerpo etérico, y aumentar la densidad de su aura e irradiarla, a fin de producir ciertos efectos magnéticos en su medio ambiente y despertar los centros que le permitirán desplegar ciertos poderes síquicos. Los métodos para despertar el fuego <pin lang="en">222</pin> kundalini y combinarlo con la fuerza egoica descendente, también deben ser enseñados directamente por un idóneo en esta ciencia. Es extremadamente peligroso despertar prematuramente el fuego, con la consiguiente destrucción de ciertas estructuras protectoras del cuerpo etérico, y la desintegración de las barreras entre este mundo y el astral, antes de estar el alumno debidamente equilibrado entre los pares de opuestos. El desarrollo prematuro de los poderes síquicos inferiores, antes de que despierte la naturaleza superior, encierra una amenaza; puede producir en el cerebro algún tipo de insania leve o grave. No obstante se darán algunas explicaciones que permitirán al verdadero estudiante esotérico obtener esa información que, si se la aplica correctamente, actuará como clave para una mayor información. Tal ha sido siempre el método ocultista. Por lo tanto trataremos brevemente estos tres puntos:
+
+1. El control externo del prana o corriente de vida, concierne a esos ejercicios respiratorios y prácticas rítmicas, que llevan a los órganos físicos, que tienen afinidad con los centros etéricos a una condición adecuada. El mago blanco u ocultista, nunca se ocupa específicamente de los órganos físicos. El mago negro sí. <pin lang="es">148</pin> Estos órganos son: el cerebro, los pulmones, el corazón, el bazo y los órganos genitales.
+   
+ El mago negro utiliza definidamente estas partes del cuerpo físico para generar un tipo de fuerza, mezcla de fuerza etérica y de energía física densa, que le permite realizar cierto <pin lang="en">223</pin> tipo de trabajo mágico y también producir efectos en los cuerpos físicos de animales y hombres. Este conocimiento es la base del "vuduismo" [la magia de los negros de las Antillas] y de todas esas –prácticas que causan el agotamiento y muerte de quienes se interponen en el camino del mago negro o de los que considera enemigos. Con éstas nada tiene que hacer el aspirante a los misterios de la Hermandad de la Gran Logia Blanca. Produce la fusión de las dos partes del cuerpo físico denso, la sincronización del ritmo de ambos cuerpos y la consiguiente unificación de todo el hombre inferior, poniendo la atención en el aliento y ritmo etéricos. Esto inevitablemente produce el "control externo de las corrientes de vida".
+
+ El control interno de las corrientes de la vida se produce de tres maneras:
+   1. Por la comprensión intelectual de la naturaleza del cuerpo etérico, y de las leyes de su vida.
+   2. Por el estudio de los tipos de energía y su mecanismo, el sistema de centros que existe en el cuerpo etérico.
+   3. Por ciertos desenvolvimientos y conocimientos que llegan al aspirante cuando está preparado (después de haber practicado los anteriores métodos de yoga), y lo capacitan para captar determinados tipos de fuerzas, energías o "shaktis", utilizándolos correctamente por medio de sus propios centros, para producir efectos que pueden ser descritos como iluminadores, purificadores, magnéticos, dinámicos, síquicos y mágicos.
+
+ El control inmóvil de las corrientes de la vida es consecuencia del adecuado desenvolvimiento de los otros <pin lang="en">224</pin> dos, el externo y el interno, y debe lograrse antes de que pueda practicarse el quinto método de yoga, de retiro o abstracción. Esto simplemente significa sincronización perfectamente equilibrada y unificación completa de las dos partes del cuerpo físico, de manera que no haya ningún impedimento para las fuerzas que entran o salen. Una vez logrado el control inmóvil, el yogui puede retirarse a voluntad del cuerpo físico o atraer a dicho cuerpo y manipular a voluntad cualquiera de las siete grandes fuerzas planetarias.
+
+ Debe tenerse en cuenta que aquí se trata de condiciones ideales; ningún aspirante puede alcanzar este método de yoga sin trabajar simultáneamente con los otros métodos. Será de utilidad estudiar el paralelismo en la naturaleza. <pin lang="es">149</pin>
+
+2. El significado astrológico se insinúa también en las tres palabras: lugar, tiempo y número, en las que puede reconocerse las triplicidades universales, y observarse que el correcto control de las corrientes de la vida se relacionan con el karma, la oportunidad y la forma. Hay ciertas palabras que, cuando se las comprende correctamente, dan la clave de todo el ocultismo práctico y convierten al yogui en amo de la vida, éstas son:
+
+|         |        |       |        |
+| ------- | ------ | ----- | ------ |
+| sonido  | número | color | forma  |
+| palabra | vida   | luz   | cuerpo |
+
+ y se considera que están sujetas a la idea-espacio y al elemento-tiempo. Debe tenerse en cuenta respecto a esto que "espacio es la primera entidad" (La Doctrina Secreta, T. II, pág. 233, 2da. Ed. Kier) y que la manifestación cíclica es la ley de la vida. <pin lang="en">225</pin>
+
+ Una vez reconocido esto, la entidad, expresándose cíclicamente, hará sentir su presencia por medio de la diferenciación, el color o la cualidad de la forma que la oculta, y por la forma misma. Estos factores constituyen la suma total de la expresión de cualquier entidad, Dios u hombre; la aparición de cualquier hombre en expresión exotérica, en el plano físico, depende de la entrada y salida rítmica o cíclica, de la energía de la Gran Vida en la cual vive, se mueve y tiene su ser. Esto es la base de la ciencia de la astrología o relación del planeta o planetas, con el ser humano, y de la relación de los mismos con las estrellas y los diversos signos zodiacales.
+ 
+ Es esencial poseer algún conocimiento al respecto, para controlar debidamente las corrientes de la vida, a fin de que el discípulo pueda utilizar las "temporadas y estaciones" en que el progreso pueda acelerarse.
+
+3. El proceso de iluminar al hombre inferior es posible mediante el correcto control del prana, y este "proceso iluminador" es una ciencia exacta, para la cual los cuatro métodos de yoga han preparado el camino. Los fuegos del cuerpo están así ordenados en forma exacta, la condición "inmóvil" se puede alcanzar en cierta medida, los aires vitales de la cabeza están "en paz" y el entero hombre inferior se halla a la expectativa de cualquiera de los dos procesos:
+   1. El retiro del hombre verdadero o espiritual, a fin de actuar en algún plano más elevado, o
+   2. el descenso a la conciencia del cerebro inferior, de la luz, la iluminación y el conocimiento, procedentes de los planos del ego. <pin lang="es">150</pin> <pin lang="en">226</pin>
+
+### 51. Hay una cuarta etapa que trasciende a las que conciernen a las fases interna y externa. {#af51}
+
+Hemos visto la forma en que el control de las corrientes de la vida puede estar externa e internamente activo y equilibrado. Este triple proceso lleva al entero hombre personal inferior, primeramente, a una condición donde responde rítmicamente al factor motivador interno (en este caso, el ego y hombre espiritual en su propio plano) y luego a la total pasividad o quietud. A esta condición de espera receptiva (si podemos denominarla así) le sigue otra, una forma de actividad superior, la cual literalmente es la imposición de un nuevo ritmo de vibración sobre la inferior; la emisión de una nueva nota que emana del hombre espiritual interno y produce ciertos efectos definidos en las tres envolturas que constituyen el no-yo y ocultan la divinidad, el hombre. Estos cambios son tratados en los dos aforismos siguientes.
+
+El estudiante común frecuentemente se dedica a preparar las envolturas para que en esta cuarta etapa sea posible conseguir:
+
+1. La coordinación consciente de las envolturas o cuerpos.
+2. Su debido alineamiento.
+3. La regulación del ritmo de las envolturas, de manera que se sincronicen entre sí y con el ritmo de la impresión egoica.
+4. La unificación de las envolturas en un todo coherente, <pin lang="en">227</pin> a fin de que el hombre llegue a ser literalmente "el tres en uno y el uno en tres”
+5. La pasividad o la actitud de receptividad positiva a la inspiración y al descenso de vida y energía egoicas.
+
+Podrá ser de ayuda al estudiante comprender que el correcto control del prana implica el reconocimiento de que la energía es la suma total de la existencia y de la manifestación, y que los tres cuerpos inferiores son cuerpos de energía, constituyendo cada uno el vehículo para un tipo superior de energía, siendo también transmisores de energía. Las energías del hombre inferior constituyen las energías del tercer aspecto, el aspecto Espíritu Santo o Brahma. La energía del hombre espiritual constituye la energía del segundo aspecto, la fuerza crística o búdica. La finalidad de la evolución en la familia humana es llevar esta fuerza crística o principio búdico, a su plena manifestación en el plano físico, mediante la utilización de la triple envoltura inferior. Esta triple envoltura es el Santo Grial, el cáliz que recibe y contiene la Vida de Dios. Una vez que el hombre inferior responde adecuadamente por la atención prestada a los cuatro métodos de yoga ya considerados, <pin lang="es">151</pin> comienzan a manifestarse en él dos resultados, y está preparado para utilizar los otros cuatro métodos restantes que lo reorientarán y llevarán, con el tiempo, a la liberación.
+
+### 52. A través de esto, lo que oscurece la luz va desapareciendo gradualmente. {#af52}
+
+El primer resultado es el desgaste gradual o la atenuación de las formas materiales que ocultan <pin lang="en">228</pin> la realidad, lo cual no significa la disipación de las formas, sino el constante refinamiento y transmutación de la materia con que esas formas están construidas, de manera que llegan a clarificarse y purificarse a tal punto que la "Luz de Dios", que hasta entonces habían ocultado, resplandece en toda su belleza en los tres mundos. Se puede demostrar que esto es literalmente verdad en el plano físico, pues mediante el trabajo de purificación y control de las corrientes de vida, la luz de la cabeza se hace tan evidente, que pueden verla quienes poseen la visión supranormal, como radiaciones que se extienden alrededor de la cabeza, formando el nimbo tan conocido en las imágenes de los santos. El nimbo es un hecho natural y no un mero símbolo. Es el resultado del trabajo de Raja Yoga y la demostración física de la vida y la luz del hombre espiritual. Vivekananda dice, hablando técnicamente (y es bueno que los estudiantes esotéricos de Occidente dominen la técnica y terminología de esta ciencia del alma, custodiada por Oriente durante mucho tiempo): "Chitta o sustancia mental, por su propia naturaleza, posee todo el conocimiento. Está compuesta de partículas sáttvicas, pero envuelta con partículas rajásicas y tamásicas, envoltura que es eliminada mediante el pranayama".
+
+### 53. Y la mente está preparada para la meditación concentrada.
+
+La edición de Johnston da una traducción muy interesante de este aforismo. Dice: "De allí viene el poder de la mente para mantenerse firme en la luz". La idea es que, una vez lograda <pin lang="en">229</pin> la condición de pasividad y hecha posible la cuarta etapa de impresión supranormal, los restantes métodos de yoga, tales como abstracción, atención, meditación y contemplación, se pueden emprender adecuadamente. Entonces es posible controlar y utilizar la mente y emprender sin peligro el proceso de trasmitir el conocimiento, la luz y la sabiduría del yo o alma, al cerebro por intermedio de la mente. <pin lang="es">152</pin>
+
+## MÉTODO QUINTO. ABSTRACCIÓN
+
+### 54. Abstracción o pratyahara, es la subyugación de los sentidos por el principio pensante, y su abstracción de lo que hasta ahora ha sido su objetivo. {#af54}
+
+Este aforismo compendia el trabajo realizado para lograr el control de la naturaleza síquica, y proporciona el resultado alcanzado, cuando el pensador, por medio de la mente, el principio pensante, domina los sentidos de tal manera, que éstos ya no tienen expresión independiente propia.
+
+Antes de que la intención, la meditación y la contemplación (los tres últimos métodos de yoga) puedan emprenderse adecuadamente, no sólo debe haberse logrado una correcta conducta externa, alcanzado la pureza interna, cultivado la correcta actitud hacia todas las cosas y, en consecuencia, controlado las corrientes de vida, sino que se habrá obtenido la capacidad de subyugar las tendencias exteriorizadas de los cinco sentidos. De manera que al aspirante se le enseña el correcto retiro o abstracción de la conciencia, que se dirige al mundo de los fenómenos, <pin lang="en">230</pin> y debe aprender a centrarla en la gran estación central de la cabeza, desde donde la energía puede ser distribuida conscientemente cuando participa de la gran tarea, y desde allí puede establecer contacto con el reino del alma y recibir mensajes e impresiones emanadas de ese reino. Ésta es una etapa definida de realización y no simplemente una forma simbólica de expresar un centralizado interés.
+
+Las diversas avenidas de percepción sensoria son llevadas a una condición pasiva. La conciencia del hombre real ya no irrumpe externamente por sus cinco avenidas de contacto. Los cinco sentidos son dominados por el sexto, la mente, y toda la conciencia y la facultad preventiva del aspirante se sintetizan en la cabeza y se dirigen hacia adentro y arriba. Así queda subyugada la naturaleza síquica y el plano mental se convierte en el campo de actividad del hombre. Este proceso de retiro o abstracción avanza por etapas:
+
+1. El retiro de la conciencia física o percepción, por medio del oído, el tacto, la vista, el gusto y el olfato. Estos medios de percepción quedan momentáneamente dormidos, la percepción del hombre es puramente mental y la conciencia del cerebro es lo único activo en el plano físico.
+2. El retiro de la conciencia en la región de la glándula pineal, para que el punto de comprensión del hombre se centralice en la región situada entre el medio de la frente y la glándula pineal. <pin lang="es">153</pin>
+3. La siguiente etapa consiste en enfocar la <pin lang="en">231</pin> conciencia en el centro coronario, el loto de mil pétalos o sahasara, retirando intencionalmente la conciencia de la cabeza. Esto se puede hacer en plena conciencia vigílica una vez aprendidas ciertas reglas y efectuado cierto trabajo. Es evidente que esto no puede divulgarse aquí. La mayoría de las personas deben dominar las dos primeras etapas y aprender a controlar las avenidas de percepción, los cinco sentidos.
+4. La abstracción de la conciencia llevándola al cuerpo astral, para liberarla del plano físico.
+5. El retiro aún más interno, en el cuerpo mental o mente, para que ni el físico ni el astral limiten o confinen al hombre.
+
+Una vez realizado lo anterior llega a ser posible la verdadera meditación y contemplación.
+
+Dvivedi, en su comentario sobre este aforismo, dice: "La abstracción consiste en asimilar totalmente los sentidos a la mente, o ser controlados por su intermedio. Deben alejarse de sus objetivos, fijarlos en la mente y ser asimilados por ella, de manera que al evitar la transformación del principio pensante, el sentido también lo seguirá y será controlado inmediatamente. No sólo sucederá esto, sino que siempre estarán dispuestos a contribuir colectivamente al logro de una meditación absorbente sobre determinada cosa y en cualquier momento".
+
+El resultado de la correcta abstracción o retiro, puede, en consecuencia, describirse brevemente:
+
+1. La síntesis de los sentidos por el sexto sentido, la mente. <pin lang="en">232</pin>
+2. El alineamiento del triple hombre inferior, de manera que los tres cuerpos actúan como unidad coordinada.
+3. La liberación del hombre de las limitaciones de los cuerpos.
+4. La consiguiente capacidad del alma o ego, para impresionar e iluminar al cerebro, por medio de la mente.
+
+### 55. Como resultado de estos métodos se obtiene la total subyugación de los órganos sensorios. {#af55}
+
+En el Libro Primero se dieron instrucciones generales acerca del objetivo de Raja Yoga, y de los obstáculos que presenta su práctica, conjuntamente con sus beneficios. El Libro Segundo, que acabamos de estudiar, trata específicamente de los obstáculos, e indica el método de corregirlos, para luego ocuparse de los ocho métodos de yoga, de los cuales se han explicado y considerado cinco. Estos cinco métodos, si se aplican debidamente, llevan al <pin lang="es">154</pin> hombre a la etapa en que es controlada su naturaleza síquica inferior y dominados los cinco sentidos, de manera que puede emprender la subyugación del sexto sentido, la mente.
+
+Los métodos por los cuales se controla la mente y el aspirante se convierte en el amo del hombre inferior, son tratados en el Libro Tercero. Se explican los tres métodos de yoga restantes y se dan en detalle los resultados de la yoga. Los estudiantes hallarán útil observar el método graduado y exacto delineado en este maravilloso tratado. Es de valor también observar su brevedad y sin embargo su <pin lang="en">233</pin> concisa y completa naturaleza. Es el libro de texto de una ciencia exacta que, en pocas páginas, reúne las reglas necesarias para obtener el completo control de la mente en la raza raíz aria, lo cual será la contribución de esa raza al proceso evolutivo.

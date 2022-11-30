@@ -45,17 +45,17 @@ title: Libro II. Los pasos hacia la unión
 39. Cuando la abstención de la avaricia es perfecta, se llega a la comprensión de la ley de renacimiento. [i118] <af book="2" af="39"/>
 40. La purificación interna y externa produce aversión a la forma, tanto a la propia como a las demás formas. [e84] <af book="2" af="40"/>
 41. Por la purificación llega también la quietud del espíritu, la concentración, el dominio de los órganos y la capacidad de ver al yo. <af book="2" af="41"/>
-42. El gozo trae por resultado la bienaventuranza.
-43. Por la ardiente aspiración y la eliminación de toda impureza, se perfeccionan los poderes del cuerpo y de los sentidos.
-44. La lectura espiritual trae como resultado el contacto con el alma o el divino Uno.
-45. Por la devoción a Ishvara se alcanza la meta de la meditación o samadhi.
-46. La postura adoptada debe ser estable y cómoda.
-47. La estabilidad y la comodidad de la postura se deben lograr mediante un ligero y persistente esfuerzo y la concentración de la mente en lo infinito.
-48. Cuando se ha realizado esto, los pares de opuesto ya no limitan.
-49. Cuando se ha adoptado la correcta postura (asana), le sigue el correcto control del prana y la adecuada inhalación y exhalación del aliento.
-50. El correcto control del prana (o de las corrientes de vida) es externo, interno  inmóvil; está sujeto a lugar, tiempo y número, siendo también prolongado o breve.
-51. Hay una cuarta etapa que trasciende a las que conciernen a las fases interna y externa.
-52. A través de esto, lo que oscurece la luz va desapareciendo gradualmente.
-53. Y la mente está preparada para la meditación concentrada.
-54. Abstracción o pratyahara, es la subyugación de los sentidos por el principio pensante, y su abstracción de lo que hasta ahora ha sido su objetivo.
-55. Como resultado de estos métodos se obtiene la total subyugación de los órganos sensorios.
+42. El gozo trae por resultado la bienaventuranza. <af book="2" af="42"/>
+43. Por la ardiente aspiración y la eliminación de toda impureza, se perfeccionan los poderes del cuerpo y de los sentidos. <af book="2" af="43"/>
+44. La lectura espiritual trae como resultado el contacto con el alma o el divino Uno. <af book="2" af="44"/>
+45. Por la devoción a Ishvara se alcanza la meta de la meditación o samadhi. <af book="2" af="45"/>
+46. La postura adoptada debe ser estable y cómoda. <af book="2" af="46"/>
+47. La estabilidad y la comodidad de la postura se deben lograr mediante un ligero y persistente esfuerzo y la concentración de la mente en lo infinito. <af book="2" af="47"/>
+48. Cuando se ha realizado esto, los pares de opuesto ya no limitan. <af book="2" af="48"/>
+49. Cuando se ha adoptado la correcta postura (asana), le sigue el correcto control del prana y la adecuada inhalación y exhalación del aliento. <af book="2" af="49"/>
+50. El correcto control del prana (o de las corrientes de vida) es externo, interno  inmóvil; está sujeto a lugar, tiempo y número, siendo también prolongado o breve. <af book="2" af="50"/>
+51. Hay una cuarta etapa que trasciende a las que conciernen a las fases interna y externa. <af book="2" af="51"/>
+52. A través de esto, lo que oscurece la luz va desapareciendo gradualmente. <af book="2" af="52"/>
+53. Y la mente está preparada para la meditación concentrada. <af book="2" af="53"/>
+54. Abstracción o pratyahara, es la subyugación de los sentidos por el principio pensante, y su abstracción de lo que hasta ahora ha sido su objetivo. <af book="2" af="54"/>
+55. Como resultado de estos métodos se obtiene la total subyugación de los órganos sensorios. <af book="2" af="55"/>
