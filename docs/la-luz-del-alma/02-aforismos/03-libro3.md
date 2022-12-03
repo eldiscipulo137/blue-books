@@ -9,13 +9,13 @@ title: Libro III. Realización de la unidad y sus resultados
 </p>
 
 1. La concentración consiste en fijar la sustancia mental (chitta) en un objeto determinado. Esto es dharana. <af book="3" af="1"/>
-2. La concentración sostenida (dharana) es meditación (dhyana).
-3. Cuando chitta es absorbida por la realidad (o idea incorporada en la forma) y ya no es consciente de la separatividad o del yo personal, esto es contemplación o samadhi.
-4. Cuando concentración, meditación y contemplación, constituyen un acto consecutivo, se alcanza sanyama.
-5. Como resultado de sanyama, llega el resplandor de la luz.
-6. Esta iluminación es gradual; se desarrolla etapa tras etapa.
-7. Estos tres últimos métodos de la yoga tienen un efecto subjetivo más íntimo que los anteriores.
-8. Sin embargo, estos tres aún no corresponden a la verdadera meditación sin simiente (o samadhi), la cual no está basada en un objeto. Está libre de los efectos que produce la naturaleza discriminadora de la sustancia mental o chitta.
+2. La concentración sostenida (dharana) es meditación (dhyana). <af book="3" af="2"/>
+3. Cuando chitta es absorbida por la realidad (o idea incorporada en la forma) y ya no es consciente de la separatividad o del yo personal, esto es contemplación o samadhi. <af book="3" af="3"/>
+4. Cuando concentración, meditación y contemplación, constituyen un acto consecutivo, se alcanza sanyama. <af book="3" af="4"/>
+5. Como resultado de sanyama, llega el resplandor de la luz. <af book="3" af="5"/>
+6. Esta iluminación es gradual; se desarrolla etapa tras etapa. <af book="3" af="6"/>
+7. Estos tres últimos métodos de la yoga tienen un efecto subjetivo más íntimo que los anteriores. <af book="3" af="7"/>
+8. Sin embargo, estos tres aún no corresponden a la verdadera meditación sin simiente (o samadhi), la cual no está basada en un objeto. Está libre de los efectos que produce la naturaleza discriminadora de la sustancia mental o chitta. <af book="3" af="8"/>
 9. La secuencia de los estados mentales es la siguiente: la mente reacciona a lo que ve; luego llega el momento en que la mente es controlada. Sigue otro en que la sustancia mental o chitta responde a ambos factores. Finalmente desaparecen y rige totalmente la conciencia perceptora.
 10. Cultivando este hábito mental se alcanzará la estabilidad de la percepción espiritual. <pin lang="en">238</pin>
 11. El establecimiento de este hábito y la sujeción de la mente para apartarla de la tendencia a crear formas mentales, traen como resultado, en su oportunidad, el poder de constante contemplación.
