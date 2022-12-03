@@ -62,9 +62,9 @@ La palabra contemplación en este caso es sinónimo de meditación. Tal meditaci
 
 Dvivedi, al comentar este aforismo dice:
 
-> ...Dhyana consiste en fijar la mente en el objeto imaginado hasta hacerlo uno con ella. En efecto, la mente debería en ese [e161] momento ser consciente únicamente de sí misma y del objeto
+> ...Dhyana consiste en fijar la mente en el objeto imaginado hasta hacerlo uno con ella. En efecto, la mente debería en ese <pin lang="es">161</pin> momento ser consciente únicamente de sí misma y del objeto
 
-La actitud del hombre se convierte en atención pura y fija; su cuerpo físico, sus emociones, aquello que lo circunda y los sonidos y lo que ve, se pierden de vista, y el cerebro es consciente sólo del objeto que constituye el tema o simiente de la meditación, y de los pensamientos que la mente va formulando en relación con el objeto. [i248]
+La actitud del hombre se convierte en atención pura y fija; su cuerpo físico, sus emociones, aquello que lo circunda y los sonidos y lo que ve, se pierden de vista, y el cerebro es consciente sólo del objeto que constituye el tema o simiente de la meditación, y de los pensamientos que la mente va formulando en relación con el objeto. <pin lang="en">248</pin>
 
 ### 3. Cuando chitta es absorbida por la realidad (o idea incorporada en la forma) y ya no es consciente de la separatividad o del yo personal, esto es contemplación o samadhi. {#af3}
 
@@ -77,27 +77,27 @@ En las etapas de dharana y dhyana, de concentración y meditación, la mente es 
 > El alma posee los medios. Pensar es el medio. Éste es inanimado. Cuando el pensamiento ha completado la tarea de liberarse, ha hecho lo que debía hacer y cesa. (Vishnu Purana, VI, 7:90).
 
 <p>
-[i249] La verdad de lo antedicho hace excesivamente difícil describir y explicar el elevado estado de samadhi o contemplación, pues las palabras o frases sólo son esfuerzos de la mente para trasmitir al cerebro del yo personal aquello que le permitirá captar y valorar el proceso.
+<pin lang="en">249</pin> La verdad de lo antedicho hace excesivamente difícil describir y explicar el elevado estado de samadhi o contemplación, pues las palabras o frases sólo son esfuerzos de la mente para trasmitir al cerebro del yo personal aquello que le permitirá captar y valorar el proceso.
 </p>
 
 En la contemplación el yogui pierde de vista:
 
-1. La conciencia cerebral, o lo que se entiende en el plano físico como tiempo y espacio. [e162]
+1. La conciencia cerebral, o lo que se entiende en el plano físico como tiempo y espacio. <pin lang="es">162</pin>
 2. Sus reacciones emocionales hacia el tema de su proceso de meditación.
 3. Sus actividades mentales, de manera que todas las "modificaciones" del proceso pensante y las reacciones emocionales de su vehículo deseo-mente (kama-manas) quedan subyugadas y el yogui es inconsciente de ello. Sin embargo, está intensamente vivo y alerta, positivo y despierto, porque controla firmemente el cerebro y la mente y los utiliza sin que ellos interfieran de manera alguna.
 
 Esto significa, textualmente, que la vida independiente de estas formas, por medio de las cuales actúa el verdadero yo, está paralizada, aquietada y subyugada, y el hombre real o espiritual, despierto en su propio plano, puede actuar utilizando plenamente el cerebro, las envolturas y la mente del yo inferior, su vehículo o instrumento. Por lo tanto, está centrado en sí mismo o en el aspecto alma. Ha perdido de vista todo sentido de separatividad o del yo personal inferior, y se ha identificado con el alma de esa forma, objeto de su meditación.
 
-Sin obstrucciones de la sustancia mental ni de la naturaleza [i250] de deseos, "entra en" ese estado cuyas cuatro características sobresalientes son:
+Sin obstrucciones de la sustancia mental ni de la naturaleza <pin lang="en">250</pin> de deseos, "entra en" ese estado cuyas cuatro características sobresalientes son:
 
 1. **Absorción en la conciencia del alma** y por lo tanto, la percepción del alma de todas las cosas. Ya no se ve la forma, y es revelada la visión de la realidad, velada por todas las formas.
 2. **Liberación de los tres mundos de la percepción sensoria**, y únicamente así se conoce y establece contacto con lo que se ha liberado de la forma, del deseo y de la sustancia mental concreta inferior.
 3. **Comprensión de la unicidad de todas las almas subhumanas, humanas y superhumanas**. "Conciencia grupal" expresa más o menos la idea, así como "conciencia separada" o comprensión de la propia identidad individual, caracteriza la conciencia en los tres mundos.
-4. **Iluminación o percepción del aspecto luz de la manifestación.** Por la meditación el yogui se conoce como luz, un punto de esencia ígnea. Debido a la facilidad con que medita, puede enfocar la luz sobre el objeto elegido, y ponerse "en armonía" con la luz que el objeto oculta. Entonces se sabe que esa luz es una en esencia con su propio centro de luz y así son posibles la comprensión, comunicación e identificación. [e163]
+4. **Iluminación o percepción del aspecto luz de la manifestación.** Por la meditación el yogui se conoce como luz, un punto de esencia ígnea. Debido a la facilidad con que medita, puede enfocar la luz sobre el objeto elegido, y ponerse "en armonía" con la luz que el objeto oculta. Entonces se sabe que esa luz es una en esencia con su propio centro de luz y así son posibles la comprensión, comunicación e identificación. <pin lang="es">163</pin>
 
 ### 4. Cuando concentración, meditación y contemplación, constituyen un acto consecutivo, se alcanza sanyama. {#af4}
 
-Ésta es una idea muy difícil de expresar, pues los idiomas occidentales carecen del equivalente [i251] de la palabra sánscrita "sanyama". Sintetiza las tres etapas del proceso de meditación y sólo quien ha aprendido y dominado las tres etapas de control mental, puede alcanzarlas. Por este dominio obtiene los siguientes resultados:
+Ésta es una idea muy difícil de expresar, pues los idiomas occidentales carecen del equivalente <pin lang="en">251</pin> de la palabra sánscrita "sanyama". Sintetiza las tres etapas del proceso de meditación y sólo quien ha aprendido y dominado las tres etapas de control mental, puede alcanzarlas. Por este dominio obtiene los siguientes resultados:
 
 1. Se ha liberado de los tres mundos, de la mente, la emoción y la existencia en el plano físico. Ya no le llaman la atención. No se concentra ni está absorbido en ellos.
 2. Puede enfocar su atención a voluntad y, si lo desea, mantener su mente firme indefinidamente mientras actúa intensamente en el mundo mental.
@@ -106,15 +106,15 @@ Sin obstrucciones de la sustancia mental ni de la naturaleza [i250] de deseos, "
 5. Ha adquirido la facultad de contemplación, esa actitud de verdadera Identificación con el reino del alma, que puede ser observado análogamente a como el hombre utiliza sus ojos para ver en el plano físico.
 6. Puede trasmitir al cerebro lo que ve, por medio de la mente controlada, y así impartir el conocimiento del yo y de su reino, al hombre en el plano físico.
 
-Esto es meditación perfectamente concentrada, y [i252] la capacidad de meditar así, se denomina "sanyama" en este aforismo. Desarrollar el poder de meditar es el objetivo del sistema de raja yoga. Por medio de esta realización el yogui aprende a diferenciar entre el objeto y lo que el objeto oculta o vela. Aprende a atravesar todos los velos y a ponerse en contacto con la realidad que existe tras ellos. Alcanza el conocimiento práctico de la dualidad.
+Esto es meditación perfectamente concentrada, y <pin lang="en">252</pin> la capacidad de meditar así, se denomina "sanyama" en este aforismo. Desarrollar el poder de meditar es el objetivo del sistema de raja yoga. Por medio de esta realización el yogui aprende a diferenciar entre el objeto y lo que el objeto oculta o vela. Aprende a atravesar todos los velos y a ponerse en contacto con la realidad que existe tras ellos. Alcanza el conocimiento práctico de la dualidad.
 
-Existe una conciencia más elevada que ésta, es el conocimiento aún no alcanzado, descrito por la palabra unidad. Sin embargo esta etapa es muy elevada, produce en el hombre sorprendentes efectos y lo introduce en diversos tipos de fenómenos. [e164]
+Existe una conciencia más elevada que ésta, es el conocimiento aún no alcanzado, descrito por la palabra unidad. Sin embargo esta etapa es muy elevada, produce en el hombre sorprendentes efectos y lo introduce en diversos tipos de fenómenos. <pin lang="es">164</pin>
 
 ### 5. Como resultado de sanyama, llega el resplandor de la luz. {#af5}
 
 Los diversos comentadores y traductores han empleado varios términos en este aforismo, y será interesante considerar algunos, porque del estudio de las distintas interpretaciones obtendremos plena comprensión de las palabras sánscritas.
 
-Abreviando, la idea implica el concepto de que la naturaleza del alma es luz, y que la luz es la gran reveladora. El yogui, gracias a la práctica constante de la meditación, llega al punto en que puede dirigir a voluntad, en cualquier dirección, la luz que irradia su propio ser e iluminar cualquier tema. Nada se le puede ocultar y todo conocimiento está a su disposición, por lo tanto, a este poder se lo describe como: [i253]
+Abreviando, la idea implica el concepto de que la naturaleza del alma es luz, y que la luz es la gran reveladora. El yogui, gracias a la práctica constante de la meditación, llega al punto en que puede dirigir a voluntad, en cualquier dirección, la luz que irradia su propio ser e iluminar cualquier tema. Nada se le puede ocultar y todo conocimiento está a su disposición, por lo tanto, a este poder se lo describe como: <pin lang="en">253</pin>
 
 1. **Iluminación de la percepción.** La luz del alma fluye y el hombre en el plano físico, en su conciencia cerebral, puede percibir lo que antes estaba oscuro y oculto. Podemos describir técnicamente el proceso en los concisos términos siguientes:
    1. Meditación.
@@ -122,10 +122,10 @@ Abreviando, la idea implica el concepto de que la naturaleza del alma es luz, y 
    3. Contemplación, o dirección de la luz del alma hacia lo que debe conocerse e investigarse.
    4. El subsiguiente descenso del conocimiento comprobado, como una "corriente de iluminación" al cerebro, por medio del sutratma, el hilo del alma, el cordón plateado o vínculo magnético. Este hilo pasa por la mente y la ilumina. Los pensamientos, engendrados por la respuesta automática de chitta (sustancia mental) al conocimiento trasmitido, se plasman entonces en el cerebro y el hombre en conciencia física llega a conocer lo que el alma conoce. Entonces se convierte en un iluminado.
  El subsiguiente descenso del conocimiento comprobado, como una "corriente de iluminación" al cerebro, por medio del sutratma, el hilo del alma, el cordón plateado o vínculo magnético. Este hilo pasa por la mente y la ilumina. Los pensamientos, engendrados por la respuesta automática de chitta (sustancia mental) al conocimiento trasmitido, se plasman entonces en el cerebro y el hombre en conciencia física llega a conocer lo que el alma conoce. Entonces se convierte en un iluminado.
- La luz de la cabeza se acrecienta en la correspondiente medida, y el tercer ojo se desarrolla y funciona, como también el correspondiente [i254] "ojo" en los planos astral y mental; de esta manera el ego o alma puede iluminar los tres planos en los tres mundos, lo mismo que el reino del alma. [e165]
+ La luz de la cabeza se acrecienta en la correspondiente medida, y el tercer ojo se desarrolla y funciona, como también el correspondiente <pin lang="en">254</pin> "ojo" en los planos astral y mental; de esta manera el ego o alma puede iluminar los tres planos en los tres mundos, lo mismo que el reino del alma. <pin lang="es">165</pin>
 2. **Lucidez de conciencia.** El hombre llega a tener lúcida y clara visión. Es consciente de su creciente poder, que le permitirá explicar y resolver todos los problemas, y no sólo esto, también hablará con lucidez y llegará a ser una de las fuerzas instructoras del mundo. Todo conocimiento, conscientemente adquirido por propia iluminación, debe ser compartido y claramente trasmitido a otros. Es el corolario de la iluminación.
 3. **Brillante surgimiento de la visión interna.** Esto proporciona un nuevo y muy importante ángulo al tema. Es la definición de la capacidad de "ver dentro" de una forma; de llegar a la realidad subjetiva, que ha hecho de la envoltura objetiva lo que es. Esta visión interna es algo más que captación, simpatía y comprensión, las cuales sólo son efectos de aquélla, que es la capacidad de atravesar todas las formas y llegar a lo que éstas velan, porque esa realidad es idéntica a la realidad en uno mismo.
-4. **Iluminación del intelecto.** Salvo que la mente o intelecto pueda captar y trasmitir lo que el alma sabe, los misterios no tienen explicación para el cerebro físico y el conocimiento que el alma posee será únicamente una visión bella e inalcanzable. Pero una vez que el intelecto está iluminado, puede trasmitir y plasmar en el cerebro las cosas ocultas, que sólo conocen los hijos de Dios, en su propio plano. De ahí la necesidad del método de Raja Yoga, o la [i255] ciencia de unión por medio del control y el desarrollo de la mente.
+4. **Iluminación del intelecto.** Salvo que la mente o intelecto pueda captar y trasmitir lo que el alma sabe, los misterios no tienen explicación para el cerebro físico y el conocimiento que el alma posee será únicamente una visión bella e inalcanzable. Pero una vez que el intelecto está iluminado, puede trasmitir y plasmar en el cerebro las cosas ocultas, que sólo conocen los hijos de Dios, en su propio plano. De ahí la necesidad del método de Raja Yoga, o la <pin lang="en">255</pin> ciencia de unión por medio del control y el desarrollo de la mente.
 
 
 ### 6. Esta iluminación es gradual; se desarrolla etapa tras etapa. {#af6}
@@ -134,7 +134,7 @@ Se considera aquí la naturaleza evolutiva de todo crecimiento y desenvolvimient
 
 Una de las cosas que todo aspirante a los misterios debería recordar es que ese crecimiento gradual y relativamente lento, constituye el método de todo proceso natural; este desenvolvimiento del alma sólo es después de todo, uno de los grandes procesos de la naturaleza. Lo que el aspirante debe hacer es proporcionar las condiciones correctas. Así el crecimiento se desarrollará normalmente por sí mismo. La perseverancia, la paciente resistencia, la realización de un poco cada día, tiene más valor para el aspirante que la vigorosa precipitación y el esfuerzo entusiasta de la persona temperamental y emocional.
 
-Forzar indebidamente el propio desarrollo, acarrea definidos y específicos peligros. Se evitan cuando el estudiante se da cuenta de que el sendero es largo y que la inteligente comprensión de [e166] cada etapa en el sendero tiene más valor para él que los resultados obtenidos por el despertar prematuro de la naturaleza síquica. El enunciado de que se ha de crecer como crece la flor, encierra una gran verdad oculta. Hay otro enunciado en Ec. 7: 16-17: ".No seas excesivamente justo…¿por qué te has de destruir. . . ?" [i256]
+Forzar indebidamente el propio desarrollo, acarrea definidos y específicos peligros. Se evitan cuando el estudiante se da cuenta de que el sendero es largo y que la inteligente comprensión de <pin lang="es">166</pin> cada etapa en el sendero tiene más valor para él que los resultados obtenidos por el despertar prematuro de la naturaleza síquica. El enunciado de que se ha de crecer como crece la flor, encierra una gran verdad oculta. Hay otro enunciado en Ec. 7: 16-17: ".No seas excesivamente justo…¿por qué te has de destruir. . . ?" <pin lang="en">256</pin>
 
 ### 7. Estos tres últimos métodos de la yoga tienen un efecto subjetivo más íntimo que los anteriores. {#af7}
 
@@ -147,18 +147,171 @@ Los ocho métodos de yoga sólo preparan al hombre para ese estado de conciencia
 Es inútil que el neófito intente comprender, hasta no haber desarrollado el instrumento interno de comprensión; no tiene objeto que el hombre mundano dude y pida que se le demuestren las cosas, si al mismo tiempo no está dispuesto (como al estudiar cualquier ciencia) a aprender el abecé y perfeccionarse en la técnica.
 
 <p>
-[i257] Johnston en su comentario dice:
+<pin lang="en">257</pin> Johnston en su comentario dice:
 </p>
 
 > ...Los métodos de crecimiento ya descritos conciernen a la liberación de las ataduras y velos psíquicos del hombre espiritual; en cambio debe aplicar este triple poder y así liberarse y permanecer sobre sus pies, contemplando la vida con los ojos abiertos
 
 ### 8. Sin embargo, estos tres aún no corresponden a la verdadera meditación sin simiente (o samadhi), la cual no está basada en un objeto. Está libre de los efectos que produce la naturaleza discriminadora de la sustancia mental o chitta. {#af8}
 
-En todas las etapas previas, el pensador ha sido consciente de sí mismo, el conocedor, y del campo de conocimiento. En las primeras etapas era consciente de la triplicidad, pues el instrumento [e167] de conocimiento era también reconocido, para ser más tarde trascendido y olvidado. Ahora viene la etapa final, objetivo de todas las prácticas de yoga, en que se conoce la unidad y en la cual hasta la dualidad es considerada una limitación. Sólo queda la conciencia del yo, el omnisciente y omnipotente conocedor, que es uno con el Todo, cuya naturaleza es percepción y energía. Como muy bien se ha dicho:
+En todas las etapas previas, el pensador ha sido consciente de sí mismo, el conocedor, y del campo de conocimiento. En las primeras etapas era consciente de la triplicidad, pues el instrumento <pin lang="es">167</pin> de conocimiento era también reconocido, para ser más tarde trascendido y olvidado. Ahora viene la etapa final, objetivo de todas las prácticas de yoga, en que se conoce la unidad y en la cual hasta la dualidad es considerada una limitación. Sólo queda la conciencia del yo, el omnisciente y omnipotente conocedor, que es uno con el Todo, cuya naturaleza es percepción y energía. Como muy bien se ha dicho:
 
 > Existen dos tipos de percepción: la percepción de las cosas vivientes y la de la Vida, o la percepción de las obras del alma y la del alma misma
 
-El expositor de la yoga ansía describir los resultados de la meditación (algunos en relación con el psiquismo superior y otros con el psiquismo inferior). Los siete aforismos siguientes [i258] se refieren a la naturaleza de los objetos vistos y al control de la mente, a medida que el verdadero hombre trata de enfocar sobre ellos el rayo iluminador de su mente.
+El expositor de la yoga ansía describir los resultados de la meditación (algunos en relación con el psiquismo superior y otros con el psiquismo inferior). Los siete aforismos siguientes <pin lang="en">258</pin> se refieren a la naturaleza de los objetos vistos y al control de la mente, a medida que el verdadero hombre trata de enfocar sobre ellos el rayo iluminador de su mente.
 
 Al estudiar estos resultados de la meditación en la esfera psíquica, debe tenerse en cuenta que los ocho métodos de yoga producen efectos definidos sobre la naturaleza inferior, causando ciertos desenvolvimientos y experiencias, que ponen al aspirante más conscientemente en armonía con los planos internos de los tres mundos. El proceso es seguro y necesario, siempre que sea el resultado del despertar del hombre en su propio plano y el dirigir a esos planos el ojo del alma por intermedio de la mente y del tercer ojo. La presencia del poder psíquico inferior puede significar, sin embargo, que el alma está dormida (desde el punto de vista del plano físico) y es incapaz de emplear su instrumento, y que estas experiencias son, por lo tanto, el resultado de la actividad del plexo solar que produce percepción en el plano astral. Este tipo de psiquismo es un retorno al estado animal y a la etapa infantil de la raza humana, siendo indeseable y peligroso.
 
+### 9. La secuencia de los estados mentales es la siguiente: la mente reacciona a lo que ve; luego llega el momento en que la mente es controlada. Sigue otro en que la sustancia mental o chitta responde a ambos factores. Finalmente desaparecen y rige totalmente la conciencia perceptora. {#af9}
+
+Si el estudiante analiza algunas traducciones de estos aforismos, hallará que la traducción de éste <pin lang="en">259</pin> varía mucho, la mayoría son excesivamente ambiguas. Podemos ver esto en la traducción de Tatya:
+
+> De dos corrientes de pensamientos auto reproductores las modificaciones que se producen en el órgano interno son las de la <pin lang="es">168</pin> forma de "Nirodha", resultantes de Vyutthana y Nirodha respectivamente; la primera está subyugada y la segunda manifestada, y en el momento de la manifestación, el órgano interno (chitta) está involucrado en ambas corrientes.
+
+Las otras son aún más vagas, excepto la traducción de Johnston, la cual arroja mucha luz sobre el pensamiento involucrado:
+
+> De los grados ascendentes surge el desenvolvimiento del control. Primero, hay que vencer la impresión mental de la excitación. Luego se manifiesta la impresión mental del control. Después del momento del control sigue la conciencia perceptora. Esto es el desenvolvimiento del control
+
+Quizás la manera más sencilla de entender esta idea es darse cuenta que el cerebro físico, cuando trata de meditar, percibe tres factores:
+
+1. Es consciente del objeto de su meditación. Esto excita o impresiona su mente, y pone en actividad las "modificaciones del principio pensante", o estimula la tendencia de la mente a crear formas mentales, haciendo que la sustancia mental adopte las formas correspondientes al objeto visto. <pin lang="en">260</pin>
+2. Luego se hace consciente de la necesidad de subyugar esta tendencia, entonces pone en acción su voluntad y aquieta y controla la sustancia mental, de modo que cese de modificarse y adquirir formas.
+
+ Gracias al esfuerzo firme y perseverante, se neutraliza el orden consecutivo de estos dos estados de conciencia que, con el tiempo, se hacen simultáneos. El reconocimiento de un objeto y el control inmediato de la sustancia mental responsiva, ocurren como un relámpago. Este es el estado llamado técnicamente "nirodha". Debe tenerse presente que, como dice Vivekananda:
+
+ > Si hay una modificación que impele a la mente a precipitarse externamente a través de los sentidos y el yogui trata de controlarla, ese mismo control constituye una modificación
+
+ La impresión que la voluntad ejerce sobre la mente, la conducirá a asumir la forma que la controla, la cual llevará una modificación, que dependerá, en gran parte, del grado de evolución alcanzado por el aspirante, de la tendencia de sus pensamientos diarios y de la amplitud de su contacto egoico. Esta no es la verdadera y más elevada forma de contemplación, sino una de las primeras etapas, pero es más elevada que la concentración y la meditación con simiente, según se entiende por la común, porque va seguida inevitablemente de la tercera etapa, la cual es muy importante.
+3. Luego el yogui repentinamente se desliza fuera del estado <pin lang="es">169</pin> inferior de conciencia, y se da cuenta que está identificado con el perceptor, con el pensador en su propio plano, y debido a que la mente está controlada y el <pin lang="en">261</pin> objeto visto no evoca respuesta, la verdadera identidad puede percibir lo que hasta entonces ha estado velado.
+
+Sin embargo, debería aclararse que el perceptor en su propio plano ha sido siempre consciente de lo que ahora reconoce. La diferencia está en que el instrumento, la mente, se halla bajo control, por lo tanto el pensador puede imprimir en el cerebro lo que percibe por la mente controlada. El hombre, en el plano físico, también percibe simultáneamente, y es posible por primera vez la verdadera meditación y contemplación. Al principio será durante breves segundos. Un destello de percepción intuitiva, un instante de visión y de iluminación y todo desaparece. La mente empieza de nuevo a modificarse y a entrar en actividad, pierde de vista la visión, el momento elevado ha pasado y la puerta al reino del alma parece cerrarse repentinamente. Pero se ha obtenido seguridad, registrado una vislumbre de la realidad en el cerebro y obtenido la garantía de una futura realización.
+
+### 10. Cultivando este hábito mental se alcanzará la estabilidad de la percepción espiritual. {#af10}
+
+Este punto de equilibrio, entre la excitación de la mente y su control, se obtiene con mayor frecuencia por la constante repetición, hasta que se adquiere el hábito de estabilizarla. Una vez logrado, ocurren dos cosas: <pin lang="en">262</pin>
+
+1. El control instantáneo de la mente a voluntad, lo cual produce:
+   1. Una mente tranquila, libre de formas mentales.
+   2. Un cerebro pasivo y responsivo.
+2. El descenso al cerebro físico de la conciencia del perceptor, el alma.
+
+Este descenso se hace cada vez más claro, más informativo y está menos sujeto a interrupciones, a medida que transcurre el tiempo, hasta que se establece una respuesta rítmica entre el alma y el hombre en el plano físico. La mente y el cerebro están completamente sometidos al alma.
+
+Debe tenerse en cuenta que esta condición de la mente y del cerebro es positiva y no un estado negativo. <pin lang="es">170</pin>
+
+### 11. El establecimiento de este hábito y la sujeción de la mente para apartarla de la tendencia a crear formas mentales, traen como resultado, en su oportunidad, el poder constante de contemplación. {#af11}
+
+Dada la claridad de este aforismo, poco tenemos que decir para explicarlo. Es una especie de resumen de los anteriores.
+
+La idea que imparte es que debe alcanzarse un estado de permanente meditación. Aunque son de enorme valor los períodos en que se lleva a cabo un trabajo definido, durante ciertas horas específicas y determinadas, particularmente en las primeras etapas del desenvolvimiento del alma, no obstante la condición ideal es mantenerse en un estado de realización durante todo el día y cada día. La capacidad de extraer a voluntad los recursos del ego, el reconocimiento constante de ser un hijo de Dios <pin lang="en">263</pin> encarnado en el plano físico, y la capacidad de hacer descender cuando es necesario el poder y la fuerza del alma, es algo que con el tiempo logrará todo aspirante. Pero, primeramente, debe establecer el hábito del recogimiento y adquirir la capacidad de reprimir las modificaciones del principio pensante, para lograr este deseable estado del ser.
+
+### 12. Cuando el control ejercido por la mente y el factor controlador están equilibrados, entonces se produce la concentración unilateral. {#af12}
+
+El término sánscrito empleado es difícil de explicar con claridad. Tales términos como: concentración unilateral, en un sólo propósito, fija, sintética, perfecta, todos dan una idea de la condición de la mente, que estamos considerando.
+
+El aspirante es ahora deliberadamente inconsciente de todos los estados mentales relacionados con los tres mundos. Su atención está enfocada en un objeto especifico, principalmente en la realidad o vida subjetiva, velada por la forma del objeto. Es además inconsciente de sí mismo, el pensador o conocedor; únicamente aquello contemplado es percibido en el verdadero sentido del término. Éste es el aspecto negativo.
+
+Sin embargo, se ha de recordar que éste es un estado mental muy activo, porque la conciencia perceptora se da cuenta del objeto de una manera más comprensiva. La totalidad de las cualidades aspectos y vibraciones le son reveladas, así como también la energía esencial central que ha traído ese <pin lang="en">264</pin> objeto particular a la <pin lang="es">171</pin> manifestación. Esto queda revelado al proyectar directamente sobre el objeto la luz iluminadora de la mente. La conciencia perceptora se da cuenta también de su identificación con la realidad detrás de la forma. Esta es la verdadera comprensión ocultista, no tanto la comprensión del objeto sino la identificación del ente con la vida que el objeto vela.
+
+Esto en sí es una condición dual, aunque no en el sentido generalmente aceptado. Sin embargo, hay un estado de conciencia aún más elevado, cuando se comprende la unidad de la vida en todas las formas y no simplemente la unidad de la vida en un objeto específico.
+
+### 13. Mediante este proceso se conocen los aspectos de cada objeto; entonces sus características (o forma), su naturaleza simbólica y su uso específico en la condición de tiempo (etapa de desarrollo) son conocidos y comprendidos. {#af13}
+
+Aquí debe tenerse en cuenta que toda forma de manifestación divina tiene tres aspectos, de manera que está hecha realmente a imagen de Dios, con todas sus potencialidades divinas. Esto también concierne al reino humano e igualmente a todas las formas. EL yogui perfectamente concentrado percibe esta triple naturaleza, ve los tres aspectos tal como son, pero sabe, al mismo tiempo, que constituyen un todo. En su comentario, Johnston resume con las siguientes palabras las ideas implicadas:
+
+> ... obtenemos una doble perspectiva de este objeto, viendo a la vez todas sus características individuales; <pin lang="en">265</pin> su carácter esencial, especie y género, lo vemos en relación consigo mismo y con el Eterno
+
+En forma curiosa estos tres aspectos abarcan los tres de la ecuación tiempo, o la relación del objeto con su medio ambiente.
+
+1. **Características de la forma.** Esta frase pone de manifiesto los aspectos tangibles y externos de la forma. Se refiere al aspecto materia de la idea en manifestación; primero considera y luego descarta aquello con que ha hecho contacto por medio de los sentidos. Dicha forma es el resultado del pasado, y se reconocen las limitaciones relativas a su etapa de evolución. Cada forma contiene en sí la evidencia de los ciclos anteriores y ello puede observarse en:
+   1. su grado de vibración,
+   2. la naturaleza de su ritmo,
+   3. la cantidad de luz que permite manifestar,
+   4. su color esotérico. <pin lang="es">172</pin>
+2. **Naturaleza simbólica.** Cada objeto no es más que el símbolo de una realidad. La diferencia en el desarrollo de las formas que simbolizan o corporifican esa realidad, constituye la garantía de que, en fecha futura, todos los símbolos alcanzarán la fructificación de su misión. El símbolo es una idea corporificada, la manifestación de alguna vida en la existencia objetiva. Este es el aspecto conciencia, y dos grandes revelaciones están latentes en todo símbolo y forma: <pin lang="en">266</pin>
+   1. La revelación de la plena conciencia, o el surgimiento de la respuesta al contacto, el cual está en potencia o difiere aún en todas las formas, pero puede producirse y se producirá hasta adquirir su máxima percepción.
+   2. La revelación de aquello que el aspecto conciencia (el segundo aspecto) oculta. La revelación del alma conduce a la manifestación de la vida una. La manifestación del Hijo de Dios lleva al conocimiento del Padre. El resplandor del yo superior, por medio del yo inferior, revela al yo divino o espiritual. La matriz contiene al diamante, y cuando la matriz revela su joya oculta y se realiza el trabajo de tallado y pulido, puede verse la gloria de la joya. Cuando la planta de loto ha alcanzado la madurez, aparece la flor y se abre y, en medio de sus pétalos, puede verse la "Joya en el Loto" (Om Mani Padme Hum).
+      1. Este aspecto simbólico es común a todas las formas; sea el símbolo  un átomo de sustancia, un mineral, un árbol, un animal o "la forma de Hijo de Dios", se hallará que oculta la joya del primer aspecto. Hará conocer su presencia por medio de la cualidad de la conciencia en alguno de sus innumerables estados.
+3. **Empleo específico en la condición de tiempo.** Al concentrarse el yogui unilateralmente sobre la forma u objeto, medita sobre su cualidad (el aspecto subjetivo o naturaleza simbólica) y contempla la vida que la forma oculta, aunque atestiguada por el factor conciencia; entonces llega a ser consciente de la actual etapa <pin lang="en">267</pin> de desarrollo y así quedan revelados a su intuición, el pasado, el presente y el futuro.
+
+Por lo tanto, será evidente, hasta para el lector ocasional, que si se desarrolla correctamente la meditación en las tres etapas mencionadas, todo conocimiento es posible para el yogui; el Eterno Ahora es para él una realidad efectiva en la naturaleza y puede colaborar inteligentemente en el plan evolutivo. El servicio tiene entonces por base la total comprensión. <pin lang="es">173</pin>
+
+### 14. Las características de cada objeto se adquieren: están en manifestación o latentes. {#af14}
+
+Este aforismo contiene más o menos la misma idea del anterior. En tiempo y espacio todas las características tienen un valor relativo. La meta es una, el origen uno, pero debido a los diferentes grados de vibración de los siete grandes alientos o corrientes de energía divina, toda vida contenida en ellos difiere y es distinta. El grado de desarrollo de los siete Señores de los Rayos es distinto. El desenvolvimiento de la vida de los diversos Logos planetarios, o de los siete Espíritus ante el Trono de Dios, no es uniforme, y los átomos de Sus cuerpos, o las Mónadas que constituyen Sus vehículos, no tienen por lo tanto desarrollo uniforme.
+
+Este tópico es muy vasto y sólo podemos ocuparnos aquí muy brevemente. Los estudiantes hallarán útil e interesante buscar la información, dada en las distintas presentaciones de la verdad una, acerca de las grandes Vidas en las cuales "vivimos, nos movemos y tenemos <pin lang="en">268</pin> nuestro ser". Podrían estudiarse bajo las siguientes denominaciones:
+
+1. los siete Rayos,
+2. los siete Espíritus ante el Trono,
+3. los siete Logos planetarios,
+4. los siete grandes Señores,
+5. los siete Eones,
+6. las siete Emanaciones,
+7. los siete Prajapatis,
+
+y otras denominaciones menos conocidas, de cuyo estudio se obtendrá mucha luz.
+
+En forma característica (teniendo en cuenta el punto específico de desenvolvimiento o carencia del mismo), al conocedor se le revela:
+
+1. *La totalidad de lo adquirido*. Lo que el pasado ha dado. Este es el acorde total que el alma de ese objeto es aún capaz de emitir.
+2. *La serie particular de cualidades*, extraídas de la adquisición total, que la vida manifiesta por medio de alguna forma específica. Esta es la nota que corresponde al presente acorde adquirido, que el alma del objeto ha elegido emitir.
+3. *Lo que está latente y es posible*. Este conocimiento será dual, y revelará primero, las posibilidades latentes que <pin lang="es">174</pin> deberán desarrollarse por medio de la forma contemplada, y segundo, las posibilidades latentes, susceptibles de ser desarrolladas en el actual ciclo mundial, por medio de diversas formas. Esto abarca los desarrollos futuros, que proporcionan al yogui el acorde completo, una vez finalizado el gran ciclo evolutivo. <pin lang="en">269</pin>
+
+### 15. La etapa de desenvolvimiento es responsable de las variadas modificaciones de la versátil naturaleza psíquica y del principio pensante. {#af15}
+
+Esta es una paráfrasis general de la idea implicada, y una especie de resumen de las abstrusas ideas del texto. Los siguientes aforismos (en el Libro Tercero) se ocupan de los resultados de la meditación. Los anteriores se han referido a las dificultades y obstáculos a vencer antes de ser posible la verdadera meditación. Este aforismo da la clave de lo que hay que vencer y establece las diferencias entre los aspirantes al Sendero. Una de las actividades más útiles que el aspirante puede emprender consiste en determinar el lugar aproximado que ocupa en la escala de evolución y establecer su debe y haber. El conocimiento del punto alcanzado y del paso inmediato a dar es esencial para progresar realmente.
+
+Johnston traduce este aforismo con las palabras: "La diferencia de grado es la causa de la diferencia del desarrollo". Luego continúa: "La primera etapa es el brote, la oruga, el animal; la segunda etapa es el árbol en desarrollo, la crisálida, el hombre. La tercera, el espléndido pino, la mariposa, el ángel..."
+
+### 16. La meditación concentrada en la triple naturaleza de cada forma, otorga la revelación de lo que ha sido y será. {#af16}
+
+Este aforismo resume las <pin lang="en">270</pin> ideas precedentes. Es interesante observar cómo este primer gran resultado de la meditación nos retrotrae a los verdaderos hechos referentes a la manifestación divina, y hace resaltar los tres aspectos, por los cuales toda vida (desde el átomo de sustancia hasta un Logos solar) se expresa. Son reconocidos la gran Ley de Causa y Efecto y todo el proceso de desarrollo evolutivo, y lo que es, es visto como resultado de lo que ha sido. Análogamente, lo que más tarde será, se conoce como el desarrollo de causas puestas en movimiento en el presente, y así el ciclo de desenvolvimiento es visto como un proceso en tres etapas.
+
+<p>
+<pin lang="es">175</pin> Estas tres etapas, en los tres mundos del desenvolvimiento humano, corresponden a las tres dimensiones. Los estudiantes hallarán interesante comparar las analogías de las diversas triplicidades, teniendo en cuenta que el tercer aspecto (sustancia inteligente), el aspecto Espíritu Santo o Brahma, corresponde al pasado. (He aquí un indicio respecto a la naturaleza del mal). El segundo aspecto (conciencia), el aspecto Cristo o Vishnu, se relaciona con el presente; mientras que únicamente el futuro revelará la naturaleza del espíritu, el Padre, o aspecto más elevado. Esta línea de pensamiento se esclarecerá por la meditación concentrada, a la vez que irá desarrollando un sentido de proporción y de exactos valores, respecto al actual punto en el tiempo. También se conocerá la relación de todas las vidas entre sí, y la vida del aspirante se adaptará y estabilizará de tal manera que ajustará el karma pasado, y neutralizará el posible karma futuro, avanzando así rápidamente el proceso de liberación. <pin lang="en">271</pin>
+</p>
+
+### 17. El sonido (o palabra), lo que éste denota (el objeto) y la esencia espiritual corporificada (la idea), son confundidos generalmente por la mente del perceptor. Por la meditación concentrada en estos tres aspectos, se logra la comprensión (intuitiva) del sonido emitido por todas las formas de vida. {#af17}
+
+Este es uno de los aforismos más importantes del libro; contiene la clave del objetivo de todo el proceso de la meditación. Revela o descubre al perceptor y hombre espiritual, la verdadera naturaleza del ser, el segundo aspecto, y la analogía con el segundo aspecto en todas las formas de vida subhumanas, a la vez que lo pone en armonía con el segundo aspecto de todas las formas superhumanas. Por lo tanto concierne al aspecto subjetivo de toda la manifestación, y trata de esas fuerzas que en cada forma constituyen el aspecto conciencia que atañe al principio crístico o búdico, causa directa de la manifestación objetiva y de la revelación del espíritu por medio de la forma.
+
+Este es el **AUM**. Primero el aliento, luego la palabra, y todo cuanto es, apareció.
+
+Mientras la gran Existencia, suma total de todas las formas y de todos los estados de conciencia, continúe emitiendo el AUM cósmico, persistirá el sistema solar objetivo y tangible.
+
+A fin de esclarecer la mente, se deben tener en cuenta, en conexión con este aforismo, los sinónimos siguientes: <pin lang="es">176</pin> <pin lang="en">272</pin>
+
+| I. La Esencia Espiritual.    | II El Sonido o Palabra. | III. El Objeto                            |
+| ---------------------------- | ----------------------- | ----------------------------------------- |
+| Espíritu                     | Alma                    | Cuerpo                                    |
+| Neuma                        | Psiquis                 | Forma                                     |
+| El Padre, Shiva              | El Hijo, Vishnu         | El Espíritu Santo, Brahma                 |
+| La Mónada, el Uno            | El Cristo cósmico       | El vehículo para la vida y la encarnación |
+| Voluntad o Propósito eternos | Amor Sabiduría          | Actividad e inteligencia eternas          |
+| El Gran Aliento              | El AUM                  | Los mundos                                |
+| Vida                         | Aspecto conciencia      | Aspecto actividad                         |
+| Energía sintetizadora        | Fuerza atractiva        | Materia                                   |
+| Primer Aspecto               | Segundo Aspecto         | Tercer Aspecto                            |
+
+La mente del hombre por lo general confunde estos tres aspectos y reconoce como realidad lo externo y objetivo. Este es el gran maya o ilusión, que sólo puede disiparse cuando el perceptor puede distinguir los tres grandes aspectos de cada forma, incluso la propia. Cuando se conoce el segundo aspecto, el alma, el principio mediador, también se conoce la naturaleza de la forma y puede inferirse la naturaleza esencial del espíritu. Sin embargo, el campo inmediato del conocimiento que el yogui debe dominar es el segundo aspecto. Debe descubrir el Sonido o Palabra que trajo cada forma a la manifestación, que es el resultado del aliento, esencia o espíritu.
+
+> En el Principio era el Verbo y el Verbo <pin lang="en">273</pin> era con Dios y el Verbo era Dios. Todas las cosas por Él fueron hechas... (Jn. I: 1: 2).
+
+La Biblia cristiana da aquí la sustancia de toda la enseñanza, y en el significado de las tres letras de la Palabra Sagrada, AUM, tenemos la clave de todo el proceso cósmico. El proceso de la meditación, cuando se practica debida y correctamente, revela el segundo aspecto o alma, y puede entonces oírse el Sonido o Verbo (la Voz del Silencio).
+
+Cuando se ha oído y llevado a cabo constantemente el trabajo, es revelado el reino de la conciencia y el yogui se pone en armonía con el segundo aspecto de su propia naturaleza y con el segundo aspecto de cada forma. Esta es la base de toda la ciencia del alma, y lleva al hombre al conocimiento de su propia alma o psiquis, y también la psiquis de cada forma de vida divina. Es el fundamento de toda la ciencia del psiquismo, en sus aspectos superior e inferior.
+
+Si el hombre psíquico inferior es consciente y responde al aspecto alma de las formas materiales, predomina en él el tercer <pin lang="es">177</pin> aspecto o Brahma (el cuerpo), porque todo átomo de materia tiene un alma. Esto concierne a lo subhumano.
+
+Cuando el hombre responde a la analogía superior, a la realidad de la cual lo inferior es la sombra, está en contacto con la conciencia crística y con el alma de su ser, que es una con el alma de todos los reinos superhumanos.
+
+En relación con esto deben tenerse en cuenta dos cosas. Si el hombre es un psíquico inferior está en contacto con el segundo aspecto del hombre inferior, el cuerpo astral, el principio medio en el hombre <pin lang="en">274</pin> inferior, que vincula el cuerpo mental con el etérico. En consecuencia, está en armonía con todo aquello que puede hacer contacto en ese plano. Si en cambio es un psíquico superior, está en armonía con el segundo aspecto de la manifestación divina, el ego o alma en su propio plano, actuando como intermediaria y vinculadora entre la mónada y la personalidad, entre el espíritu y el cuerpo.
+
+Es interesante observar aquí que en manifestaciones del psiquismo inferior, que tienen lugar en las sesiones mediúmnicas comunes de espiritismo, tenemos la clave de esta verdad. En dichas sesiones se establece contacto con el plano astral, por medio de ese gran centro, el plexo solar, que une los tres centros superiores con los inferiores. Explica también el hecho de que la materialización de las flores sea característico en tales sesiones, pues el reino vegetal es el intermediario de los tres reinos subhumanos, mineral, vegetal y animal. Además explica el predominio de los guías indios, pues son los cascarones y las poderosas formas mentales, dejados por las tres razas estrictamente humanas, lemuriana, atlante y aria. Ya no quedan cascarones o formas mentales de los lemurianos, pero sí cascarones atlantes, conservados debido al empleo de ciertas fórmulas de la magia atlante.
+
+La meditación concentrada sobre la diferencia entre estos aspectos, hará posible con el tiempo oír la Voz del Silencio y ponerse en contacto con el segundo aspecto del hombre. Se conocerá como “el Verbo hecho carne“ y también como el AUM.
+
+<p>
+<pin lang="en">275</pin> Cuando esto tenga lugar, oirá la palabra de otros entes de la familia humana y reconocerá el sonido, tal como emana de todas las formas en todos los reinos de la naturaleza. El reino del alma se abrirá ante él, y cuando esto incluya el reconocimiento del sonido en los cuatro reinos, lo llevará a conocerse a sí mismo como el Maestro. El conocimiento del alma y el poder de trabajar con el alma de todas las cosas en los tres mundos, es la marca característica del Adepto. <pin lang="es">178</pin>
+</p>

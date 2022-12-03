@@ -16,15 +16,15 @@ title: Libro III. Realización de la unidad y sus resultados
 6. Esta iluminación es gradual; se desarrolla etapa tras etapa. <af book="3" af="6"/>
 7. Estos tres últimos métodos de la yoga tienen un efecto subjetivo más íntimo que los anteriores. <af book="3" af="7"/>
 8. Sin embargo, estos tres aún no corresponden a la verdadera meditación sin simiente (o samadhi), la cual no está basada en un objeto. Está libre de los efectos que produce la naturaleza discriminadora de la sustancia mental o chitta. <af book="3" af="8"/>
-9. La secuencia de los estados mentales es la siguiente: la mente reacciona a lo que ve; luego llega el momento en que la mente es controlada. Sigue otro en que la sustancia mental o chitta responde a ambos factores. Finalmente desaparecen y rige totalmente la conciencia perceptora.
-10. Cultivando este hábito mental se alcanzará la estabilidad de la percepción espiritual. <pin lang="en">238</pin>
-11. El establecimiento de este hábito y la sujeción de la mente para apartarla de la tendencia a crear formas mentales, traen como resultado, en su oportunidad, el poder de constante contemplación.
-12. Cuando el control ejercido por la mente y el factor controlador están equilibrados, entonces se produce la concentración unilateral.
-13. Mediante este proceso se conocen los aspectos de cada objeto; entonces sus características (o forma), su naturaleza simbólica y su uso específico en la condición de tiempo (etapa de desarrollo) son conocidos y comprendidos.
-14. Las características de cada objeto se adquieren: están en manifestación o latentes.
-15. La etapa de desenvolvimiento es responsable de las variadas modificaciones de la versátil naturaleza psíquica y del principio pensante.
-16. La meditación concentrada en la triple naturaleza de cada forma, otorga la revelación de lo que ha sido y será.<pin lang="es">156</pin>
-17. El sonido (o palabra), lo que éste denota (el objeto) y la esencia espiritual corporificada (la idea), son confundidos generalmente por la mente del perceptor. Por la meditación concentrada en estos tres aspectos, se logra la comprensión (intuitiva) del sonido emitido por todas las formas de vida.
+9. La secuencia de los estados mentales es la siguiente: la mente reacciona a lo que ve; luego llega el momento en que la mente es controlada. Sigue otro en que la sustancia mental o chitta responde a ambos factores. Finalmente desaparecen y rige totalmente la conciencia perceptora. <af book="3" af="9"/>
+10. Cultivando este hábito mental se alcanzará la estabilidad de la percepción espiritual. <pin lang="en">238</pin> <af book="3" af="10"/>
+11. El establecimiento de este hábito y la sujeción de la mente para apartarla de la tendencia a crear formas mentales, traen como resultado, en su oportunidad, el poder de constante contemplación. <af book="3" af="11"/>
+12. Cuando el control ejercido por la mente y el factor controlador están equilibrados, entonces se produce la concentración unilateral. <af book="3" af="12"/>
+13. Mediante este proceso se conocen los aspectos de cada objeto; entonces sus características (o forma), su naturaleza simbólica y su uso específico en la condición de tiempo (etapa de desarrollo) son conocidos y comprendidos. <af book="3" af="13"/>
+14. Las características de cada objeto se adquieren: están en manifestación o latentes. <af book="3" af="14"/>
+15. La etapa de desenvolvimiento es responsable de las variadas modificaciones de la versátil naturaleza psíquica y del principio pensante. <af book="3" af="15"/>
+16. La meditación concentrada en la triple naturaleza de cada forma, otorga la revelación de lo que ha sido y será.<pin lang="es">156</pin> <af book="3" af="16"/>
+17. El sonido (o palabra), lo que éste denota (el objeto) y la esencia espiritual corporificada (la idea), son confundidos generalmente por la mente del perceptor. Por la meditación concentrada en estos tres aspectos, se logra la comprensión (intuitiva) del sonido emitido por todas las formas de vida. <af book="3" af="17"/>
 18. Cuando se adquiere el poder de ver las imágenes mentales se pueden conocer las encarnaciones anteriores.
 19. Por la meditación concentrada se perciben las imágenes mentales en las mentes de otras personas.
 20. Debido a que el objeto de tales pensamientos no se manifiesta al perceptor, éste sólo ve el pensamiento y no el objeto. Su meditación excluye lo tangible.
