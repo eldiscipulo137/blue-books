@@ -25,13 +25,13 @@ title: Libro III. Realización de la unidad y sus resultados
 15. La etapa de desenvolvimiento es responsable de las variadas modificaciones de la versátil naturaleza psíquica y del principio pensante. <af book="3" af="15"/>
 16. La meditación concentrada en la triple naturaleza de cada forma, otorga la revelación de lo que ha sido y será.<pin lang="es">156</pin> <af book="3" af="16"/>
 17. El sonido (o palabra), lo que éste denota (el objeto) y la esencia espiritual corporificada (la idea), son confundidos generalmente por la mente del perceptor. Por la meditación concentrada en estos tres aspectos, se logra la comprensión (intuitiva) del sonido emitido por todas las formas de vida. <af book="3" af="17"/>
-18. Cuando se adquiere el poder de ver las imágenes mentales se pueden conocer las encarnaciones anteriores.
-19. Por la meditación concentrada se perciben las imágenes mentales en las mentes de otras personas.
-20. Debido a que el objeto de tales pensamientos no se manifiesta al perceptor, éste sólo ve el pensamiento y no el objeto. Su meditación excluye lo tangible.
-21. La meditación concentrada en la diferencia que existe entre la forma y el cuerpo, permite rechazar o retirar las propiedades del cuerpo que lo hacen visible al ojo humano, y el yogui puede hacerse invisible.
-22. Karma o efecto, es de dos tipos: karma inmediato o karma futuro. La <pin lang="en">239</pin> meditación perfectamente concentrada en éstos, permite al yogui conocer la duración de su experiencia en los tres mundos. Este conocimiento también lo adquiere por medio de signos.
-23. La unión con los demás se obtiene por la meditación centralizada en tres estados del sentimiento - compasión, ternura y desapasionamiento.
-24. La meditación centralizada en el poder del elefante, despertará esa fuerza o luz.
+18. Cuando se adquiere el poder de ver las imágenes mentales se pueden conocer las encarnaciones anteriores. <af book="3" af="18"/>
+19. Por la meditación concentrada se perciben las imágenes mentales en las mentes de otras personas. <af book="3" af="19"/>
+20. Debido a que el objeto de tales pensamientos no se manifiesta al perceptor, éste sólo ve el pensamiento y no el objeto. Su meditación excluye lo tangible. <af book="3" af="20"/>
+21. La meditación concentrada en la diferencia que existe entre la forma y el cuerpo, permite rechazar o retirar las propiedades del cuerpo que lo hacen visible al ojo humano, y el yogui puede hacerse invisible. <af book="3" af="21"/>
+22. Karma o efecto, es de dos tipos: karma inmediato o karma futuro. La <pin lang="en">239</pin> meditación perfectamente concentrada en éstos, permite al yogui conocer la duración de su experiencia en los tres mundos. Este conocimiento también lo adquiere por medio de signos. <af book="3" af="22"/>
+23. La unión con los demás se obtiene por la meditación centralizada en tres estados del sentimiento - compasión, ternura y desapasionamiento. <af book="3" af="23"/>
+24. La meditación centralizada en el poder del elefante, despertará esa fuerza o luz. <af book="3" af="24"/>
 25. La meditación perfectamente concentrada en la luz desarrollada, nos hará conscientes de lo sutil, oculto y remoto.
 26. La meditación centralizada en el sol, traerá conciencia (o conocimiento) de los siete mundos.
 27. La meditación centralizada en la Luna, otorga el conocimiento de todas las formas lunares.

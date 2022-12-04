@@ -315,3 +315,179 @@ La meditación concentrada sobre la diferencia entre estos aspectos, hará posib
 <p>
 <pin lang="en">275</pin> Cuando esto tenga lugar, oirá la palabra de otros entes de la familia humana y reconocerá el sonido, tal como emana de todas las formas en todos los reinos de la naturaleza. El reino del alma se abrirá ante él, y cuando esto incluya el reconocimiento del sonido en los cuatro reinos, lo llevará a conocerse a sí mismo como el Maestro. El conocimiento del alma y el poder de trabajar con el alma de todas las cosas en los tres mundos, es la marca característica del Adepto. <pin lang="es">178</pin>
 </p>
+
+### 18. Cuando se adquiere el poder de ver las imágenes mentales se pueden conocer las encarnaciones anteriores. {#af18}
+
+El significado de este aforismo es muy grande. Constituye la base estrictamente mental para la recuperación del conocimiento de experiencias pasadas, base estrictamente mental y los que llegan a polarizar y controlar la mente pueden recuperar tal conocimiento si desean. El poder de ver imágenes mentales sólo se obtiene por el control de la mente, y ésta sólo puede ser controlada por el hombre real o espiritual. Por lo tanto, sólo las personas centradas en el ego pueden adquirir realmente tal conocimiento. Quizás aquí se pregunten ¿Qué ven esas personas de tipo emocional y no mental, que afirman saber quiénes son y relatan las vidas pasadas de sus amigos? Leen los registros akáshicos, pero debido a que su dominio y dotes mentales no son adecuados, no pueden discernir y precisar con exactitud lo que ven.
+
+Los registros akáshicos son como una enorme película <pin lang="en">276</pin> fotográfica, donde se registran los deseos y las experiencias terrenas de nuestro planeta. Los capaces de percibirlos verán reproducidos en ellos:
+
+1. las experiencias de la vida de todo ser humano, desde el principio del tiempo,
+2. las reacciones a las experiencias de todo el reino animal,
+3. el conjunto de formas mentales de naturaleza kámica (basadas en el deseo) de todo ente humano, en el transcurso del tiempo. He aquí el gran engaño en los registros. Únicamente el ocultista entrenado puede distinguir entre las experiencias reales y los cuadros astrales, creados por la imaginación y el ardiente deseo.
+4. El "Morador en el Umbral" planetario, con todo lo que abarca ese término, más el conjunto de formas de su medio ambiente.
+
+El vidente entrenado ha aprendido a separar del aura del planeta (que en realidad es el registro akáshico), lo que pertenece a su propia aura, y puede diferenciar entre esos registros, los:
+
+1. Planetarios.
+2. Jerárquicos, o pertenecientes al trabajo de las doce Jerarquías creadoras, cuando concretan el plan del Logos.
+3. Las formas imaginarias, resultantes de la actividad deseo - mente de miríadas de hombres animados por el deseo de obtener algún tipo de experiencia.
+4. Los registros históricos de las razas, naciones, grupos y familias, en sus dos grandes divisiones: plano físico y plano astral. <pin lang="en">277</pin> Debe tenerse en cuenta que todo ser humano pertenece a una familia física, que constituye su vínculo con el reino animal, y también pertenece a una familia astral. Mediante esa afiliación está vinculado con su grupo egoico en el arco ascendente, y con el reino vegetal en el arco descendente. <pin lang="es">179</pin>
+5. El registro astrológico, o las formas adoptadas en el plano astral, bajo la influencia de las fuerzas planetarias, constituyen dos grandes grupos:
+   1.  Las formas o imágenes en el akasha, producidas por la afluencia de fuerza solar, por intermedio de los planetas.
+   2.  Las formas o imágenes producidas por la afluencia de fuerza cósmica de alguno de los signos del zodíaco, es decir, de sus correspondientes constelaciones.
+
+Se han enumerado estos puntos a fin de demostrar la imposibilidad de que sean verídicas la mayoría de las afirmaciones, respecto a las encarnaciones pasadas. Son resultado de la vívida imaginación y de la presunción de que los destellos de visión astral, que dan una vislumbre de la película akáshica, revelan lo que atañe a quien lo ve. Pero esto no es así, como en el caso de las personas y actividades observadas desde una ventana en una gran ciudad, lo cual no revela al observador que lo visto son sus parientes, amigos y actividades.
+
+El conocimiento a que hace referencia este aforismo, se obtiene de tres maneras:
+
+1. Por la capacidad de ver directamente los registros, si así se desea. Tal forma de adquirir conocimiento rara vez se emplea, únicamente los iniciados y adeptos la utilizan respecto a sus discípulos juramentados. <pin lang="en">278</pin>
+2. Por el conocimiento directo de las actividades y relaciones grupales del propio ego del hombre; sin embargo, sólo abarca el ciclo de tiempo que comienza cuando el hombre entró en el sendero de probación. Las experiencias anteriores no tienen más importancia vital que la que tendría un segundo en la vida de un anciano que observara retrospectivamente su larga vida. Lo destacable son los sucesos y ocurrencias y no las horas y segundos individuales.
+3. Por la vida instintiva. Esto se basa en la memoria, en las facultades y capacidades adquiridas y en la posesión de las cualidades que componen el equipo del ego, el cual sabe que el poder de realizar esto o aquello en los tres mundos, es el resultado <pin lang="es">180</pin> directo de experiencias pasadas; sabe también que ciertos efectos sólo se alcanzan mediante ciertas causas, que conoce por la meditación concentrada.
+
+Las imágenes mentales de las cuales es consciente son las de:
+
+1. Su aura, en el momento de la meditación.
+2. Su medio ambiente inmediato.
+3. Su familia, grupo o raza actuales.
+4. Su actual ciclo de vida.
+5. Su grupo egoico.
+
+De esta manera, mediante el proceso de eliminación, progresa gradualmente a través de un tipo tras otro de imágenes mentales, hasta que llega a ese estrato particular de impresiones mentales, que atañen al ciclo que le concierne. Esto no es, por lo tanto, la simple percepción de ciertos aspectos de los registros, sino un <pin lang="en">279</pin> proceso estrictamente científico, conocido únicamente por el ocultista entrenado.
+
+### 19. Por la meditación concentrada se perciben las imágenes mentales en las mentes de otras personas. {#af19}
+
+Debe recordarse que el resultado de los ocho métodos de yoga es producir un yogui o conocedor entrenado. Se ocupa por lo tanto de las causas, no de los efectos. Percibe aquello que causa la aparición de lo tangible, o sea, los pensamientos que ponen en movimiento las fuerzas de la sustancia, y que con el tiempo producen la concreción de tal sustancia.
+
+El empleo de este poder para leer en las mentes de los demás sólo se le permite al yogui en esos casos en que necesita comprender las causas detrás de ciertos acontecimientos, y únicamente con el objeto de desarrollar inteligentemente los planes de la Jerarquía y de la evolución. Tal poder es análogo al de la telepatía, pero no idéntico. La telepatía implica sintonizar nuestra mente con la de otro, y requiere que ambas estén en armonía.
+
+Esta facultad del vidente entrenado es más bien un acto de la voluntad y la manipulación de ciertas fuerzas, mediante las cuales puede ver instantáneamente lo que desea, en cualquier aura y en cualquier momento.
+
+El sujeto de su investigación puede estar o no sintonizado con él; por la intensa meditación y el empleo de la voluntad se le revelan las imágenes mentales. Este poder es peligroso y únicamente les está permitido a discípulos entrenados. <pin lang="es">181</pin> <pin lang="en">280</pin>
+
+### 20. Debido a que el objeto de tales pensamientos no se manifiesta al perceptor, éste sólo ve el pensamiento y no el objeto. Su meditación excluye lo tangible. {#af20}
+
+Todo lo que "percibe", en su meditación, es su propia sustancia mental (chitta) y la de otros.
+
+La actividad inherente a la sustancia mental o "chitta", causa la manifestación eventual de formas tangibles y objetivas, en el plano físico.
+
+Todo lo que aparece es el resultado de un acontecimiento subjetivo. Todo lo que es, existe en la mente del pensador, no como se entiende comúnmente, sino en el sentido de que el pensamiento pone en movimientos ciertas corrientes de fuerza. Estas corrientes van perfilando las formas correspondientes a la idea del pensador, formas que persisten mientras su mente se centra en ellas, y cuando "su mente las rechaza", desaparecen.
+
+Durante la meditación concentrada lo que se percibe es la naturaleza de la fuerza o corriente mental. La forma que resultará finalmente no interesa al vidente. Sabe por la causa cuál será el efecto inevitable.
+
+### 21. La meditación concentrada en la diferencia que existe entre la forma y el cuerpo, permite rechazar o retirar las propiedades del cuerpo que lo hacen visible al ojo humano, y el yogui puede hacerse invisible. {#af21}
+
+Este es uno de los aforismos más difíciles para el pensador occidental, porque implica ciertos <pin lang="en">281</pin> conocimientos extraños para Occidente. Primero, el conocimiento del cuerpo etérico o vital y de sus funciones como fuerza atrayente, que mantiene coherente el vehículo físico denso. Por este sustrato etérico, al cuerpo físico se lo conoce como un todo coherente y se hace visible su objetividad. Este cuerpo vital es la verdadera forma desde el punto de vista del ocultista y no la envoltura tangible densa.
+
+El yogui, por medio de la concentración y la meditación, adquiere el poder de centrar su conciencia en el hombre real o espiritual, y controlar el principio pensante. Es ley oculta que "según el hombre piensa, así es él"; también es verdad esotéricamente que "allí donde el hombre piensa, allí está él". El vidente entrenado puede, a voluntad, retirar su conciencia del plano físico y centrarla en el plano mental; puede "apagar la luz" a voluntad y, cuando esto sucede, se hace invisible y desaparece desde el <pin lang="es">182</pin> punto de vista del ojo humano. También es intangible para el tacto e inaudible para el oído. Este hecho demuestra la realidad de la hipótesis, de que no existe más que energía de cualquier tipo, y que tal energía es triple; en Oriente, la naturaleza de la energía se denomina sáttvica, rajásica y tamásica, y se traduce como:
+
+|        |           |          |           |
+| ------ | --------- | -------- | --------- |
+| Sattva | ritmo     | espíritu | vida      |
+| Rajas  | movilidad | alma     | luz       |
+| Tamas  | inercia   | cuerpo   | sustancia |
+
+Todas son diferenciaciones en tiempo y espacio, de la única, eterna y primordial esencia - espíritu. Podría <pin lang="en">282</pin> sugerirse que las analogías modernas occidentales son:
+
+|         |          |           |
+| ------- | -------- | --------- |
+| Energía | espíritu | vida      |
+| Fuerza  | alma     | luz       |
+| Materia | forma    | sustancia |
+
+La característica sobresaliente del espíritu o energía, es el principio-vida, ese algo misterioso que hace que todas las cosas existan y persistan. La característica dominante del alma o fuerza, es la luz. Trae a la visibilidad lo que existe.
+
+La característica predominante de la materia viviente es que "subyace", o se halla detrás del cuerpo objetivo proporcionando la verdadera forma. Debe recordarse que la base de toda enseñanza oculta y de todos los fenómenos reside en las palabras:
+
+> La materia es el vehículo de manifestación del alma, en este plano de existencia, y el alma, en una vuelta más alta de la espiral, es el vehículo de manifestación del espíritu. D.S., T.I., pág. 106, 2da. Ed. Kier.
+
+Cuando el alma se retira del aspecto materia -la forma objetiva tangible-, esa forma ya no se ve, desaparece y, temporariamente, se disipa. En la actualidad, esto puede lograrlo adecuadamente el vidente, centrando su conciencia en el ego, el hombre espiritual o alma, y (valiéndose del principio pensante y por un acto de voluntad) retirando el cuerpo etérico del físico denso. Esto lo abarca la palabra “abstracción", e implica: <pin lang="en">283</pin>
+
+1. Reunir la vida o fuerzas vitales del cuerpo en los centros nerviosos del plano físico, a lo largo de la columna vertebral.
+2. Dirigir esas fuerzas por la columna vertebral a la cabeza.
+3. Concentrarlas allí y abstraerlas por el hilo o sutratma, mediante la glándula pineal y el brahmarandra.
+4. El vidente entonces aparece en su verdadera forma, el cuerpo etérico, el cual es invisible para el ojo humano. Cuando la raza <pin lang="es">183</pin> desarrolle la visión etérica, será necesaria una posterior abstracción; entonces el vidente retirará también los principios vitales y luminosos (las cualidades de sattva y de rajas) del cuerpo etérico, quedando en su cuerpo kámico o astral, haciéndose así invisible etéricamente. Sin embargo, esto está aún muy distante.
+
+W. Q. Judge, en su comentario, hace interesantes observaciones:
+
+> Aquí se señala otra gran diferencia entre esta filosofía y la ciencia moderna. Las escuelas en la actualidad postulan que si un ojo sano está en línea con los rayos de luz reflejados por un objeto -tal como el cuerpo humano-, éste será visto y ninguna acción mental de la persona observada podrá inhibir las funciones del nervio óptico y la retina del observador. Pero los antiguos hindúes sostenían que las cosas son vistas debido a la diferenciación de sattva -una de las tres grandes cualidades inherentes a todas las cosas-, que se manifiesta como luminosidad, actuando en conjunción con el ojo, también manifestación de sattva en otro aspecto. Ambos deben unirse; la ausencia de luminosidad, <pin lang="en">284</pin> o la desconexión de la misma del ojo del vidente, causa la desaparición. Debido a que la cualidad de luminosidad está totalmente controlada por el asceta, éste puede, por el proceso establecido, detenerla y así sustraer del ojo del otro, un elemento esencial para ver cualquier objeto
+
+Este proceso es únicamente posible como resultado de la meditación concentrada y unilateral, por eso resulta imposible para el hombre que no se ha sometido a una prolongada disciplina y entrenamiento, lo cual involucra la tarea de obtener el control del principio pensante y establecer el alineamiento directo que le permitirá actuar una vez que el pensador, en su propio plano, alinee y coordine la mente y el cerebro, por el sutratma, hilo o cordón plateado magnético.
+
+### 22. Karma o efecto, es de dos tipos: karma inmediato o karma futuro. La meditación perfectamente concentrada en éstos, permite al yogui conocer la duración de su experiencia en los tres mundos. Este conocimiento también lo adquiere por medio de signos. {#af22}
+
+Este aforismo puede esclarecerse si se lo estudia en relación con el aforismo [18](#af18) del Libro Tercero. El karma, a que se refiere, corresponde a la actual vida del aspirante o vidente. Sabe que todo acontecimiento en su vida es efecto de una causa previa, iniciada por él mismo en una encarnación anterior, y también que cada acto en esta vida debe producir un efecto (que se desarrollará <pin lang="en">285</pin> en otra vida), salvo que lo ejecute de tal manera que: <pin lang="es">184</pin>
+
+1. El efecto sea inmediato y culmine en el curso de la actual vida.
+2. El efecto no origine karma, por haber ejecutado el acto desinteresadamente y con total desapego. Entonces se obtiene el efecto deseado, de acuerdo a la ley, pero sin consecuencias para el individuo.
+
+Cuando el vidente reencarna en una vida, en la cual le quedan pocos efectos que agotar y todo cuanto inicia no produce karma, entonces puede fijar un término a la experiencia de su vida, y sabe que el día de la liberación está cerca. Por la meditación y la capacidad de actuar como alma, puede llegar al mundo de las causas, y con ello saber qué actos debe realizar para liberarse de los pocos efectos restantes. Poniendo estricta atención a los móviles que impulsan cada acto de la vida actual, evitará que los efectos lo aten a la rueda de renacimientos. De este modo, consciente e inteligentemente se acercará a su meta, y cada hecho, acto y pensamiento estarán regidos por el conocimiento directo que de ninguna manera lo encadenarán.
+
+Los signos o portentos a los cuales se refiere, se relacionan principalmente con el mundo mental, donde mora el verdadero hombre. Por la comprensión de tres cosas,
+
+1. los números,
+2. los colores,
+3. las vibraciones,
+
+el vidente se da cuenta de que su aura <pin lang="en">286</pin> está libre de los efectos que "producen la muerte". Sabe que, simbólicamente, nada más hay escrito en los registros, que puedan traerlo nuevamente a los tres mundos; por lo tanto, "mediante los signos ve que su sendero está despejado".
+
+Esto ha sido expresado en los antiguos escritos, que se encuentran en los archivos de los Maestros:
+
+> Cuando la estrella de cinco puntas brilla con claridad y no se ven formas en sus puntas, el camino está despejado.
+>
+> Cuando el triángulo no encierra más que luz, la senda está libre al paso del peregrino.
+>
+> Cuando en el aura del peregrino las muchas formas se desvanecen y se ven tres colores, el camino queda libre de obstrucciones.
+>
+> Cuando los pensamientos no atraen formas ni se reflejan sombras, el hilo proporciona un camino directo desde el círculo al centro
+
+Desde ese punto de reposo, no es posible el retorno. El período de experiencia necesaria en los tres mundos ha llegado a su fin. Ningún karma puede atraer a la tierra al espíritu liberado, para <pin lang="es">185</pin> recibir nuevas lecciones o pagar causas anteriores. Sin embargo, puede continuar o reasumir su obra de servicio en los tres mundos, sin abandonar realmente su verdadero hogar en los reinos sutiles y en las esferas elevadas de conciencia.
+
+### 23. La unión con los demás se obtiene por la meditación centralizada en tres estados del sentimiento compasión, ternura y desapasionamiento. {#af23}
+
+El estudiante obtendrá algún conocimiento de este aforismo si lo compara con el <pin lang="en">287</pin> [Af. 33](/la-luz-del-alma/libro1#af33) del Libro Primero. La unión a que aquí se refiere, marca otro paso adelante. En la anterior, la naturaleza del aspirante fue entrenada para la armoniosa y pacifica asociación con quienes lo rodean. En éste, se le enseña a identificarse con los demás yoes, concentrándose en lo que se llama, a voces, "los tres estados del sentimiento", que son: 
+
+1. **Compasión**, antítesis de la pasión egoísta y acaparadora.
+2. **Ternura**, antítesis de la auto centralización, que hace al hombre duro y auto absorbente.
+3. **Desapasionamiento**, antítesis de la codicia y del deseo.
+
+Estos tres estados del sentimiento, cuando se comprenden y penetran, ponen al hombre en armonía con el alma de todos los hombres.
+
+Por la compasión, ya no se ocupa de sus propios intereses egoístas, sino que penetra en su hermano y sufre con él; puede adaptar su vibración para responder a la necesidad del hermano, y está capacitado para compartir todo cuanto ocurre en el corazón del hermano. Esto lo hace mediante la sintonización de su propia vibración, a fin de responder a la naturaleza amorosa de su propia alma, y, por medio de ese principio unificador, todos los corazones están abiertos para él.
+
+Mediante la ternura se manifiesta en forma práctica esa comprensión compasiva. Sus actividades ya no son internas y auto centradas, se exteriorizan y están inspiradas por el deseo sincero y desinteresado de servir y ayudar. Este estado de sentimiento se llama a veces "misericordia", y caracteriza a todos los servidores de la raza. Implica <pin lang="en">288</pin> ayuda activa, intención altruista, sabido juicio y actividad amorosa. Está libre de todo deseo de recompensa o reconocimiento, lo cual se halla bellamente expresado en La Voz del Silencio de H. P. Blavatsky, en las siguientes palabras:
+
+> Que tu alma escuche todo grito de dolor, así como el loto abre su corazón para beber el sol de la mañana
+>
+> No permitas que el sol ardiente seque una sola lágrima de dolor, antes que tú la hayas enjugado del ojo de quien sufre
+>
+> <pin lang="es">186</pin> Deja que cada ardiente lágrima humana caiga en tu corazón y allí permanezca; nunca la enjugues hasta que desaparezca el dolor que la ha causado
+>
+> Estas lágrimas ¡oh tú de corazón misericordioso!, son las corrientes que riegan los campos de la caridad inmorta
+
+Por el desapasionamiento, el aspirante y servidor permanece libre de los resultados kármicos de su actividad en bien de otros. Como sabemos, nuestro propio deseo nos ata a los tres mundos y a otras personas. "Atarse a" es distinto de "unirse con". Uno, está colmado de deseos y crea obligaciones y efectos; el otro, está libre de deseos y produce "identificación con", y no tiene efectos que atan a los tres mundos. El desapasionamiento posee una cualidad más mental que los otros dos. Se observará que el desapasionamiento trae cualidad de mente inferior; la ternura es el resultado emocional de la compasión desapasionada e involucra el principio kámico o astral; mientras que la compasión concierne también al plano físico, porque es la manifestación física de los otros dos estados. Es la capacidad práctica de identificarse con otro, en las condiciones imperantes en los tres mundos.
+
+Esta unión es el resultado de la unicidad egoica <pin lang="en">289</pin> que ha descendido a la plena actividad en los tres mundos, mediante la meditación.
+
+### 24. La meditación centralizada en el poder del elefante, despertará esa fuerza o luz. {#af24}
+
+Este aforismo ha provocado mucha discusión, y su común interpretación ha dado la idea de que meditar sobre el elefante proporcionará la fuerza del elefante. Muchos comentaristas infieren de estas palabras que la meditación sobre otros animales otorgará sus características.
+
+Debe recordarse que éste es un libro de texto de carácter científico, cuyo objetivo es el siguiente:
+
+1. Entrenar al aspirante para que pueda penetrar en los reinos sutiles.
+2. Otorgarle poder sobre la mente, para convertirla en su instrumento, que empleará a voluntad, como órgano de visión en los mundos superiores, y como transmisora e intermediaria entre el alma y el cerebro.
+3. Despertar la luz de la cabeza, para convertir al aspirante en un radiante centro de luz que ilumine todos los problemas y, en virtud de esa luz verá la luz en todas partes. <pin lang="es">187</pin>
+4. Despertar los fuegos del cuerpo, para que los centros estén activos, luminosos, relacionados y coordinados.
+5. Establecer la coordinación entre
+   1. el ego o alma, en su propio plano,
+   2. el cerebro, por medio de la mente, y
+   3. los centros. Por un acto de voluntad todos pueden ser puestos en actividad uniforme. <pin lang="en">290</pin>
+6. Efectuado esto, el fuego en la base de la columna vertebral, hasta ahora adormecido, despertará y ascenderá sin peligro, mezclándose finalmente con el fuego o luz en la cabeza, y desaparecerá después de haber "quemado toda la escoria y despejado los canales" para uso del alma.
+7. Desarrollar de este modo los poderes del alma, los "siddhis" superiores e inferiores, a fin de llegar a ser un eficaz servidor de la raza.
+
+Teniendo en cuenta estos siete puntos, resulta interesante notar que el símbolo del centro, llamado centro muladhara, situado en la base de la columna vertebral, es el elefante. Es el símbolo de la fuerza, del poder concentrado, de la gran fuerza motriz, que una vez despertada arrasa con todo lo que está por delante. Para nuestra quinta raza raíz, es el símbolo del animal más potente y de mayor fuerza, y también la representación de la transmutación o sublimación de la naturaleza animal, porque en la base de la columna vertebral está el elefante, y en la cabeza se halla el múltiple loto que oculta a Vishnu, sentado en el centro. Así se eleva la naturaleza animal al cielo.
+
+Meditando sobre la fuerza del elefante, el poder del tercer aspecto, la energía de la materia misma y, por lo tanto, de Dios, el Espíritu Santo o Brahma, se despierta y se une a la del segundo aspecto o conciencia, la energía del alma, la de Vishnu, el segundo aspecto, la fuerza crística. Esto trae la unificación o unión perfecta entre alma y cuerpo, verdadero objetivo del Raja Yoga.
+
+Los estudiantes de esta ciencia deberían recordar <pin lang="en">291</pin> que estas fórmulas de meditación unilaterales, sólo son permitidas cuando se han aplicado los ocho métodos de yoga, tratados en el Libro Segundo.
