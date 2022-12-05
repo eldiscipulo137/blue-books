@@ -32,7 +32,7 @@ title: Libro III. Realización de la unidad y sus resultados
 22. Karma o efecto, es de dos tipos: karma inmediato o karma futuro. La <pin lang="en">239</pin> meditación perfectamente concentrada en éstos, permite al yogui conocer la duración de su experiencia en los tres mundos. Este conocimiento también lo adquiere por medio de signos. <af book="3" af="22"/>
 23. La unión con los demás se obtiene por la meditación centralizada en tres estados del sentimiento - compasión, ternura y desapasionamiento. <af book="3" af="23"/>
 24. La meditación centralizada en el poder del elefante, despertará esa fuerza o luz. <af book="3" af="24"/>
-25. La meditación perfectamente concentrada en la luz desarrollada, nos hará conscientes de lo sutil, oculto y remoto.
+25. La meditación perfectamente concentrada en la luz desarrollada, nos hará conscientes de lo sutil, oculto y remoto. <af book="3" af="24"/>
 26. La meditación centralizada en el sol, traerá conciencia (o conocimiento) de los siete mundos.
 27. La meditación centralizada en la Luna, otorga el conocimiento de todas las formas lunares.
 28. La concentración en la Estrella Polar proporcionará el conocimiento de las órbitas de los planetas y de las estrellas.

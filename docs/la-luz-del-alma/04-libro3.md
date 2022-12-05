@@ -463,7 +463,7 @@ Mediante la ternura se manifiesta en forma práctica esa comprensión compasiva.
 >
 > <pin lang="es">186</pin> Deja que cada ardiente lágrima humana caiga en tu corazón y allí permanezca; nunca la enjugues hasta que desaparezca el dolor que la ha causado
 >
-> Estas lágrimas ¡oh tú de corazón misericordioso!, son las corrientes que riegan los campos de la caridad inmorta
+> Estas lágrimas ¡oh tú de corazón misericordioso!, son las corrientes que riegan los campos de la caridad inmortal
 
 Por el desapasionamiento, el aspirante y servidor permanece libre de los resultados kármicos de su actividad en bien de otros. Como sabemos, nuestro propio deseo nos ata a los tres mundos y a otras personas. "Atarse a" es distinto de "unirse con". Uno, está colmado de deseos y crea obligaciones y efectos; el otro, está libre de deseos y produce "identificación con", y no tiene efectos que atan a los tres mundos. El desapasionamiento posee una cualidad más mental que los otros dos. Se observará que el desapasionamiento trae cualidad de mente inferior; la ternura es el resultado emocional de la compasión desapasionada e involucra el principio kámico o astral; mientras que la compasión concierne también al plano físico, porque es la manifestación física de los otros dos estados. Es la capacidad práctica de identificarse con otro, en las condiciones imperantes en los tres mundos.
 
@@ -491,3 +491,64 @@ Teniendo en cuenta estos siete puntos, resulta interesante notar que el símbolo
 Meditando sobre la fuerza del elefante, el poder del tercer aspecto, la energía de la materia misma y, por lo tanto, de Dios, el Espíritu Santo o Brahma, se despierta y se une a la del segundo aspecto o conciencia, la energía del alma, la de Vishnu, el segundo aspecto, la fuerza crística. Esto trae la unificación o unión perfecta entre alma y cuerpo, verdadero objetivo del Raja Yoga.
 
 Los estudiantes de esta ciencia deberían recordar <pin lang="en">291</pin> que estas fórmulas de meditación unilaterales, sólo son permitidas cuando se han aplicado los ocho métodos de yoga, tratados en el Libro Segundo.
+
+:::info Recuerda 
+
+Los estudiantes de esta ciencia deberían recordar <pin lang="en">291</pin> que estas fórmulas de meditación unilaterales, sólo son permitidas cuando se han aplicado los ocho métodos de yoga, tratados en el Libro Segundo.
+
+:::
+
+### 25. La meditación perfectamente concentrada en la luz desarrollada, nos hará conscientes de lo sutil, oculto y remoto {#af25}
+
+En todas las enseñanzas de índole esotérica o mística, se menciona, con frecuencia, lo que se denomina luz. La Biblia contiene muchos pasajes sobre ella, y también todas las Escrituras del mundo. <pin lang="es">188</pin> Se le aplican muchos nombres, pero por falta de espacio sólo consideraremos los que se encuentran en las diversas traducciones de los "Aforismos de la Yoga de Patanjali", y son:
+
+1. La Luz interna desarrollada (Johnston)
+2. La Luz en la cabeza. (Johnston)
+3. La Luz del conocimiento inmediato, conocimiento intuitivo. (Ttatya)
+4. Esa Luz refulgente. (Vivekananda)
+5. La Luz en la cima de la cabeza. (Vivekananda)
+6. La Luz coronaria. (Ganganatha Jha)
+7. La Luz de la disposición luminosa. (Ganganatha Jha)
+8. La Luz interna. (Dvivedi)
+9. La mente plena de Luz. (Dvivedi)
+10. La radiación en la cabeza. (Woods)
+11. La luminosidad del órgano central. (Rama Prasad)
+12. La Luz de la actividad sensoria superior (Rama Prasad)
+
+Por el estudio de estas expresiones se verá <pin lang="en">292</pin> que en el vehículo físico existe un punto de luminosidad que (una vez hecho contacto con él) verterá la luz del espíritu sobre el sendero del discípulo, iluminándole así el camino, revelándole la solución de todos los problemas y permitiéndole actuar como portador de luz para otros.
+
+Esta luz es una especie de radiación interna, ubicada en la cabeza, cerca de la glándula pineal, y se produce por la actividad del alma.
+
+La expresión "órgano central", asociada con esta luz, ha dado lugar a muchas discusiones. Unos comentaristas la relacionan con el corazón y otros con la cabeza. Técnicamente ninguno de los dos conceptos es exacto, porque para el adepto entrenado el "órgano central" es el cuerpo causal, el karana sarira, el cuerpo del ego, la envoltura del alma, el cual está entre los "tres vehículos periódicos", que el divino Hijo de Dios descubre y utiliza en el transcurso de su largo peregrinaje. Estos tienen su analogía con los tres templos de que habla La Biblia cristiana:
+
+1. El transitorio y efímero tabernáculo en el desierto, típico del alma en encarnación física, que dura una vida.
+2. El más permanente y bello templo de Salomón, típico del vehículo del alma ó cuerpo causal, de mayor duración y que persiste durante eones, cuya belleza se revela cada vez más en el sendero hasta la tercera iniciación.
+3. El todavía no revelado e inconcebiblemente bello templo de Ezequiel, símbolo de la envoltura del espíritu, el hogar <pin lang="es">189</pin> del Padre, una <pin lang="en">293</pin> de las "muchas mansiones", el huevo áurico del ocultista.
+
+En la ciencia de la yoga, que debe ser aplicada y dominada en el cuerpo físico, la expresión "órgano central" se refiere a la cabeza o al corazón, y la diferencia reside principalmente en el tiempo. En las primeras etapas del desarrollo en el sendero, el corazón es el órgano central; más adelante la verdadera luz tiene su morada en el órgano de la cabeza.
+
+En este proceso, el desarrollo del corazón precede al de la cabeza. La naturaleza emocional y los sentidos se desarrollan antes que la mente, como podemos observar si estudiamos a la humanidad como totalidad. El centro cardíaco se abre antes que el coronario. El amor debe desarrollarse antes de emplear sin peligro el poder. Por lo tanto, la luz del amor debe actuar antes de utilizar conscientemente la luz de la vida. Cuando el loto del centro cardíaco se abre y revela el amor de Dios, tiene lugar, por la meditación, un desarrollo sincrónico en la cabeza. Se despierta el loto de doce pétalos en la cabeza (analogía superior del centro cardíaco, intermediario entre el loto egoico de doce pétalos, en su propio plano; y el centro coronario). La glándula pineal pasa gradualmente de un estado de atrofia a uno de plena actividad, y el centro de la conciencia es transferido de la naturaleza emocional a la conciencia de la mente iluminada. Esto señala la transición efectuada en el místico para entrar en el sendero del ocultista, conservando, como ocurre siempre, su <pin lang="en">294</pin> conocimiento y percepción mística, pero agregando a ello el conocimiento intelectual y el poder consciente del ocultista y del yogui entrenado.
+
+Desde el punto de poder, situado en la cabeza, el yogui dirige todos sus asuntos y esfuerzos, proyectando sobre los acontecimientos, circunstancias y problemas, la "despierta luz interna", siendo guiado por el amor, la percepción interna y la sabiduría que posee, debido a que ha trasmutado su naturaleza amorosa, despertado su centro cardíaco y transferido al corazón los fuegos del plexo solar.
+
+Aquí cabe una pregunta oportuna: ¿Cómo se logra la unificación del corazón y la cabeza, que produce la luminosidad del "órgano central" y emanación de la radiación interna? Expuesto en forma breve, se produce por:
+
+1. **La subyugación de la naturaleza inferior**, que transfiere a tres centros, el coronario, el cardíaco y el laríngeo, situados arriba del diafragma, la actividad llevada a cabo durante la vida, abajo del plexo solar e incluso en éste. Esto se realiza mediante la vida, el amor y el servicio, no por medio de ejercicios respiratorios ni desarrollando la mediumnidad.
+2. **La práctica del amor**, enfocando la atención en la vida y <pin lang="es">190</pin> servicio del corazón, comprendiendo que el centro cardíaco es el reflejo del alma en el hombre, la cual deberá guiar las cuestiones del corazón, desde el trono o sitial entre las cejas.
+3. **El conocimiento de la meditación**. Por medio de la meditación, ejemplificada en el aforismo básico de la yoga de que "la energía sigue al pensamiento", se producen todos los desenvolvimientos y desarrollos <pin lang="en">295</pin> que el aspirante desea. Por medio de la meditación, el centro cardíaco (que en el hombre no evolucionado se representa como un loto cerrado vuelto hacia abajo) se invierte, se vuelve hacia arriba y se abre. En su centro está la luz del amor. La radiación de esta luz, al proyectarse hacia arriba, ilumina el sendero hacia Dios, pero no es el sendero, excepto en el sentido de que a medida que hollamos lo que el corazón desea (en sentido inferior), esa senda conduce al Sendero mismo.
+
+ Quizás resulte más claro si nos damos cuenta que parte de ese sendero reside en nosotros mismos, y esto nos lo revela el corazón, que conduce a la cabeza, donde descubrimos el primer Portal del Sendero, por el cual entramos en la senda de la vida, que nos aleja de la vida corporal, y conduce a la más completa liberación de las experiencias de la carne y de los tres mundos. Todo es un solo sendero, pero el sendero de la iniciación lo debe hollar conscientemente el pensador, actuando por medio del órgano central de la cabeza, recorriendo inteligentemente el sendero que a través de los tres mundos conduce a la región o reino del alma. Podría decirse que el despertar del centro cardíaco lleva al hombre a darse cuenta de que el centro cardíaco se origina en la cabeza. Esto a su vez lleva al hombre al loto de doce pétalos, el centro egoico en los niveles superiores del plano mental. El sendero que va desde el centro cardíaco al coronario, constituye en el cuerpo, el reflejo de la construcción del antakarana en el plano mental, "como es arriba así es abajo". <pin lang="en">296</pin>
+
+ :::info Recuerda
+
+ Todo es un solo sendero, pero el sendero de la iniciación lo debe hollar conscientemente el pensador, actuando por medio del órgano central de la cabeza, recorriendo inteligentemente el sendero que a través de los tres mundos conduce a la región o reino del alma. Podría decirse que el despertar del centro cardíaco lleva al hombre a darse cuenta de que el centro cardíaco se origina en la cabeza. Esto a su vez lleva al hombre al loto de doce pétalos, el centro egoico en los niveles superiores del plano mental. El sendero que va desde el centro cardíaco al coronario, constituye en el cuerpo, el reflejo de la construcción del antakarana en el plano mental, "como es arriba así es abajo".
+
+ :::
+
+4. **La meditación perfectamente concentrada en la cabeza**. Acrecienta automáticamente el estímulo y el despertar de los centros a lo largo de la columna vertebral, cinco en total; despierta el sexto centro, situado entre las cejas, y con el tiempo revela al aspirante la salida por la cúspide de la cabeza, que se la puede ver como un círculo radiante de luz pura y blanca. Se inicia como un pequeño punto, y gradualmente va acrecentando su gloriosa y radiante luz hasta revelar el portal. Nada más puede decirse sobre esto.
+
+La luz de la cabeza es el gran revelador, el gran purificador y el medio por el cual el discípulo cumple el mandato de Cristo: "Deja que brille tu luz". Es "la senda del justo que brilla cada vez más hasta el perfecto día". Es lo que produce el halo o círculo <pin lang="es">191</pin> luminoso, visto alrededor de la cabeza de todos los hijos de Dios que han tomado o tomarán posesión de su herencia.
+
+Por medio de esta luz, como indica Patanjali en este aforismo, nos hacemos conscientes de lo sutil, o de las cosas que sólo se pueden conocer mediante el empleo consciente de nuestros cuerpos sutiles, de los cuales nos valemos para actuar en los planos internos, el emocional o astral, y el mental. La mayoría actúa hoy inconscientemente en dichos planos. También por medio de esta luz, somos conscientes de lo que está oculto o aún no ha sido revelado. Los Misterios le son revelados al hombre cuya luz resplandece, convirtiéndose así en un conocedor. <pin lang="en">297</pin> Ante él se despliega también lo lejano o futuro.
+
+
