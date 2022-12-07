@@ -33,11 +33,11 @@ title: Libro III. Realización de la unidad y sus resultados
 23. La unión con los demás se obtiene por la meditación centralizada en tres estados del sentimiento - compasión, ternura y desapasionamiento. <af book="3" af="23"/>
 24. La meditación centralizada en el poder del elefante, despertará esa fuerza o luz. <af book="3" af="24"/>
 25. La meditación perfectamente concentrada en la luz desarrollada, nos hará conscientes de lo sutil, oculto y remoto. <af book="3" af="24"/>
-26. La meditación centralizada en el sol, traerá conciencia (o conocimiento) de los siete mundos.
-27. La meditación centralizada en la Luna, otorga el conocimiento de todas las formas lunares.
-28. La concentración en la Estrella Polar proporcionará el conocimiento de las órbitas de los planetas y de las estrellas.
-29. Fijando la atención en el centro denominado plexo solar, se obtiene un conocimiento perfecto acerca de la condición del cuerpo.
-30. Fijando la atención en el centro laríngeo, se aplaca el hambre y la sed.
+26. La meditación centralizada en el sol, traerá conciencia (o conocimiento) de los siete mundos. <af book="3" af="26"/>
+27. La meditación centralizada en la Luna, otorga el conocimiento de todas las formas lunares. <af book="3" af="27"/>
+28. La concentración en la Estrella Polar proporcionará el conocimiento de las órbitas de los planetas y de las estrellas. <af book="3" af="28"/>
+29. Fijando la atención en el centro denominado plexo solar, se obtiene un conocimiento perfecto acerca de la condición del cuerpo. <af book="3" af="29"/>
+30. Fijando la atención en el centro laríngeo, se aplaca el hambre y la sed. <af book="3" af="30"/>
 31. Fijando la atención en el conducto o nervio situado debajo del centro laríngeo, se logra el equilibrio.
 32. Enfocando la luz en la cabeza se puede ver a quienes han alcanzado el dominio de sí mismos y establecer contacto con ellos. Dicho poder se desarrolla por la meditación unilateral.
 33. Todas las cosas pueden ser conocidas a la vívida luz de la intuición.

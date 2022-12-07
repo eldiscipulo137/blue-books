@@ -551,4 +551,243 @@ La luz de la cabeza es el gran revelador, el gran purificador y el medio por el 
 
 Por medio de esta luz, como indica Patanjali en este aforismo, nos hacemos conscientes de lo sutil, o de las cosas que sólo se pueden conocer mediante el empleo consciente de nuestros cuerpos sutiles, de los cuales nos valemos para actuar en los planos internos, el emocional o astral, y el mental. La mayoría actúa hoy inconscientemente en dichos planos. También por medio de esta luz, somos conscientes de lo que está oculto o aún no ha sido revelado. Los Misterios le son revelados al hombre cuya luz resplandece, convirtiéndose así en un conocedor. <pin lang="en">297</pin> Ante él se despliega también lo lejano o futuro.
 
+### 26. La meditación centralizada en el sol, traerá conciencia (o conocimiento) de los siete mundos. {#af26}
 
+Este aforismo ha sido comentado extensamente por numerosos escritores durante muchos siglos. En bien de la claridad modernizaremos la afirmación y reduciremos sus términos a los del ocultismo moderno:
+
+> Mediante la constante y firme meditación en la causa emanante de nuestro sistema solar, llegamos a comprender los siete estados del ser
+
+La diversidad de términos empleados frecuentemente confunden al estudiante, por lo tanto, será conveniente emplear únicamente dos series de términos: una imparte la terminología oriental ortodoxa, contenida en los mejores comentarios, la otra es más fácilmente reconocible para el investigador occidental. Empleando la traducción de Woods, tenemos lo siguiente:
+
+<table>
+<tr>
+   <td rowspan="3">
+      Brahma
+   </td>
+   <td>7. Satya</td>
+   <td>el mundo de los Dioses inmanifestados.</td>
+</tr>
+<tr>
+   <td>6. Tapas</td>
+   <td>el mundo de los Dioses auto luminosos.</td>
+</tr>
+<tr>
+   <td>5. Jana</td>
+   <td>lo más inferior del mundo de Brahma.</td>
+</tr>
+<tr>
+   <td rowspan="4">
+      Svar
+   </td>
+   <td>4. Mahar Prajapatya</td>
+   <td>el gran mundo.</td>
+</tr>
+<tr>
+   <td>3. Mahendra</td>
+   <td>el hogar de los Agnishvattas (los egos).</td>
+</tr>
+<tr>
+   <td>2. Antariksa</td>
+   <td>el espacio intermedio.</td>
+</tr>
+<tr>
+   <td>1. Bhu</td>
+   <td>el mundo terrestre.</td>
+</tr>
+</table>
+
+Resulta interesante esta diferenciación del mundo en siete <pin lang="en">298</pin> grandes divisiones, porque demuestra la exactitud de la quinta división que sostienen algunos comentadores.
+
+Estos siete mundos corresponden a la división oculta moderna de nuestro sistema solar, en siete planos que personifican los siete <pin lang="es">192</pin> estados de conciencia y abarcan siete grandes tipos de seres vivientes. La analogía es la siguiente:
+
+|                   |                  |                                                                                        |
+| ----------------- | ---------------- | -------------------------------------------------------------------------------------- |
+| 1. Plano Físico   | Bhu              | Mundo Terrestre. <br/> Conciencia física.                                              |
+| 2. Plano astral   | Antariksa        | Mundo de las emociones. <br/> Conciencia kámica o de deseos.                           |
+| 3. Plano mental   | Mahendra         | Mundo de la mente y del alma. <br/> Conciencia mental.                                 |
+| 4. Plano búdico   | Mahar Prajapatya | Mundo crístico. <br/> Conciencia intuitiva o crística. <br/> Conciencia grupal.        |
+| 5. Plano átmico   | Jana             | Mundo espiritual. <br/> Conciencia planetaria.                                         |
+| 6. Plano monádico | Tapas            | Mundo divino. <br/> Conciencia de Dios. <br/> Mundo del segundo aspecto.               |
+| 7. Plano logoico  | Tatya            | Mundo de la causa emanante.<br/> Absoluta conciencia. <br/>  Mundo del primer aspecto. |
+
+<p>
+<pin lang="en">299</pin> Son interesantes ciertos comentarios de Vyasa sobre esta diferenciación, pues coinciden con el pensamiento teosófico moderno. Describe el plano terrenal como "sostenido respectivamente por materia sólida, agua, fuego, viento, aire y oscuridad... donde nacen las criaturas vivientes después de habérseles asignado un largo y penoso período de vida, sufriendo los padecimientos incurridos como resultado de su propio karma". Los comentarios huelgan.
+</p>
+
+Respecto al segundo plano, el astral, se dice que las estrellas (las vidas) son "impulsadas por el viento en dicho plano, así como el labrador arrea los caballos en un círculo alrededor del campo de la trilla", y están "reguladas por el constante impulso del viento". Tenemos aquí un maravilloso panorama de cómo las vidas son impulsadas a la rueda del renacimiento por la fuerza de sus deseos.
+
+Vyasa observa que el mundo de la mente está poblado por seis grupos de Dioses (los seis grupos de egos y sus seis rayos, los seis subrayos del rayo sintético, el cual se infiere). Estos son los hijos de la mente, los Agnishvattas (tan mencionados en La Doctrina Secreta y en Tratado sobre Fuego Cósmico), descritos como: <pin lang="es">193</pin>
+
+1. Cumpliendo sus deseos, por lo tanto, impulsado a encarnar por el deseo.
+2. Dotados del poder de la atomización y otros poderes, por consiguiente, pueden crear sus vehículos de manifestación.
+3. Viviendo en un periodo mundano, por lo tanto, están encarnados durante un período mundial. <pin lang="en">300</pin>
+4. De hermosa apariencia, porque los hijos de Dios son luminosos, radiantes y de extraordinaria belleza.
+5. Plenos de amor, porque amor es la característica del alma, y todos los hijos de Dios o hijos de la mente, revelan el amor del Padre.
+6. Poseyendo cuerpos propios, "que no son el producto de los padres"; ese "cuerpo no hecho con las manos", "eterno en los cielos", mencionado por San Pablo.
+
+En conexión con el cuarto mundo, Vyasa dice que es el mundo de la maestría, por lo tanto el hogar de los Maestros y de todas las almas liberadas, cuyo "alimento es contemplación" y cuyas vidas duran "mil períodos mundanos", siendo en consecuencia inmortales.
+
+Luego describe los tres planos más elevados y las grandes existencias, que constituyen las vidas de esos planos, en quienes "vivimos, nos movemos y tenemos nuestro ser". Corresponden a los tres planos de la trinidad. Los comentarios de Vyasa sobre estas existencias y sus diversos grupos, son iluminadores, dice:
+
+1. "Sus vidas son castas: es decir, libres de impureza o de la limitación de las formas inferiores".
+2. "Hacia arriba no hay ningún impedimento para su pensamiento; en las regiones inferiores ningún objeto está oculto para su pensamiento". Conocen todas las cosas, dentro del sistema solar.
+3. "No sientan los cimientos para morada alguna", por lo tanto no poseen cuerpos densos.
+4. "Están cimentados en sí mismos... y viven mientras haya creaciones". Son las grandes vidas, tras de toda existencia sensible. <pin lang="en">301</pin>
+5. Se deleitan practicando diversos tipos de contemplación. Nuestros mundos son sólo el reflejo del pensamiento de Dios y también la suma total de la mente de Dios.
+
+El antiguo comentador lo compendia en dos afirmaciones básicas, que debería considerar el estudiante:
+
+> Esta bien fundada configuración se extiende hasta el mismo centro del (Mundo) Huevo, siendo éste un ínfimo fragmento de la causa primaria, como una luciérnaga en el firmamento
+
+<p>
+<pin lang="es">194</pin> Esto significa que nuestro sistema solar no es más que un átomo cósmico y en sí sólo una parte de un todo esferoidal aún mayor. Luego declara:
+</p>
+
+> Ejerciendo restricción sobre la puerta del sol, el yogui debería percibir todo esto directamente
+
+Restricción es un término que se emplea frecuentemente al traducir frases que significan "refrenar o restringir las modificaciones del principio pensante", en otras palabras, perfecta meditación en una sola dirección. Meditando sobre la puerta del sol, se puede alcanzar pleno conocimiento. Resumiendo, significa que mediante el conocimiento del propio corazón del sol y en virtud de la luz que emana de él, habiendo descubierto el portal del sendero, se entra en relación con el Sol, que se halla en el corazón de nuestro sistema solar y, eventualmente, se descubre ese portal que permite al hombre entrar en el séptuple sendero cósmico. No es necesario decir más acerca de esto, pues el objetivo de Raja Yoga es permitir al hombre descubrir la luz en sí mismo, y en esa luz ver la luz y también <pin lang="en">302</pin> hallar la puerta que va hacia la vida y, en consecuencia, hollar el sendero.
+
+Sólo nos queda un punto que tratar. Esotéricamente al sol se lo considera triple:
+
+|                              |          |                    |
+| ---------------------------- | -------- | ------------------ |
+| 1. El sol físico             | cuerpo   | forma inteligente. |
+| 2. El corazón del sol        | alma     | amor.              |
+| 3. El sol espiritual central | espíritu | vida o poder.      |
+
+En el hombre, el microcosmos, las analogías son:
+
+|                              |          |                    |
+| ---------------------------- | -------- | ------------------ |
+| 1. El hombre personal físico | cuerpo   | forma inteligente. |
+| 2. El ego o Cristo           | alma     | amor.              |
+| 3. La mónada                 | espíritu | vida o poder.      |
+
+### 27. La meditación centralizada en la Luna, otorga el conocimiento de todas las formas lunares. {#af27}
+
+Hay dos traducciones apropiadas de este aforismo, la anterior y la que sigue:
+
+> El conocimiento del mundo astral lo obtiene quien puede meditar sobre la Luna
+
+Ambas traducciones son correctas, pero probablemente la comprensión exacta del texto sánscrito se obtendrá únicamente combinándolas. Quizás sea suficiente dar en una simple paráfrasis la esencia del significado de este aforismo.
+
+> La concentración sobre la madre de las formas (la Luna) revela al aspirante la naturaleza y propósito de la forma
+
+Si el estudiante tiene en cuenta que la Luna es el símbolo <pin lang="es">195</pin> de la materia, y que el Sol, en su aspecto luz, es el símbolo del alma, no tendrá dificultad en determinar el significado de los Af. [26](#af26) y [27](#af27). Uno se relaciona con el alma y los diversos estados de conciencia; el otro se ocupa del cuerpo, <pin lang="en">303</pin> vehículo de la conciencia. Uno concierne al cuerpo incorruptible, no hecho con las manos, eterno en los cielos; el otro a las "mansiones lunares" (como lo denomina el traductor) y al hogar del alma en los tres mundos del esfuerzo humano.
+
+Sin embargo, debe recordarse que el aspecto Luna rige en todos los reinos por debajo del humano, pero el aspecto Sol debería predominar en el humano.
+
+El conocimiento de las mansiones lunares o de las formas, proporcionaría la comprensión del cuerpo físico, del vehículo astral o de deseos, y de la envoltura mental.
+
+### 28. La concentración en la Estrella Polar proporcionará el conocimiento de las órbitas de los planetas y de las estrellas. {#af28}
+
+Este aforismo poco significa para el estudiante común, pero es de profunda utilidad para el iniciado y el discípulo juramentado. Basta decir que constituye el trasfondo de toda investigación astrológica, pues por la valoración de su significado se obtendrá la comprensión de:
+
+1. La relación de nuestro sistema solar con las otras seis constelaciones que (con la nuestra) constituyen los siete centros de fuerza, de los cuales las siete grandes influencias espirituales de nuestro sistema son los reflejos y agentes.
+2. El sendero de nuestro Sol en los Cielos, y los doce signos del zodíaco, por los cuales transita aparentemente nuestro Sol. Por lo tanto se evidencia que este aforismo constituye la clave del propósito del <pin lang="en">304</pin> siete y del doce, sobre los cuales se basan nuestros procesos creadores.
+3. El significado de los doce trabajos de Hércules, en relación con el hombre, el microcosmos.
+4. El propósito de nuestro planeta, que el adepto aprende mediante la comprensión de la triplicidad formada por
+   1. la Estrella Polar,
+   2. nuestro planeta Tierra,
+   3. la Osa Mayor.
+
+Quienes poseen la clave descubrirán otros significados, pero los indicados bastan para poner de manifiesto el significado profundo, aunque esotérico, atribuido a estas breves palabras. <pin lang="es">196</pin>
+
+### 29. Fijando la atención en el centro denominado plexo solar, se obtiene un conocimiento perfecto acerca de la condición del cuerpo. {#af29}
+
+En el comentario del [Af. 36](libro1#af36), en el Libro Primero, se enumeraron los diversos centros y se dieron sus cualidades. Ahora se mencionan cinco de dichos centros, pues conciernen más directamente al aspirante y son los que más predominan en la quinta raza o aria; en la cuarta raza estaban despiertos, pero no desarrollados.
+
+Estos centros son:
+
+|                              |               |
+| ---------------------------- | ------------- |
+| Base de la columna vertebral | 4 pétalos.    |
+| Plexo solar                  | 10 pétalos.   |
+| Centro cardíaco              | 12 pétalos.   |
+| Centro laríngeo              | 16 pétalos.   |
+| Centro coronario             | 1000 pétalos. |
+
+Estos cinco centros conciernen principalmente al aspirante. El centro llamado bazo, fue <pin lang="en">305</pin> controlado en los días de Lemuria, y ahora está relegado a la categoría de los centros que funcionan plenamente y por lo tanto en forma automática, y han quedado bajo el umbral de la conciencia. El centro entre las cejas sirve de medio para proyectar la luz de la cabeza sobre las cosas "sutiles, oscuras, ocultas y remotas"; es el resultado del desarrollo del coronario y el cardíaco.
+
+:::note Recuerda
+
+El centro entre las cejas sirve de medio para proyectar la luz de la cabeza sobre las cosas "sutiles, oscuras, ocultas y remotas"; es el resultado del desarrollo del coronario y el cardíaco.
+
+:::
+
+Los tres centros principales son tan potentes en la persona excesivamente subdesarrollada que, aunque sus pétalos no se hayan abierto, han producido analogías físicas o glándulas. Su vibración es tal, que ya emiten sonidos en los hombres y, por medio del sonido, atraen y producen una forma. En el discípulo o iniciado, estos tres centros no sólo emiten sonidos, sino que forman palabras; por lo tanto rigen la construcción de las fuerzas vitales y controlan al entero hombre.
+
+Las glándulas que corresponden a los tres centros son:
+
+|                                              |                   |
+| -------------------------------------------- | ----------------- |
+| 1. La glándula pineal y el cuerpo pituitario | centro coronario. |
+| 2. La glándula tiroides                      | centro laríngeo.  |
+| 3. El bazo                                   | centro cardíaco.  |
+
+“Del corazón brotan las fuentes de la vida" y circula la corriente sanguínea de la vida; debido a su desarrollo en la raza atlante y a la consiguiente coordinación y crecimiento del cuerpo astral o emocional, el centro cardíaco ha llegado a ser el más importante del cuerpo. Su actividad y desarrollo han ido paralelos a los del bazo, órgano de la vitalidad, del prana o fuerza física solar, en el cuerpo.
+
+<p>
+<pin lang="es">197</pin> <pin lang="en">306</pin> Hay otras glándulas que tienen una íntima relación con los diversos centros, pero el tema es tan vasto que sólo puede ser insinuado. Sin embargo no existe la misma estrecha relación entre las glándulas asociadas a los centros situados abajo del diafragma, que las conectadas con los centros principales situados arriba del diafragma.
+</p>
+
+El aforismo en consideración se refiere a uno de los cinco centros más importantes, por las siguientes razones:
+
+1. Está situado en el centro del tronco, siendo por lo tanto la analogía del principio medio. En la época atlante los tres centros principales para esa raza eran:
+
+|                              |                                   |
+| ---------------------------- | --------------------------------- |
+| El coronario                 | Padre o aspecto espiritual.       |
+| El plexo solar               | Hijo o aspecto alma.              |
+| Base de la columna vertebral | Espíritu Santo o aspecto materia. |
+
+El alma no estaba entonces tan individualizada como ahora. Controlaba el alma animal; en consecuencia, lograr el pleno contacto con el "anima mundi" era el factor predominante. Con el transcurso del tiempo, el alma fue individualizándose más en cada ser humano y haciéndose más separatista, a medida que predominaba el aspecto mente (el gran factor divisor). Cuando finalice la presente raza, los tres centros principales serán: el coronario, el cardíaco y el de la base de la columna vertebral. En la sexta raza tendremos, el coronario, el cardíaco y el laríngeo.
+
+En la última raza, la de los hijos de Dios iluminados, la séptima, tendremos como centros de acción: <pin lang="en">307</pin>
+
+|                             |                                   |
+| --------------------------- | --------------------------------- |
+| El coronario de mil pétalos | Vida o aspecto espiritual         |
+| El situado entre las cejas  | Hijo o aspecto conciencia.        |
+| El laríngeo                 | Espíritu Santo o aspecto creador. |
+
+A través del primero, la vida espiritual fluirá desde la mónada; a través del segundo, el principio crístico, la luz del mundo, el alma, actuará derramando luz y vida sobre todas las cosas, y lo utilizará como órgano de percepción. A través del último, se llevará a cabo el trabajo de creación y se emitirá la palabra creadora.
+
+Esta perspectiva general presenta al estudiante la visión de lo que hay por delante. Sin embargo, no tiene ningún valor inmediato; la mayoría de los aspirantes se ocupan del plexo solar, de allí la necesidad de considerarlo aquí.
+
+2. El plexo solar es el órgano de la naturaleza astral, de las emociones, el temperamento, los deseos y sentimientos, y por eso es el más activo de todos. Por su intermedio se despiertan las funciones inferiores del cuerpo -el deseo de beber, de comer, de <pin lang="es">198</pin> procrear, y a través de éste se hace contacto con los centros inferiores y se trabaja con ellos. En el discípulo, el centro cardíaco reemplaza al centro plexo solar, y en el Maestro es reemplazado por el coronario. No obstante, todos son expresión de la vida y del amor de Dios y, en su totalidad y perfección, expresan la vida crística.
+3. El centro plexo solar desarrolla la gran obra de trasmutar todos los deseos animales inferiores en superiores. A través de él pasan <pin lang="en">308</pin> literalmente las fuerzas de la naturaleza inferior. Acumula las fuerzas del cuerpo debajo del diafragma y las dirige hacia arriba.
+4. En el plexo solar el alma animal se fusiona con el alma del hombre, y se ve en germen la conciencia crística. Estableciendo la analogía entre el estado prenatal y la germinación del Cristo en cada ser humano, los estudiantes, cuya intuición esté desarrollada, percibirán la analogía entre la actividad del plexo solar y su función, y los primeros tres meses y medio del período prenatal. Luego viene "la activación"` y la vida se hace sentir. Tiene lugar un resurgimiento, entonces se puede percibir la analogía entre el proceso fisiológico natural y el nacimiento del Cristo en la caverna del corazón. En esto reside el profundo misterio de la iniciación, revelado únicamente a quienes recorren el sendero del discipulado hasta el fin.
+
+En este aforismo se dice que el conocimiento referente al cuerpo físico, se logra meditando sobre este centro. La razón es esta: cuando el hombre llega a comprender su cuerpo emocional y el centro de fuerza a través del cual funciona en el plano físico, descubre que todo cuanto él es (física y etéricamente) se debe al deseo o kama, y que sus deseos lo atan a la rueda de renacimientos. Por esta razón el yogui hace hincapié sobre esa básica discriminación, por la cual el hombre desarrolla la capacidad de elegir entre lo real y lo irreal, cultivando en él un exacto <pin lang="en">309</pin> sentido de los valores. Luego viene el desapasionamiento, que una vez adquirido, produce desagrado hacia la vida de percepción sensoria.
+
+Cuando el aspirante se da cuenta del papel que el deseo desempeña en su vida, que el cuerpo emocional o astral es causante de la mayor parte de las dificultades de su naturaleza inferior, y cuando capta el aspecto técnico del proceso que sigue la energía deseo, comprende la función del plexo solar, pudiendo iniciar la gran tarea dual de trasferencia y transmutación. Debe transferir la energía de los centros situados debajo del diafragma a los de arriba, y en ese proceso transmutar y cambiar la energía. Los centros están situados a lo largo de la columna vertebral, pero ayudará considerablemente al estudiante si tiene una idea de los <pin lang="es">199</pin> lugares aproximados del cuerpo, que estos centros afectan y energetizan. Dichos centros poseen órganos en el plano físico, que son el resultado de la respuesta de la sustancia densa a su vibración.
+
+#### Los Tres Centros Mayores
+
+|              |                                                        |
+| ------------ | ------------------------------------------------------ |
+| 1. Coronario | cerebro, glándula pineal, cuerpo pituitario            |
+| 2. Laríngeo  | laringe, cuerdas vocales y paladar, glándula tiroides. |
+| 3. Cardíaco  | pericardio, ventrículos, aurículas, afectando al bazo. |
+
+#### Los Cuatro Centros Menores
+
+|                                 |                                         |
+| ------------------------------- | --------------------------------------- |
+| 4. Plexo solar                  | estómago.                               |
+| 5. Bazo                         | bazo.                                   |
+| 6. Sacro                        | órganos genitales.                      |
+| 7. Base de la columna vertebral | órganos de eliminación, riñones, vejiga |
+
+<p>
+<pin lang="en">310</pin> Estos órganos físicos son sus resultados o efectos; los centros son su causa física y se producen por la actividad de los centros etéricos.
+</p>
+
+Estos detalles ya se han dado y la información antedicha fue recopilada, debido a la importancia que tiene el plexo solar en esta cuarta ronda de la cuarta Jerarquía creadora (la Jerarquía de las mónadas humanas o espíritus), el cuarto centro en el hombre, ya sea contando desde arriba o desde abajo. Otro detalle técnico puede darse aquí. En el proceso de transmutación el estudiante debería recordar que:
+
+1. La energía de la base de la columna vertebral debe ascender a la cabeza.
+2. La energía del centro sacro debe pasar al laríngeo.
+3. La energía del plexo solar debe ir al corazón. La energía del bazo concierne exclusivamente al cuerpo físico. Va a todos los centros.
+
+### 30 Fijando la atención en el centro laríngeo, se aplaca el hambre y la sed. {#af30}
