@@ -38,9 +38,9 @@ title: Libro III. Realización de la unidad y sus resultados
 28. La concentración en la Estrella Polar proporcionará el conocimiento de las órbitas de los planetas y de las estrellas. <af book="3" af="28"/>
 29. Fijando la atención en el centro denominado plexo solar, se obtiene un conocimiento perfecto acerca de la condición del cuerpo. <af book="3" af="29"/>
 30. Fijando la atención en el centro laríngeo, se aplaca el hambre y la sed. <af book="3" af="30"/>
-31. Fijando la atención en el conducto o nervio situado debajo del centro laríngeo, se logra el equilibrio.
-32. Enfocando la luz en la cabeza se puede ver a quienes han alcanzado el dominio de sí mismos y establecer contacto con ellos. Dicho poder se desarrolla por la meditación unilateral.
-33. Todas las cosas pueden ser conocidas a la vívida luz de la intuición.
+31. Fijando la atención en el conducto o nervio situado debajo del centro laríngeo, se logra el equilibrio. <af book="3" af="31"/>
+32. Enfocando la luz en la cabeza se puede ver a quienes han alcanzado el dominio de sí mismos y establecer contacto con ellos. Dicho poder se desarrolla por la meditación unilateral. <af book="3" af="32"/>
+33. Todas las cosas pueden ser conocidas a la vívida luz de la intuición. <af book="3" af="33"/>
 34. Por la meditación enfocada en el centro cardíaco, se alcanza la comprensión de la conciencia mental.
 35. La experiencia (de los pares opuestos) se adquiere por la incapacidad del alma para distinguir entre el yo personal y purusha (espíritu). Las formas objetivas existen para uso (y experiencia) del hombre espiritual. Meditando sobre esto, surge la percepción intuitiva de la naturaleza espiritual. <pin lang="en">240</pin>
 36. Como resultado de esta experiencia y meditación, se desarrollan los sentidos superiores: oído, tacto, vista, gusto y olfato, que otorgan conocimiento intuitivo.
