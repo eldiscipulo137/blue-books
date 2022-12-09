@@ -41,13 +41,13 @@ title: Libro III. Realización de la unidad y sus resultados
 31. Fijando la atención en el conducto o nervio situado debajo del centro laríngeo, se logra el equilibrio. <af book="3" af="31"/>
 32. Enfocando la luz en la cabeza se puede ver a quienes han alcanzado el dominio de sí mismos y establecer contacto con ellos. Dicho poder se desarrolla por la meditación unilateral. <af book="3" af="32"/>
 33. Todas las cosas pueden ser conocidas a la vívida luz de la intuición. <af book="3" af="33"/>
-34. Por la meditación enfocada en el centro cardíaco, se alcanza la comprensión de la conciencia mental.
-35. La experiencia (de los pares opuestos) se adquiere por la incapacidad del alma para distinguir entre el yo personal y purusha (espíritu). Las formas objetivas existen para uso (y experiencia) del hombre espiritual. Meditando sobre esto, surge la percepción intuitiva de la naturaleza espiritual. <pin lang="en">240</pin>
-36. Como resultado de esta experiencia y meditación, se desarrollan los sentidos superiores: oído, tacto, vista, gusto y olfato, que otorgan conocimiento intuitivo.
-37. Estos poderes constituyen obstáculos para la comprensión espiritual superior, pero sirven como poderes mágicos en los mundos objetivos.<pin lang="es">157</pin>
-38. Al liberarnos de las causas de la esclavitud, mediante su debilitamiento y el conocimiento del método para transferirlas (retiro o entrada), la sustancia mental (o chitta) puede introducirse en otro cuerpo.
-39. Subyugando la vida ascendente (udana), nos liberamos del agua, del sendero espinoso y de la ciénaga, y se obtiene el poder de ascensión.
-40. Mediante la subyugación de samana, la chispa se convierte en llama.
+34. Por la meditación enfocada en el centro cardíaco, se alcanza la comprensión de la conciencia mental. <af book="3" af="34"/>
+35. La experiencia (de los pares opuestos) se adquiere por la incapacidad del alma para distinguir entre el yo personal y purusha (espíritu). Las formas objetivas existen para uso (y experiencia) del hombre espiritual. Meditando sobre esto, surge la percepción intuitiva de la naturaleza espiritual. <pin lang="en">240</pin> <af book="3" af="35"/>
+36. Como resultado de esta experiencia y meditación, se desarrollan los sentidos superiores: oído, tacto, vista, gusto y olfato, que otorgan conocimiento intuitivo. <af book="3" af="36"/>
+37. Estos poderes constituyen obstáculos para la comprensión espiritual superior, pero sirven como poderes mágicos en los mundos objetivos.<pin lang="es">157</pin> <af book="3" af="37"/>
+38. Al liberarnos de las causas de la esclavitud, mediante su debilitamiento y el conocimiento del método para transferirlas (retiro o entrada), la sustancia mental (o chitta) puede introducirse en otro cuerpo. <af book="3" af="38"/>
+39. Subyugando la vida ascendente (udana), nos liberamos del agua, del sendero espinoso y de la ciénaga, y se obtiene el poder de ascensión. <af book="3" af="39"/>
+40. Mediante la subyugación de samana, la chispa se convierte en llama. <af book="3" af="40"/>
 41. La meditación concentrada en la relación existente entre el akasha y el sonido, desarrolla un órgano para oír espiritualmente.
 42. La meditación concentrada en la relación existente entre el cuerpo y el akasha, otorga la ascensión fuera de la materia (de los tres mundos) y el poder de viajar en el espacio.
 43. Cuando aquello que vela la luz desaparece, se alcanza ese estado de ser, llamado desencarnado (o incorpóreo), liberado de las modificaciones del principio pensante. Éste es el estado de iluminación.

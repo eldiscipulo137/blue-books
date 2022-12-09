@@ -839,3 +839,320 @@ Estos destellos de intuición son, al principio, simplemente vívidos chispazos 
 Otro aspecto del mismo conocimiento, igualmente exacto y necesario, lo expresa Charles Johnston en su comentario, y dice:
 
 > Este poder profético de la intuición <pin lang="en">318</pin> está por encima y detrás de la así denominada mente racional, la cual formula una pregunta y la presenta a la intuición; ésta da una respuesta real, frecuentemente inmediata, distorsionada por la mente racional, conteniendo no obstante, un germen de verdad. Gracias a este proceso por el cual la mente racional plantea interrogantes a la intuición para su solución, se descubren las verdades de la ciencia y llegan los destellos del genio y los descubrimientos. Pero no es necesario que este poder superior actúe subordinado a la así llamada mente racional, la cual puede actuar directamente, como plena iluminación, 'la visión y la facultad divina"
+
+### 34. Por la meditación enfocada en el centro cardíaco, se alcanza la comprensión de la conciencia mental. {#af34}
+
+Los hijos de los hombres se diferencian del reino animal en que poseen inteligencia, la mente razonadora. Por eso la Sabiduría Eterna, la Doctrina Secreta del mundo, denomina con frecuencia a los seres humanos "hijos de la mente". Esto es lo que les da sentido de individualidad o entidad separada, convirtiéndolos en egos.
+
+Se dice que en el centro del cerebro, ubicado en la glándula pineal, tenemos el hogar del alma; la vanguardia de la vida de Dios, una chispa del fuego espiritual puro. Éste es el punto inferior con el que la vida espiritual pura hace contacto directamente desde la Mónada, nuestro Padre en el Cielo. Es el extremo del sutratma o hilo que vincula y conecta <pin lang="en">319</pin> las diversas envolturas y pasa desde la mónada en su propio y elevado plano, a través del cuerpo egoico en los niveles superiores del plano mental, al vehículo físico. Esta vida de Dios es triple y combina la energía del Padre, del Hijo y del Espíritu Santo, siendo en consecuencia responsable del pleno funcionamiento de todos los aspectos de la naturaleza del hombre, en todos los planos, y también de los estados de conciencia. El primer hilo de este triple cordón o sendero, es el que da vida, espíritu y energía. El segundo es responsable de la conciencia o aspecto inteligencia, de modo que el poder del espíritu responda al contacto y evoque respuesta. El tercero concierne a la vida de la materia o aspecto cuerpo.
+
+El primer aspecto, por medio de la mónada, llega hasta la glándula pineal, lugar donde reside el espíritu en el hombre. El segundo <pin lang="es">205</pin> aspecto o conciencia, por medio del ego, es el lugar de contacto con el centro cardíaco, mientras que el tercer aspecto o tercer hilo del sutratma, se vincula con el centro en la base de la columna vertebral, fuente principal de la actividad corporal o de la personalidad.
+
+Por consiguiente, mediante la concentración en la luz de la cabeza, se obtiene el conocimiento de los mundos espirituales y de los espíritus puros que en ellos deambulan y actúan, porque atma o espíritu resplandece allí. Similarmente, por medio de la meditación concentrada en el corazón, se obtiene el conocimiento del segundo aspecto, el principio consciente e inteligente, que hace del hombre un hijo de Dios.
+
+Por el desarrollo y el empleo del centro coronario, se pone en <pin lang="en">320</pin> actividad funcionante la voluntad, que es la característica del espíritu y expresa propósito y control. Por el desarrollo y empleo del centro cardíaco, el aspecto amor-sabiduría es similarmente utilizado y el amor de Dios se ve actuando en la vida y en el trabajo del hombre. Debido a que la mente de Dios es amor y el amor de Dios inteligencia, estos dos aspectos de una gran cualidad se ponen en actividad a fin de cumplir Su voluntad y propósito. En Occidente Cristo fue el ejemplo más prominente, como Krishna en la India, aspecto que debe reflejarse y manifestarse también en cada hombre.
+
+### 35. La experiencia (de los pares opuestos) se adquiere por la incapacidad del alma para distinguir entre el yo personal y purusha (espíritu). Las formas objetivas existen para uso (y experiencia) del hombre espiritual. Meditando sobre esto, surge la percepción intuitiva de la naturaleza espiritual. {#af35}
+
+Nuevamente nos encontramos con una traducción libre del texto original, siendo sin embargo, una correcta interpretación.
+
+Hemos visto en los aforismos precedentes, que el estrecho sendero a seguir entre los pares de opuestos (por la práctica de la discriminación y del desapasionamiento) es el del equilibrio y la equidad, el noble sendero medio. Este aforismo hace un comentario sobre esta etapa de experiencia del alma, y puntualiza las siguientes lecciones:
+
+<p>
+<pin lang="en">321</pin> Primero, la razón por la cual enfrentamos los pares de opuestos y con tanta frecuencia elegimos la línea de actividad, o actitud mental, que nos produce placer o dolor, se debe a que no sabemos distinguir entre la naturaleza inferior y la superior, entre el yo personal (actuando como unidad física, emocional y mental) y <pin lang="es">206</pin> el espíritu divino, que mora en cada uno de nosotros. Nos identificamos con el aspecto forma, no con el espíritu. Durante eones nos hemos considerado como el no-yo y olvidamos nuestra afiliación, nuestra unidad con el Padre y la realidad de que somos el yo inmanente.
+</p>
+
+Segundo, el propósito de la forma es sencillamente permitirle al yo hacer contacto con mundos que de otra manera estarían vedados para él, y desarrollar plena percepción en cualquier lugar del reino del Padre, y así manifestarse como hijo de Dios plenamente consciente. Por medio de esta forma de adquirir experiencia, se despierta la conciencia y se desarrollan las facultades y los poderes.
+
+Tercero, a medida que se capta intelectualmente este hecho, y se medita sobre él internamente, uno llega a darse cuenta de su identificación con la naturaleza espiritual, y se establece la diferencia con la forma. Sabemos que no somos la forma, sino el morador de la forma, no el yo material sino el espiritual, no los aspectos diferenciados sino el Uno; así se lleva a cabo el gran proceso de liberación. Uno se convierte en lo que es, y lo logra meditando sobre el alma inteligente, el aspecto medio, el principio crístico, que vincula al Padre (espíritu) con la Madre (materia).
+
+<p>
+<pin lang="en">322</pin> Tenemos nuevamente la gran triplicidad puesta de manifiesto:
+</p>
+
+1. El Padre o espíritu, aquel que se manifiesta, crea y mora internamente.
+2. El Hijo, el que revela, medita y vincula el aspecto superior con el inferior.
+3. El Espíritu Santo, que influye a la Madre, sustancia material inteligente que proporciona las formas, por medio de las cuales se adquiere experiencia y desarrollo. Quien adquiere experiencia, encarna y logra la divina expresión, por medio de la forma, es el alma, el yo, el hombre espiritual consciente, el Cristo interno. Cuando por esta experiencia ha alcanzado la madurez, revela al Padre o espíritu; así cumple con la palabra de Cristo cuando dijo (en respuesta a la pregunta de Felipe: Señor, muéstranos al Padre), "quien me ha visto a Mí, ha visto al Padre". (Jn., 14).
+
+### 36. Como resultado de esta experiencia y meditación, se desarrollan los sentidos superiores: oído, tacto, vista, gusto y olfato, que otorgan conocimiento intuitivo. {#af36}
+
+Por la meditación, el aspirante llega a darse cuenta de la contraparte de los cinco sentidos, en los reinos más sutiles, y despertándolos y empleándolos conscientemente puede actuar en los <pin lang="es">207</pin> planos internos tan libremente como en el físico. Entonces llega a servir inteligentemente en tales reinos y colaborar en el gran esquema involutivo.
+
+Podemos definir los cinco sentidos como esos órganos <pin lang="en">323</pin> por los cuales el hombre se da cuenta de lo que lo circunda. El animal, que carece de la facultad pensante correlacionadora, posee también estos cinco sentidos. En el animal se manifiestan como facultad grupal, análoga al instinto racial en el reino humano.
+
+Cada uno de los cinco sentidos tiene conexión definida con uno de los siete planos de la manifestación, y tiene también una analogía en todos los planos.
+
+| Plano                 | Sentido                   |
+| --------------------- | ------------------------- |
+| 1. Físico             | Oído.                     |
+| 2. Emocional o astral | Tacto o sensación táctil. |
+| 3. Mental             | Vista.                    |
+| 4. Búdico             | Gusto.                    |
+| 5. Átmico             | Olfato.                   |
+
+La siguiente clasificación extraída del Tratado sobre Fuego Cósmico, servirá para aclarar los cinco diferentes aspectos de los cinco sentidos en los cinco planos; mayor información se tendrá en las páginas 173 a 185 de ese tratado.
+
+#### EVOLUCIÓN SENSORIA MICROCÓSMICA
+
+<table>
+<tr>
+   <th>Plano</th>
+   <th>Sentido</th>
+   <th colspan="2">Subplano</th>
+</tr>
+<tr>
+   <td rowspan="5">Físico</td>
+   <td>1. Oído</td>
+   <td>5to</td>
+   <td>Gaseoso</td>
+</tr>
+<tr>
+   <td>2. Tacto</td>
+   <td>4to</td>
+   <td>primer etérico o sensación táctil</td>
+</tr>
+<tr>
+   <td>3. Vista</td>
+   <td>3ro</td>
+   <td>superetérico</td>
+</tr>
+<tr>
+   <td>4. Gusto</td>
+   <td>2do</td>
+   <td>subatómico</td>
+</tr>
+<tr>
+   <td>5. Olfato</td>
+   <td>1ro</td>
+   <td>atómico <pin lang="en">324</pin></td>
+</tr>
+
+<tr>
+   <td rowspan="5">Astral</td>
+   <td>1. Clariaudiencia</td>
+   <td>5to</td>
+   <td></td>
+</tr>
+<tr>
+   <td>2. Psicometría</td>
+   <td>4to</td>
+   <td></td>
+</tr>
+<tr>
+   <td>3. Clarividencia</td>
+   <td>3ro</td>
+   <td></td>
+</tr>
+<tr>
+   <td>4. Imaginación</td>
+   <td>2do</td>
+   <td></td>
+</tr>
+<tr>
+   <td>5. Idealismo emotivo</td>
+   <td>1ro</td>
+   <td></td>
+</tr>
+
+<tr>
+   <td rowspan="7">Mental</td>
+   <td>1. Clariaudiencia superior</td>
+   <td>7mo</td>
+   <td></td>
+</tr>
+<tr>
+   <td>2. Psicometría planetaria</td>
+   <td>6to</td>
+   <td>Forma</td>
+</tr>
+<tr>
+   <td>3. Clarividencia superior</td>
+   <td>5to</td>
+   <td></td>
+</tr>
+<tr>
+   <td>4. Discriminación</td>
+   <td>4to</td>
+   <td></td>
+</tr>
+<tr>
+   <td>5. Discernimiento espiritual</td>
+   <td>3ro</td>
+   <td></td>
+</tr>
+<tr>
+   <td>Respuesta a la vibración grupal</td>
+   <td>2do</td>
+   <td>Amorfo<pin lang="es">208</pin></td>
+</tr>
+<tr>
+   <td>Telepatía espiritual</td>
+   <td>1ro</td>
+   <td></td>
+</tr>
+
+<tr>
+   <td rowspan="5">Búdico</td>
+   <td>1. Captación</td>
+   <td>7mo</td>
+   <td></td>
+</tr>
+<tr>
+   <td>2. Curación</td>
+   <td>6to</td>
+   <td></td>
+</tr>
+<tr>
+   <td>3. Visión divina</td>
+   <td>5to</td>
+   <td></td>
+</tr>
+<tr>
+   <td>4. Intuición</td>
+   <td>4to</td>
+   <td></td>
+</tr>
+<tr>
+   <td>5. Idealismo</td>
+   <td>3ro</td>
+   <td></td>
+</tr>
+
+<tr>
+   <td rowspan="5">Átmico</td>
+   <td>1. Beatitud</td>
+   <td>7mo</td>
+   <td></td>
+</tr>
+<tr>
+   <td>2. Servicio activo</td>
+   <td>6to</td>
+   <td></td>
+</tr>
+<tr>
+   <td>3. Realización</td>
+   <td>5to</td>
+   <td></td>
+</tr>
+<tr>
+   <td>4. Perfección</td>
+   <td>4to</td>
+   <td></td>
+</tr>
+<tr>
+   <td>5. Conocimiento total</td>
+   <td>3ro</td>
+   <td></td>
+</tr>
+
+</table>
+
+En la clasificación que sigue, los números de uno a cinco, en columna a la izquierda, se refieren a los planos de manifestación, enumerados en la clasificación anterior.
+
+1. Primer sentido - **Oido**
+   1. Oído físico.
+   2. Clariaudiencia.
+   3. Clariaudiencia superior.
+   4. Captación (de cuatro sonidos).
+   5. Beatitud.
+2. Segundo sentido - **Tacto o sensación táctil.**
+   1. Tacto físico.
+   2. Psicometría.
+   3. Psicometría planetaria.
+   4. Curación.
+   5. Servicio activo. <pin lang="en">325</pin>
+3. Tercer sentido - **Vista**
+   1. Vista física.
+   2. Clarividencia.
+   3. Clarividencia superior.
+   4. Visión divina.
+   5. Realización.
+4. Cuarto sentido - **Gusto**
+   1. Gusto físico.
+   2. Imaginación.
+   3. Discriminación.
+   4. Intuición.
+   5. Perfección.
+5. Quinto sentido - **Olfato**
+   1. Olfato físico.
+   2. Idealismo emocional.
+   3. Discernimiento espiritual.
+   4. Idealismo.
+   5. Conocimiento total. <pin lang="es">209</pin>
+
+### 37. Estos poderes constituyen obstáculos para la comprensión espiritual superior, pero sirven como poderes mágicos en los mundos objetivos. {#af37}
+
+En este texto sobre el desenvolvimiento espiritual, surge constantemente el hecho de que los poderes síquicos superiores o inferiores, son obstáculos para un estado espiritual más elevado, y el hombre que puede actuar libremente en los tres mundos debe prescindir de ellos. Es muy difícil que el aspirante comprenda esta lección, pues cree que el desarrollo de la clarividencia y clariaudiencia indica progreso, y que la práctica de la meditación comienza a dar resultado. Quizás indique lo contrario e <pin lang="en">326</pin> inevitablemente lo será si el aspirante se siente atraído o apegado a alguna de esas facultades síquicas. Un antiguo escritor indú dice respecto a tales poderes:
+
+> Una mente, cuya sustancia mental comienza a activarse, estima mucho estas facultades, así como el hombre que nace en la miseria, considera que un pequeño lujo es una gran riqueza. Pero el yogui, cuya sustancia mental está concentrada, debe evitar tales facultades, aunque las posea. Quien anhela alcanzar la meta final de la vida, la absoluta mitigación de la triple angustia ¿cómo puede tener afecto a estas perfecciones, contrarias a la realización de esa meta?
+
+Dvivedi dice:
+
+> Los poderes ocultos, hasta ahora descritos y los que se describirán más adelante..., son obstáculos, porque causan la distracción de la mente, por los diversos sentimientos que despiertan, pero no son totalmente inútiles, pues constituyen grandes poderes benéficos en los momentos que el samadhi ha sido suspendido
+
+Sería útil para el aspirante saber qué son estos poderes, cómo controlarlos, sin ser controlados por ellos, cómo emplearlos para servir al hermano y a la Jerarquía, pero debe considerarlos como instrumentos y relegarlos al aspecto forma. Debe comprenderse que son cualidades o capacidades de las envolturas o aspecto forma; de lo contrario asumirán importancia indebida, demandarán excesiva atención y se convertirán en obstáculos para el desenvolvimiento progresivo del alma. <pin lang="es">210</pin>
+
+### 38. Al liberarnos de las causas de la esclavitud, mediante su debilitamiento y el conocimiento del método para transferirlas (retiro o entrada), la sustancia mental (o chitta) puede introducirse en otro cuerpo. {#af38}
+
+<p>
+<pin lang="en">327</pin> Toda la ciencia de Raja Yoga está basada en la comprensión de la naturaleza, el propósito y la función de la mente. La ley básica de esta ciencia puede ser compendiada en las palabras: "La energía sigue al pensamiento", y el orden consecutivo de la actividad debe establecerse de la manera siguiente:
+</p>
+
+El pensador, en su propio plano, formula un pensamiento que incorpora algún propósito o deseo. La mente vibra en respuesta a esta idea, y simultáneamente produce la correspondiente reacción en el cuerpo kámico, emocional o de deseos. El cuerpo de energía, la envoltura etérica, vibra sincrónicamente, y de esta manera el cerebro responde y energetiza al sistema nervioso del cuerpo físico denso, en tal forma que el impulso del pensador se convierte en actividad en el plano físico.
+
+Existe una íntima relación entre la mente y el sistema nervioso, por lo tanto tenemos una interesante triplicidad:
+
+1. La mente
+2. El cerebro
+3. El sistema nervioso
+
+triplicidad que debe tenerla muy en cuenta el estudiante de Raja Yoga en la etapa inicial de su trabajo. Posteriormente una segunda triplicidad ocupará su atención, <pin lang="en">328</pin>
+
+1. El pensador
+2. La mente
+3. El cerebro
+
+pero esto será durante la demostración de su trabajo.
+
+Conociendo el método de vitalización de los nervios, el pensador puede energetizar su instrumento para entrar en actividad durante la encarnación y análogamente producir trance, samadhi o muerte. El mismo conocimiento básico permite al adepto resucitar el cuerpo muerto, como Cristo lo hizo en Palestina, u ocupar el de un discípulo para fines de servicio, así como Cristo ocupó el cuerpo del discípulo Jesús. Se dice que este conocimiento y aplicación está sujeto a la gran Ley del Karma, de Causa y Efecto, y ni Cristo mismo puede apartarse de la ley en ningún caso, a no ser que haya producido el adecuado debilitamiento de la causa esclavizante. <pin lang="es">211</pin>
+
+### 39. Subyugando la vida ascendente (udana), nos liberamos del agua, del sendero espinoso y de la ciénaga, y se obtiene el poder de ascensión. {#af39}
+
+La suma total de fuerza nerviosa, denominada por los indúes prana, compenetra todo el cuerpo, y es controlada por la mente, a través del cerebro; constituye la vitalidad que pone en actividad los órganos sensorios y produce la vida externa del hombre; su medio de distribución es el sistema nervioso, valiéndose de grandes centros distribuidores, llamados plexos o lotos. Los ganglios nerviosos, conocidos <pin lang="en">329</pin> por la medicina ortodoxa, son reflejos o sombras de plexos más vitales. El estudiante no se equivocará si considera que todo el prana en el cuerpo humano constituye el cuerpo vital o etérico, el cual está totalmente formado de corrientes de energía, y es el sustrato de la sustancia viviente, subyacente en la forma física densa.
+
+Uno de los términos aplicados a esta energía es "aires vitales". Prana es quíntuple en manifestación, correspondiendo así a los cinco estados mentales, al quinto principio y a las cinco modificaciones del principio pensante. Prana, en el sistema solar, se manifiesta como los cinco grandes estados de energía que denominamos planos, el medio para la conciencia, éstos son:
+
+1. El plano átmico o espiritual.
+2. El plano búdico o intuicional.
+3. El plano mental.
+4. El plano emocional, astral o kámico.
+5. El plano físico.
+
+Las cinco diferenciaciones de prana en el cuerpo humano son:
+
+1. **Prana** se extiende desde la nariz al corazón, teniendo relación especial con la boca y la palabra, el corazón y los pulmones.
+2. **Samana** abarca desde el corazón al plexo solar; concierne al alimento y nutrición del cuerpo, por medio del alimento y la bebida, y tiene relación especial con el estómago.
+3. **Apana** controla desde el plexo solar hasta las plantas de los pies; concierne a los órganos de eliminación, de evacuación y de nacimiento, teniendo <pin lang="en">330</pin> una relación especial con los órganos genitales y evacuantes.
+4. **Udana** se encuentra entre la nariz y la cima de la cabeza; tiene relación especial con el cerebro, la nariz y los ojos; cuando está adecuadamente controlada produce la coordinación de los aires vitales y su correcto manejo.
+5. **Vyana** es el término aplicado a la suma total de la energía pránica, al distribuirse equilibradamente por todo el cuerpo. Sus <pin lang="es">212</pin> instrumentos son los miles de nadis o nervios del cuerpo, y tiene conexión peculiar y definida con los canales sanguíneos, las venas y las arterias.
+
+Este aforismo dice que el dominio sobre el cuarto de estos aires vitales, permite alcanzar ciertos resultados definidos, y sería interesante conocerlos. Este dominio sólo es posible cuando se comprende y domina el sistema de Raja Yoga, pues implica la capacidad de actuar en la cabeza y controlar toda la naturaleza desde ese punto en el cerebro. Cuando el hombre se ha polarizado allí, las fuerzas nerviosas o energías en la cima de la cabeza entran en actividad, y mediante su correcto control y dominio, es posible dirigir correctamente los pranas del cuerpo, alcanzando el hombre la liberación. Por medio de esto se rompe el contacto con los tres mundos. El lenguaje empleado es necesariamente simbólico y no debe perderse su significado, materializando su verdadera significación. La levitación, el poder de caminar sobre la aguas, la capacidad de contrarrestar la atracción de la gravedad de la tierra, es el significado inferior y menos importante. <pin lang="en">331</pin>
+
+1. La liberación del agua es la manera simbólica de expresar que la naturaleza astral está subyugada y que las grandes aguas de la ilusión ya no pueden retener al alma emancipada. Ya no dominan las energías del plexo solar.\
+2. La liberación del sendero espinoso se refiere al sendero de la vida física, y nada lo expresa mejor que la parábola de Cristo sobre los sembradores, según la cual algunas de las semillas cayeron entre las espinas. Se explica que las espinas son la preocupaciones y dificultades de la existencia mundana, las cuales sofocan la vida espiritual y ocultan al verdadero hombre por mucho tiempo. El sendero espinoso debe conducir al sendero del norte, y éste a su vez al sendero de iniciación. En un antiguo libro de los Archivos de la Logia, hallamos estas palabras:
+ > Que el buscador de la verdad evite ahogarse y ascienda por la margen del río. Que se dirija hacia la estrella del norte y permanezca en terreno firme, con su rostro orientado hacia la luz. Entonces que la estrella lo guí
+3. La liberación de la ciénaga se refiere a esa naturaleza mixta de kama-manas, deseo y mente inferior, origen del excepcional problema de la humanidad. Es una manera simbólica de referirse a la gran ilusión, que atrapa al peregrino durante tanto tiempo. Cuando el aspirante puede caminar en la luz, después de descubrir la luz (el Shekinah) en sí mismo, en el "Sanctum Sanctorum”, la ilusión se disipa. Es conveniente que el estudiante busque la analogía entre las tres partes del templo de Salomón y el “templo del Espíritu Santo”, la estructura humana.
+
+ <p>
+ <pin lang="es">213</pin> <pin lang="en">332</pin> El atrio externo concierne a las energías y sus correspondientes órganos situados debajo del diafragma. El Lugar Sagrado es el de los centros y órganos, situados en la parte superior del cuerpo, desde la garganta al diafragma. El Sanctum Sanctorum es la cabeza, donde está el trono de Dios, el asiento de la misericordia y de la gloria influyente.
+ </p>
+
+Una vez alcanzados estos tres aspectos de la liberación, y cuando el hombre ya no está dominado por el agua, la ciénaga o la vida del plano físico, obtiene el "poder de ascensión" y puede ascender a voluntad a los cielos. El Cristo u hombre espiritual, puede permanecer en el monte de la Ascensión, después de haber experimentado las cuatro crisis o puntos de control, desde el nacimiento a la crucifixión. De esta manera "udana" o vida ascendente, se convierte en el factor controlador, y la vida descendente deja de regir.
+
+### 40. Mediante la subyugación de samana, la chispa se convierte en llama. {#af40}
+
+Este aforismo es uno de los más bellos del libro, y la traducción de Charles Johnston debe ser considerada aquí: "Dominando la vida que ata, se obtiene la radiación". Otra interpretación sería: "Mediante el control de samana, el AUM (la Palabra de Gloria) se manifiesta". Del corazón brotan las fuentes de vida, y la energía vital llamada "samana" controla al corazón y al aliento de vida por medio de los pulmones. Cuando el cuerpo está purificado y sus energías debidamente dirigidas y se ha obtenido el ritmo se percibe la vida radiante.
+
+<p>
+<pin lang="en">333</pin> Esto se producirá literal y no metafóricamente, porque cuando las corrientes de vida son dirigidas por el alma desde su trono, a través de los nervios y canales sanguíneos, sólo entonces los átomos más puros entran en el cuerpo y el resultado será el resplandor de la luz, en todo el hombre. No sólo de la cabeza irradiará la luz, de modo que el clarividente verá un halo o círculo de brillantes colores, sino que de todo el cuerpo irradiará a través de los centros vibrantes de fuerza eléctrica, distribuida en él.
+</p>
