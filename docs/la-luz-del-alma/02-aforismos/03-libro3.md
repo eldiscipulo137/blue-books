@@ -48,16 +48,16 @@ title: Libro III. Realización de la unidad y sus resultados
 38. Al liberarnos de las causas de la esclavitud, mediante su debilitamiento y el conocimiento del método para transferirlas (retiro o entrada), la sustancia mental (o chitta) puede introducirse en otro cuerpo. <af book="3" af="38"/>
 39. Subyugando la vida ascendente (udana), nos liberamos del agua, del sendero espinoso y de la ciénaga, y se obtiene el poder de ascensión. <af book="3" af="39"/>
 40. Mediante la subyugación de samana, la chispa se convierte en llama. <af book="3" af="40"/>
-41. La meditación concentrada en la relación existente entre el akasha y el sonido, desarrolla un órgano para oír espiritualmente.
-42. La meditación concentrada en la relación existente entre el cuerpo y el akasha, otorga la ascensión fuera de la materia (de los tres mundos) y el poder de viajar en el espacio.
-43. Cuando aquello que vela la luz desaparece, se alcanza ese estado de ser, llamado desencarnado (o incorpóreo), liberado de las modificaciones del principio pensante. Éste es el estado de iluminación.
-44. La meditación concentrada en las cinco formas que adopta cada elemento, otorga el dominio sobre todos los elementos. Estas cinco formas son: la naturaleza grosera, la forma elemental, la cualidad, la penetrabilidad y el propósito básico.
-45. Mediante este dominio se obtiene la máxima pequeñez y los otros siddhis (o poderes), así como la perfección corporal y la liberación de todos los entorpecimientos.
-46. Simetría de forma, belleza de color, dureza y densidad del diamante, constituyen la perfección corporal.
-47. El dominio sobre los sentidos se obtiene por la meditación concentrada en su naturaleza, atributos peculiares, egotismo, penetrabilidad y propósito útil. <pin lang="en">241</pin>
-48. Como resultado de esta perfección se obtiene rapidez de acción, como la de la mente, la percepción interdependiente de los órganos y el dominio sobre la sustancia raíz.
-49. El hombre que puede discriminar entre alma y espíritu, alcanza la supremacía sobre todas las condiciones y llega ser omnisciente.
-50. La desapasionada actitud hacia esta realización y todos los poderes del alma, hace que quien está libre de las semillas de la esclavitud, alcance el estado de unidad aislada.
+41. La meditación concentrada en la relación existente entre el akasha y el sonido, desarrolla un órgano para oír espiritualmente. <af book="3" af="41"/>
+42. La meditación concentrada en la relación existente entre el cuerpo y el akasha, otorga la ascensión fuera de la materia (de los tres mundos) y el poder de viajar en el espacio. <af book="3" af="42"/>
+43. Cuando aquello que vela la luz desaparece, se alcanza ese estado de ser, llamado desencarnado (o incorpóreo), liberado de las modificaciones del principio pensante. Éste es el estado de iluminación. <af book="3" af="43"/>
+44. La meditación concentrada en las cinco formas que adopta cada elemento, otorga el dominio sobre todos los elementos. Estas cinco formas son: la naturaleza grosera, la forma elemental, la cualidad, la penetrabilidad y el propósito básico. <af book="3" af="44"/>
+45. Mediante este dominio se obtiene la máxima pequeñez y los otros siddhis (o poderes), así como la perfección corporal y la liberación de todos los entorpecimientos. <af book="3" af="45"/>
+46. Simetría de forma, belleza de color, dureza y densidad del diamante, constituyen la perfección corporal. <af book="3" af="46"/>
+47. El dominio sobre los sentidos se obtiene por la meditación concentrada en su naturaleza, atributos peculiares, egotismo, penetrabilidad y propósito útil. <pin lang="en">241</pin> <af book="3" af="47"/>
+48. Como resultado de esta perfección se obtiene rapidez de acción, como la de la mente, la percepción interdependiente de los órganos y el dominio sobre la sustancia raíz. <af book="3" af="48"/>
+49. El hombre que puede discriminar entre alma y espíritu, alcanza la supremacía sobre todas las condiciones y llega ser omnisciente. <af book="3" af="49"/>
+50. La desapasionada actitud hacia esta realización y todos los poderes del alma, hace que quien está libre de las semillas de la esclavitud, alcance el estado de unidad aislada. <af book="3" af="50"/>
 51. Debe haber rechazo absoluto de las tentaciones de todas las formas, incluso la celestial, pues aún es posible la repetición de contactos malignos.
 52. El conocimiento intuitivo se desarrolla por el empleo de la facultad discriminadora, cuando hay concentración enfocada en los instantes y su continua sucesión.
 53. De este conocimiento intuitivo nace la capacidad de distinguir (entre todos los seres) y de conocer su especie, sus cualidades y el lugar que ocupan en el espacio.
