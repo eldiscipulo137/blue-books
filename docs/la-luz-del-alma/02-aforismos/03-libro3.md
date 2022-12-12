@@ -58,8 +58,8 @@ title: Libro III. Realización de la unidad y sus resultados
 48. Como resultado de esta perfección se obtiene rapidez de acción, como la de la mente, la percepción interdependiente de los órganos y el dominio sobre la sustancia raíz. <af book="3" af="48"/>
 49. El hombre que puede discriminar entre alma y espíritu, alcanza la supremacía sobre todas las condiciones y llega ser omnisciente. <af book="3" af="49"/>
 50. La desapasionada actitud hacia esta realización y todos los poderes del alma, hace que quien está libre de las semillas de la esclavitud, alcance el estado de unidad aislada. <af book="3" af="50"/>
-51. Debe haber rechazo absoluto de las tentaciones de todas las formas, incluso la celestial, pues aún es posible la repetición de contactos malignos.
-52. El conocimiento intuitivo se desarrolla por el empleo de la facultad discriminadora, cuando hay concentración enfocada en los instantes y su continua sucesión.
-53. De este conocimiento intuitivo nace la capacidad de distinguir (entre todos los seres) y de conocer su especie, sus cualidades y el lugar que ocupan en el espacio.
-54. Este conocimiento intuitivo, el gran liberador, es omnipresente y omnisciente y abarca el pasado, el presente y el futuro, en el Eterno Ahora.
-55. Cuando las formas objetivas y el alma han logrado igual pureza, se alcanza la unificación, que trae como resultado la liberación.
+51. Debe haber rechazo absoluto de las tentaciones de todas las formas, incluso la celestial, pues aún es posible la repetición de contactos malignos. <af book="3" af="51"/>
+52. El conocimiento intuitivo se desarrolla por el empleo de la facultad discriminadora, cuando hay concentración enfocada en los instantes y su continua sucesión. <af book="3" af="52"/>
+53. De este conocimiento intuitivo nace la capacidad de distinguir (entre todos los seres) y de conocer su especie, sus cualidades y el lugar que ocupan en el espacio. <af book="3" af="53"/>
+54. Este conocimiento intuitivo, el gran liberador, es omnipresente y omnisciente y abarca el pasado, el presente y el futuro, en el Eterno Ahora. <af book="3" af="54"/>
+55. Cuando las formas objetivas y el alma han logrado igual pureza, se alcanza la unificación, que trae como resultado la liberación. <af book="3" af="55"/>

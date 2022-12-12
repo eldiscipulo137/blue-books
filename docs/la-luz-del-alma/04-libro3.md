@@ -1162,12 +1162,12 @@ Este aforismo es uno de los más bellos del libro, y la traducción de Charles J
 Para entender este aforismo es esencial que se comprendan ciertas relaciones entre la materia, los sentidos y el que adquiere experiencia.
 
 <p>
-[e214] El cristiano cree que "todas las cosas fueron hechas por la palabra de Dios". El creyente oriental sostiene que el sonido fue el factor originante del proceso de la creación y ambos enseñan que esta palabra o sonido, describe a la segunda Persona de la Trinidad divina.
+<pin lang="es">214</pin> El cristiano cree que "todas las cosas fueron hechas por la palabra de Dios". El creyente oriental sostiene que el sonido fue el factor originante del proceso de la creación y ambos enseñan que esta palabra o sonido, describe a la segunda Persona de la Trinidad divina.
 </p>
 
 Este sonido o palabra, puso en actividad peculiar a la materia del sistema solar, y fue precedido por el aliento del Padre, que inició el movimiento o vibración original.
 
-Por lo tanto, el Aliento (neuma o espíritu), al hacer impacto en la sustancia primordial, estableció una pulsación, una vibración, un ritmo. Luego, la [i334] palabra o sonido hizo que la sustancia vibrante adquiriera forma o figura, dando lugar así a la encarnación de la segunda Persona de la Trinidad cósmica, el Hijo de Dios, el Macrocosmos.
+Por lo tanto, el Aliento (neuma o espíritu), al hacer impacto en la sustancia primordial, estableció una pulsación, una vibración, un ritmo. Luego, la <pin lang="en">334</pin> palabra o sonido hizo que la sustancia vibrante adquiriera forma o figura, dando lugar así a la encarnación de la segunda Persona de la Trinidad cósmica, el Hijo de Dios, el Macrocosmos.
 
 Este proceso dio por resultado los siete planos de manifestación, las esferas donde son posibles siete estados de conciencia Todos caracterizan ciertas cualidades, se diferencian entre sí por determinadas facultades vibratorias especificas, y cada uno tiene su propia denominación.
 
@@ -1181,13 +1181,13 @@ La siguiente clasificación será de utilidad si el estudiante tiene en cuenta q
 | 2do. plano. | Monádico            | Akaska       | Dios, el Hijo           | Amor-Sabiduría.      |
 | 3er. plano. | Espiritual o átmico | Eter         | Dios, el Espíritu Santo | Inteligencia-Activa. |
 
-#### [i335] PLANO DE UNIÓN O UNIFICACIÓN
+#### <pin lang="en">335</pin> PLANO DE UNIÓN O UNIFICACIÓN
 
 |             |                   |      |                |              |
 | ----------- | ----------------- | ---- | -------------- | ------------ |
 | 4to. plano. | Crístico o búdico | Aire | Unión. Armonía | Unificación. |
 
-#### [e215] PLANOS DEL ESFUERZO HUMANO
+#### <pin lang="es">215</pin> PLANOS DEL ESFUERZO HUMANO
 
 |             |                    |            |                          |                       |
 | ----------- | ------------------ | ---------- | ------------------------ | --------------------- |
@@ -1207,7 +1207,7 @@ En todos estos planos se manifiesta la conciencia, y los sentidos exotéricos y 
 | 6to. plano | Luz astral                          | Deseo                | Olfato | Nariz.  |
 | 7mo. plano | Las contrapartes 	físicas de todos. |                      |        |         |
 
-Otro método para describirlos es el siguiente: [i336]
+Otro método para describirlos es el siguiente: <pin lang="en">336</pin>
 
 |      |                |           |             |
 | ---- | -------------- | --------- | ----------- |
@@ -1223,7 +1223,7 @@ Sin embargo, es evidente que uno da el punto de vista microcósmico y el otro el
 
 Al considerar este aforismo y su clasificación, por la comprensión de la naturaleza de los planos, sus símbolos y sustancias, será evidente que el hombre que conozca la naturaleza de la palabra y del segundo aspecto, llegará a la comprensión del oído.
 
-Esto también puede captarlo místicamente el aspirante, cuando se da cuenta que las voces del deseo (voces astrales o respuesta vibratoria al segundo aspecto del reflejo, los tres planos inferiores) son reemplazadas por la Voz del Silencio o del Cristo interno, entonces conoce la palabra o sonido, y establece contacto con el segundo aspecto de la divinidad. [e216]
+Esto también puede captarlo místicamente el aspirante, cuando se da cuenta que las voces del deseo (voces astrales o respuesta vibratoria al segundo aspecto del reflejo, los tres planos inferiores) son reemplazadas por la Voz del Silencio o del Cristo interno, entonces conoce la palabra o sonido, y establece contacto con el segundo aspecto de la divinidad. <pin lang="es">216</pin>
 
 |                |                   |                                                 |
 | -------------- | ----------------- | ----------------------------------------------- |
@@ -1231,7 +1231,7 @@ Esto también puede captarlo místicamente el aspirante, cuando se da cuenta que
 | 2. Luz astral. | La voz del deseo. | Reflejo del segundo aspecto.                    |
 
 <p>
-[i337] En todos los planos hay muchos sonidos audibles, pero en el plano físico tenemos una mayor diversidad. El aspirante debe desarrollar la facultad de distinguir entre:
+<pin lang="en">337</pin> En todos los planos hay muchos sonidos audibles, pero en el plano físico tenemos una mayor diversidad. El aspirante debe desarrollar la facultad de distinguir entre:
 </p>
 
 |                                                      |           |
@@ -1251,26 +1251,26 @@ Así como todas las sustancias de nuestro sistema solar manifestado son diferenc
 Sin embargo, al estudiante de Raja Yoga le conciernen temporariamente tres voces o sonidos principales:
 
 1. El lenguaje de la Tierra, a fin de utilizarlo correctamente.
-2. La Voz del Silencio, a fin de oírla. Esta es la voz de su propio Dios interno, el Cristo. [i338]
+2. La Voz del Silencio, a fin de oírla. Esta es la voz de su propio Dios interno, el Cristo. <pin lang="en">338</pin>
 3. AUM, la Palabra del Padre, expresada por el Hijo, que una vez oída lo pondrá en contacto con la Palabra de Dios, encarnado en toda la naturaleza.
 
 Cuando el lenguaje sea correctamente empleado, y cuando puedan acallarse los sonidos de la Tierra, entonces se oirá la Voz de Silencio. Podrá observarse, que la clariaudiencia es la percepción de la voz de la gran ilusión y proporciona al hombre el poder para oír en el plano astral. Esto, en su debido lugar, cuando esté controlado desde arriba por medio del conocimiento, abre el oído a ciertos aspectos de la expresión divina, en los tres mundos Este aforismo no se refiere a oír divinamente. En su comentario Charles Johnston abarca bellamente este terreno, de la manera siguiente:
 
-> La transmisión de una palabra, telepáticamente, es la simple y primitiva forma de “oír divinamente”, del hombre espiritual; a [e217] medida que desarrolla el poder y, por medio de la meditación perfectamente concentrada, el hombre espiritual llega a dominarlo en forma más completa, adquiere la capacidad de oír y distinguir claramente el lenguaje de los grandes Seres, que lo aconsejan y confortan en su camino. Quizás le hablen en pensamientos sin palabras o en palabras y frases perfectamente definidas
+> La transmisión de una palabra, telepáticamente, es la simple y primitiva forma de “oír divinamente”, del hombre espiritual; a <pin lang="es">217</pin> medida que desarrolla el poder y, por medio de la meditación perfectamente concentrada, el hombre espiritual llega a dominarlo en forma más completa, adquiere la capacidad de oír y distinguir claramente el lenguaje de los grandes Seres, que lo aconsejan y confortan en su camino. Quizás le hablen en pensamientos sin palabras o en palabras y frases perfectamente definidas
 
 ### 42. La meditación concentrada en la relación existente entre el cuerpo y el akasha, otorga la ascensión fuera de la materia (de los tres mundos) y el poder de viajar en el espacio. {#af42}
 
-El akasha está en todas partes, en él vivimos, nos movemos y tenemos nuestro ser. Todo es una sola [i339] sustancia, y en el cuerpo humano se encuentran las analogías de las diversas diferenciaciones.
+El akasha está en todas partes, en él vivimos, nos movemos y tenemos nuestro ser. Todo es una sola <pin lang="en">339</pin> sustancia, y en el cuerpo humano se encuentran las analogías de las diversas diferenciaciones.
 
 Cuando el hombre se conoce a sí mismo y es consciente de la relación que existe entre las energías, que actúan a través de los siete centros, y los siete estados de la materia y de la conciencia, queda liberado y libre y puede hacer contacto a voluntad, sin limitación de tiempo, con todos esos estados. Existe una relación entre cada uno de los siete estados de materia y cualquiera de los centros; cada centro es la puerta para determinado plano de las esferas planetarias. Cuando el discípulo ha desarrollado en su vida, con correcta comprensión, los distintos métodos de yoga, tratados en los libros anteriores, pueden confiársele ciertas claves y conocimientos, palabras y fórmulas, que, por la meditación concentrada, le darán la libertad que otorgan los cielos y el derecho de trasponer ciertos portales del reino de Dios.
 
 ### 43. Cuando aquello que vela la luz desaparece, se alcanza ese estado de ser, llamado desencarnado (o incorpóreo), liberado de las modificaciones del principio pensante. Éste es el estado de iluminación. {#af43}
 
-Más que literal esta es traducción libre, en la cual se conserva el verdadero sentido de los términos arcaicos, en vez de la exactitud académica. La razón de ello se observará si transcribimos algunas traducciones muy conocidas, que aunque exactas, ponen de manifiesto la [i340] inevitable ambigüedad, cuando los términos sánscritos se traducen literalmente:
+Más que literal esta es traducción libre, en la cual se conserva el verdadero sentido de los términos arcaicos, en vez de la exactitud académica. La razón de ello se observará si transcribimos algunas traducciones muy conocidas, que aunque exactas, ponen de manifiesto la <pin lang="en">340</pin> inevitable ambigüedad, cuando los términos sánscritos se traducen literalmente:
 
 > Una fluctuación externa desajustada constituye el gran Desencarnado; como resultado de esto se produce la sutileza del velo de la luminosidad. Woods.
 >
-> La modificación externa (del órgano interno) … irreflexiva es (llamado) el gran incorpóreo (modificación); a ello se debe [e218] (resultado) la destrucción de la oscuración de la iluminación (del intelecto). Tatya.
+> La modificación externa (del órgano interno) … irreflexiva es (llamado) el gran incorpóreo (modificación); a ello se debe <pin lang="es">218</pin> (resultado) la destrucción de la oscuración de la iluminación (del intelecto). Tatya.
 
 Vivekananda expresa este aforismo en los siguientes términos:
 
@@ -1278,7 +1278,7 @@ Vivekananda expresa este aforismo en los siguientes términos:
 
 Esto pone de manifiesto las grandes dificultades bajo las cuales trabajan los traductores; por eso hemos dado una franca paráfrasis de este pasaje.
 
-En este aforismo se trata de expresar dos ideas. Una se refiere al velo o manto que impide la iluminación de la mente, la otra estado de comprensión que se alcanza cuando el hombre se ha liberado de este velo. Lo que oculta la luz (la "medida" a que se refería Cristo en el Nuevo Testamento) son las envolturas cuerpos cambiantes o fluctuantes. Una vez que se han trasmutado y trascendido, la luz de Dios (el segundo aspecto divino) puede inundar al hombre inferior, y éste se conoce a sí mismo tal como es. La iluminación penetra y el hombre se conoce como algo diferente de las formas mediante las cuales actúa. Ya no está centrado ni [i341] polarizado en sus formas, sino que se encuentra en condición incorpórea. Su conciencia es la del hombre fuera encarnación, del hombre verdadero en su propio plano, del verdadero pensador desencarnado. San Pablo, como lo han señalado varios pensadores, tuvo una vislumbre de este estado del ser. Se refirió a él con estas palabras:
+En este aforismo se trata de expresar dos ideas. Una se refiere al velo o manto que impide la iluminación de la mente, la otra estado de comprensión que se alcanza cuando el hombre se ha liberado de este velo. Lo que oculta la luz (la "medida" a que se refería Cristo en el Nuevo Testamento) son las envolturas cuerpos cambiantes o fluctuantes. Una vez que se han trasmutado y trascendido, la luz de Dios (el segundo aspecto divino) puede inundar al hombre inferior, y éste se conoce a sí mismo tal como es. La iluminación penetra y el hombre se conoce como algo diferente de las formas mediante las cuales actúa. Ya no está centrado ni <pin lang="en">341</pin> polarizado en sus formas, sino que se encuentra en condición incorpórea. Su conciencia es la del hombre fuera encarnación, del hombre verdadero en su propio plano, del verdadero pensador desencarnado. San Pablo, como lo han señalado varios pensadores, tuvo una vislumbre de este estado del ser. Se refirió a él con estas palabras:
 
 > Conozco a un hombre en Cristo, que hace catorce años (no puedo decir si en el cuerpo o fuera de él, Dios lo sabe) fue arrebatado al tercer cielo. Y conocí a tal hombre... que fue arrebatado al paraíso, donde oyó palabras inefables, que no le es dado al hombre expresar. (I, Co. 12).
 
@@ -1286,7 +1286,7 @@ Este "tercer cielo" se puede entender de dos maneras: primero, como representaci
 
 ### 44. La meditación concentrada en las cinco formas que adopta cada elemento, otorga el dominio sobre todos los elementos. Estas cinco formas son: la naturaleza grosera, la forma elemental, la cualidad, la penetrabilidad y el propósito básico. {#af44}
 
-Debería recordarse que aquí caben dos referencias, una al macrocosmos y otra al microcosmos. Pueden referirse a los cinco [e219] planos de evolución monádica o a las cinco formas que todo [i342] elemento asume en cada uno y en todos los planos; debe tenerse presente que esto es así respecto a la captación de la mente y a las modificaciones del principio pensante, porque la mente es el quinto principio y el hombre es la estrella de cinco puntas; por lo tanto puede (como hombre) alcanzar únicamente una quíntuple iluminación. Sin embargo, existen dos formas superiores, y otras dos formas de percepción: la comprensión intuitiva y la espiritual. Pero este aforismo no se refiere a ellas. El centro coronario en sí es dual, y se compone del centro entre las cejas y el chakra superior, el loto de mil pétalos.
+Debería recordarse que aquí caben dos referencias, una al macrocosmos y otra al microcosmos. Pueden referirse a los cinco <pin lang="es">219</pin> planos de evolución monádica o a las cinco formas que todo <pin lang="en">342</pin> elemento asume en cada uno y en todos los planos; debe tenerse presente que esto es así respecto a la captación de la mente y a las modificaciones del principio pensante, porque la mente es el quinto principio y el hombre es la estrella de cinco puntas; por lo tanto puede (como hombre) alcanzar únicamente una quíntuple iluminación. Sin embargo, existen dos formas superiores, y otras dos formas de percepción: la comprensión intuitiva y la espiritual. Pero este aforismo no se refiere a ellas. El centro coronario en sí es dual, y se compone del centro entre las cejas y el chakra superior, el loto de mil pétalos.
 
 El estudio y la comprensión de este aforismo, traerá como resultado la total preparación del ocultista blanco para efectuar todo tipo de trabajo mágico. Los estudiantes deben recordar que esto no se refiere a los elementos tal como los conocemos, sino a la sustancia elemental, de la cual todas las formas groseras están hechas. De acuerdo a la Sabiduría Eterna existen cinco grados de sustancia, que poseen ciertas cualidades. Estos cinco grados de sustancia forman los cinco planos de la evolución monádica; componen las cinco esferas vibratorias, en las que residen el hombre y el superhombre. Estos cinco planos tienen cada uno una cualidad destacada, de las cuales los cinco sentidos físicos son su analogía:
 
@@ -1299,19 +1299,19 @@ El estudio y la comprensión de este aforismo, traerá como resultado la total p
 | Átmico   | Espiritual | Sonido  | Laríngeo                     |
 
 <p>
-[i343] Como ya se ha dicho en Tratado sobre Fuego Cósmico, estos sentidos y sus analogías dependen del grado de evolución del hombre, como H. P. Blavastky lo afirmó al enumerar los principios.
+<pin lang="en">343</pin> Como ya se ha dicho en Tratado sobre Fuego Cósmico, estos sentidos y sus analogías dependen del grado de evolución del hombre, como H. P. Blavastky lo afirmó al enumerar los principios.
 </p>
 
 Este aforismo, por consiguiente, es aplicable tanto al dominio de cada plano, como al de los elementos que lo componen. Se refiere al dominio y utilización de todas las envolturas sutiles, por medio de las cuales el hombre se pone en contacto con un plano o un grado peculiar de vibración.
 
-Ganganatha Jha, en su inteligente comentario, dice: "Las cualidades específicas, el sonido y las restantes, pertenecientes a la tierra, conjuntamente con las propiedades de la forma y todo lo demás, se denominan “groseras”; ésta es la primera forma de los elementos. La segunda forma es su respectiva característica genérica: para la tierra es figura, para el agua viscosidad, para el fuego calor, para el aire velocidad y para el akasha omnipresencia. [e220] Las formas específicas de estas características genéricas son el sonido y todo lo demás". Su traducción es análoga a las otras, excepto la de Johnston, que es la siguiente:
+Ganganatha Jha, en su inteligente comentario, dice: "Las cualidades específicas, el sonido y las restantes, pertenecientes a la tierra, conjuntamente con las propiedades de la forma y todo lo demás, se denominan “groseras”; ésta es la primera forma de los elementos. La segunda forma es su respectiva característica genérica: para la tierra es figura, para el agua viscosidad, para el fuego calor, para el aire velocidad y para el akasha omnipresencia. <pin lang="es">220</pin> Las formas específicas de estas características genéricas son el sonido y todo lo demás". Su traducción es análoga a las otras, excepto la de Johnston, que es la siguiente:
 
 > Dominio sobre los elementos desde el sanyama, en lo que respecta a lo grosero, al carácter, la sutileza, la concomitancia y la utilidad
 
 1. Rudeza, naturaleza densa.
    1. El sonido y los otros sentidos, tal como se manifiestan en el plano físico. Debemos tener en cuenta que este plano es el burdo resumen de todos los demás. Espíritu, es materia en su punto más bajo.
 2. Carácter, forma elemental.
-   1. [i344] La naturaleza de las características específicas de los elementos
+   1. <pin lang="en">344</pin> La naturaleza de las características específicas de los elementos
 3. Sutileza o cualidad.
    1. La sustancia atómica básica de todo elemento. Lo que produce su efecto fenoménico. Es aquello que está detrás de toda percepción sensoria y de los cinco sentidos. Otra palabra para esta forma "sutil" es tanmatra.
 4. Concomitancia o compenetrabilidad.
@@ -1319,7 +1319,7 @@ Ganganatha Jha, en su inteligente comentario, dice: "Las cualidades específicas
 5. Utilidad o propósito básico.
    1. Es el correcto empleo de cada elemento, en la gran obra de la evolución. Literalmente, constituye el poder oculto en cada átomo de sustancia, que lo impulsa adelante (mediante todos los reinos de la naturaleza) hacia la autoexpresión; le permite realizar su tarea en tiempo y espacio y alcanzar la fructificación eventual.
 
-Cuando, mediante la meditación concentrada en las cinco formas distintas de todos los elementos, el conocedor ha llegado a conocer todas las cualidades, características y naturaleza de los mismos, puede colaborar inteligentemente en el plan y llegar a ser un mago blanco. A la mayoría sólo le es posible llegar a tres de las formas; a esto se refiere "Luz en el Sendero" con [i345] las [e221] palabras: "Interroga a la tierra, al aire y al agua, acerca de los secretos que contienen para ti. El desenvolvimiento del sentido interno le permitirá hacerlo".
+Cuando, mediante la meditación concentrada en las cinco formas distintas de todos los elementos, el conocedor ha llegado a conocer todas las cualidades, características y naturaleza de los mismos, puede colaborar inteligentemente en el plan y llegar a ser un mago blanco. A la mayoría sólo le es posible llegar a tres de las formas; a esto se refiere "Luz en el Sendero" con <pin lang="en">345</pin> las <pin lang="es">221</pin> palabras: "Interroga a la tierra, al aire y al agua, acerca de los secretos que contienen para ti. El desenvolvimiento del sentido interno le permitirá hacerlo".
 
 ### 45. Mediante este dominio se obtiene la máxima pequeñez y los otros siddhis (o poderes), así como la perfección corporal y la liberación de todos los entorpecimientos. {#af45}
 
@@ -1334,7 +1334,7 @@ Al final de cada uno de estos tres libros sobre Raja Yoga, tenemos un aforismo q
 Por lo que antecede se verá que tenemos primeramente la obtención de la visión y la comprensión interna de Dios; luego la completa subyugación de la naturaleza inferior y el control de los sentidos y sus órganos, de manera que el conocimiento se convierte realmente en experiencia en el plano físico, y después viene la manifestación de dicho control por el despliegue de ciertos poderes.
 
 <p>
-[i346] El Libro Cuarto está dedicado totalmente a la gran consumación, resultante de los tres anteriores, produciendo:
+<pin lang="en">346</pin> El Libro Cuarto está dedicado totalmente a la gran consumación, resultante de los tres anteriores, produciendo:
 </p>
 
 1. Cesación del dolor y del trabajo. [(Af. 30)](libro4#af30).
@@ -1344,24 +1344,24 @@ Por lo que antecede se verá que tenemos primeramente la obtención de la visió
 
 En conexión con el aforismo en consideración, a los ocho siddhis o poderes síquicos se los denomina frecuentemente las ocho perfecciones, y con los otros dos completan los diez estados de perfección, en lo que concierne al hombre inferior. Estos poderes son:
 
-1. *Máxima pequeñez. anima*. Es el poder que posee el yogui de hacerse pequeño como el átomo, identificarse con la parte más pequeña del universo, sabiendo que el yo de ese átomo es [e222] uno con él. Esto se debe a que el ánima mundi, o alma del mundo, se difunde universalmente en todos los aspectos de la vida divina.
+1. *Máxima pequeñez. anima*. Es el poder que posee el yogui de hacerse pequeño como el átomo, identificarse con la parte más pequeña del universo, sabiendo que el yo de ese átomo es <pin lang="es">222</pin> uno con él. Esto se debe a que el ánima mundi, o alma del mundo, se difunde universalmente en todos los aspectos de la vida divina.
 2. *Magnitud. mahima*. Es el poder de expandir la propia conciencia y penetrar así en el todo mayor y también en la parte menor.
 3. *Gravedad. garima*. Esto concierne al peso y a la masa, y se refiere a la Ley de Gravedad, un aspecto de la Ley de Atracción.
-4. *Liviandad. Iaghima*. Es el poder subyacente en el fenómeno de levitación. La capacidad del adepto para contrarrestar la fuerza [i347] de atracción del planeta y abandonar la tierra. Es lo opuesto del tercer "siddhi" o poder.
+4. *Liviandad. Iaghima*. Es el poder subyacente en el fenómeno de levitación. La capacidad del adepto para contrarrestar la fuerza <pin lang="en">347</pin> de atracción del planeta y abandonar la tierra. Es lo opuesto del tercer "siddhi" o poder.
 5. *Logro del objetivo. prapti*. Es la capacidad del yogui para alcanzar su meta, extender su conocimiento a cualquier localidad, llegar a todo o a cualquier lugar que desee. Se observará que esto tiene aplicación en todos los planos, en los tres mundos, como la tienen, en realidad, todos los siddhis.
 6. *Voluntad irresistible. prakampa*. Es algo que se define como soberanía, y la fuerza impulsora irresistible que posee todo adepto para hacer fructificar sus planes, realizar sus deseos y completar sus impulsos. Esta cualidad es la característica distintiva del mago negro y del blanco. Necesariamente se manifiesta con mayor fuerza en ese plano de los tres mundos que refleja el aspecto voluntad de la divinidad, el plano mental. Todos los elementos obedecen a esta fuerza de la voluntad, tal como la emplea el yogui.
 7. *Poder creador. isatva*. Concierne al poder del adepto para manipular los elementos en sus cinco formas, producir con ellos realidades objetivas y así crear en el plano físico.
-8. *El poder de mando. vasitva*. El mago, al controlar las fuerzas elementales de la naturaleza utiliza este poder, base del mantra yoga, la yoga del sonido o del verbo creador. El poder creador, el séptimo siddhi, concierne a los elementos y a su vitalización, a fin de convertirse en "causa efectiva"; este [i348] octavo siddhi concierne al poder de la Palabra para impulsar a las fuerzas constructoras de la naturaleza a la iniciación de una actividad coherente, a fin de producir formas.
+8. *El poder de mando. vasitva*. El mago, al controlar las fuerzas elementales de la naturaleza utiliza este poder, base del mantra yoga, la yoga del sonido o del verbo creador. El poder creador, el séptimo siddhi, concierne a los elementos y a su vitalización, a fin de convertirse en "causa efectiva"; este <pin lang="en">348</pin> octavo siddhi concierne al poder de la Palabra para impulsar a las fuerzas constructoras de la naturaleza a la iniciación de una actividad coherente, a fin de producir formas.
 
-Cuando estos ocho poderes están activos, traen como resultado el noveno, la perfección corporal, porque el adepto puede construir un vehículo adaptado a sus necesidades; puede hacer con él lo que quiere y por su intermedio lograr su objetivo. Finalmente, el décimo poder se verá en plena manifestación, pues ninguna forma entorpece ni obstaculiza la fructificación de la voluntad del yogui, quedando liberado de la forma y sus cualidades. [e223]
+Cuando estos ocho poderes están activos, traen como resultado el noveno, la perfección corporal, porque el adepto puede construir un vehículo adaptado a sus necesidades; puede hacer con él lo que quiere y por su intermedio lograr su objetivo. Finalmente, el décimo poder se verá en plena manifestación, pues ninguna forma entorpece ni obstaculiza la fructificación de la voluntad del yogui, quedando liberado de la forma y sus cualidades. <pin lang="es">223</pin>
 
 ### 46. Simetría de forma, belleza de color, dureza y densidad del diamante, constituyen la perfección corporal. {#af46}
 
-Aunque muchos comentadores dan a este aforismo una interpretación puramente física, encierra un concepto mucho más amplio. Nos expone, en términos cuidadosamente escogidos (de los cuales el lenguaje moderno no es más que una paráfrasis, carente de la expresión que imparte plenamente la idea), la condición del tercer aspecto o forma, a través del cual se manifiesta el segundo aspecto o crístico. Este tercer aspecto es en sí triple, sin embargo forma un todo coherente, de allí que se emplean cuatro términos para expresar este yo personal inferior. El ocultista nunca se ocupa del vehículo físico denso. Considera al cuerpo etérico como la verdadera forma; el denso es simplemente el material para llenar esa forma. El cuerpo etérico es la verdadera forma sustancial, la estructura, el armazón, al cual se amolda [i349] necesariamente el cuerpo físico. La forma debe ser simétrica y construida exactamente de acuerdo al número y diseño; su diferencia básica será la exactitud geométrica de sus muchas unidades. El cuerpo emocional o astral, como se sabe, se caracteriza por su colorido, y de acuerdo a la etapa de desenvolvimiento, así será el color, bello, claro y traslúcido, o feo, oscuro y opaco. El cuerpo astral de un adepto es de belleza radiante, carente de los colores de baja vibración. El aspecto más elevado del yo personal, el cuerpo mental, vibrará en armonía con el aspecto más elevado del espíritu, que es voluntad, poder o fortaleza -cualesquiera de estas palabras son apropiadas. Fortaleza, belleza y forma, reflejos de poder, amor y actividad, son las características del cuerpo de manifestación de todo hijo de Dios que haya entrado en su reino. Luego, la cuarta expresión imparte la idea de unidad, la coherencia de los tres, de manera que actúa como un todo y no en forma independiente y separada. Por lo tanto, el hombre es el Tres en Uno y el Uno en Tres, como su Padre en los Cielos; pues "está hecho a imagen de Dios".
+Aunque muchos comentadores dan a este aforismo una interpretación puramente física, encierra un concepto mucho más amplio. Nos expone, en términos cuidadosamente escogidos (de los cuales el lenguaje moderno no es más que una paráfrasis, carente de la expresión que imparte plenamente la idea), la condición del tercer aspecto o forma, a través del cual se manifiesta el segundo aspecto o crístico. Este tercer aspecto es en sí triple, sin embargo forma un todo coherente, de allí que se emplean cuatro términos para expresar este yo personal inferior. El ocultista nunca se ocupa del vehículo físico denso. Considera al cuerpo etérico como la verdadera forma; el denso es simplemente el material para llenar esa forma. El cuerpo etérico es la verdadera forma sustancial, la estructura, el armazón, al cual se amolda <pin lang="en">349</pin> necesariamente el cuerpo físico. La forma debe ser simétrica y construida exactamente de acuerdo al número y diseño; su diferencia básica será la exactitud geométrica de sus muchas unidades. El cuerpo emocional o astral, como se sabe, se caracteriza por su colorido, y de acuerdo a la etapa de desenvolvimiento, así será el color, bello, claro y traslúcido, o feo, oscuro y opaco. El cuerpo astral de un adepto es de belleza radiante, carente de los colores de baja vibración. El aspecto más elevado del yo personal, el cuerpo mental, vibrará en armonía con el aspecto más elevado del espíritu, que es voluntad, poder o fortaleza -cualesquiera de estas palabras son apropiadas. Fortaleza, belleza y forma, reflejos de poder, amor y actividad, son las características del cuerpo de manifestación de todo hijo de Dios que haya entrado en su reino. Luego, la cuarta expresión imparte la idea de unidad, la coherencia de los tres, de manera que actúa como un todo y no en forma independiente y separada. Por lo tanto, el hombre es el Tres en Uno y el Uno en Tres, como su Padre en los Cielos; pues "está hecho a imagen de Dios".
 
-Dos palabras emplean los traductores para expresar esta idea de fuerza compacta coherente, por ejemplo, diamante y rayo. El ser humano que ha recibido la más elevada de nuestras iniciaciones planetarias, es denominado "alma diamantina“ -el hombre que puede trasmitir perfectamente la luz blanca pura, y reflejar los colores del arco iris, los siete colores de la escala cromática. Su personalidad es conocida por el mismo término, [i350] porque se ha convertido en transmisora de la luz o radiación interna.
+Dos palabras emplean los traductores para expresar esta idea de fuerza compacta coherente, por ejemplo, diamante y rayo. El ser humano que ha recibido la más elevada de nuestras iniciaciones planetarias, es denominado "alma diamantina“ -el hombre que puede trasmitir perfectamente la luz blanca pura, y reflejar los colores del arco iris, los siete colores de la escala cromática. Su personalidad es conocida por el mismo término, <pin lang="en">350</pin> porque se ha convertido en transmisora de la luz o radiación interna.
 
-El término "rayo" es igualmente expresivo, porque da la idea [e224] de fuerza eléctrica. Todo lo que podemos conocer de Dios o del hombre, es la cualidad de su energía, según la manifieste como fuerza y actividad, de allí que en La Doctrina Secreta, al aspecto más elevado de la divinidad se lo llama fuego eléctrico.
+El término "rayo" es igualmente expresivo, porque da la idea <pin lang="es">224</pin> de fuerza eléctrica. Todo lo que podemos conocer de Dios o del hombre, es la cualidad de su energía, según la manifieste como fuerza y actividad, de allí que en La Doctrina Secreta, al aspecto más elevado de la divinidad se lo llama fuego eléctrico.
 
 ### 47. El dominio sobre los sentidos se obtiene por la meditación concentrada en su naturaleza, atributos peculiares, egotismo, penetrabilidad y propósito útil. {#af47}
 
@@ -1369,30 +1369,30 @@ El [Af. 44](#af44) trata muy extensamente de la objetividad y naturaleza de las 
 
 Por lo tanto, cuando el estudiante analiza los sentidos, los considera en quíntuple vinculación, y también en relación con sus contrapartes en los planos astral y mental. Las cinco divisiones son:
 
-1. **Su naturaleza**. Estudia cada sentido en su doble condición, la de instrumento externo [i351] y su capacidad interna para responder a ciertos impactos vibratorios. Sabe por ejemplo, por qué el órgano del sentido llamado ojo, vibra a los impactos que producen la vista, pero no responde a los impactos que producen el olfato. Por lo tanto discrimina entre los sentidos, aprendiendo a seguir el impulso vibratorio hasta su fuente de origen, por una de las cinco líneas posibles de acercamiento, haciéndolo inteligentemente y no a ciegas.
+1. **Su naturaleza**. Estudia cada sentido en su doble condición, la de instrumento externo <pin lang="en">351</pin> y su capacidad interna para responder a ciertos impactos vibratorios. Sabe por ejemplo, por qué el órgano del sentido llamado ojo, vibra a los impactos que producen la vista, pero no responde a los impactos que producen el olfato. Por lo tanto discrimina entre los sentidos, aprendiendo a seguir el impulso vibratorio hasta su fuente de origen, por una de las cinco líneas posibles de acercamiento, haciéndolo inteligentemente y no a ciegas.
 2. **Sus atributos peculiares.** Estudia la cualidad de los sentidos, haciendo hincapié, no tanto sobre el sentido particular implicado (del que ya nos ocupamos), sino sobre el atributo peculiar del sentido y de aquello para lo cual da la clave en el macrocosmos.
 3. **Egotismo**. Se refiere a la facultad de expresar el "yo", que caracteriza tan preeminentemente al ser humano, apareciendo el sexto sentido, la mente, como intérprete y sintetizador de los otros cinco. Esta capacidad del ser humano le permite decir: "yo veo, yo huelo", cosa que no puede hacer el animal.
-4. **Compenetrabilidad**. Todos los sentidos tienen la capacidad de expandirse infinitamente, y cuando cada sentido es seguido y [e225] utilizado conscientemente, puede guiar al hombre en tres principales direcciones:
+4. **Compenetrabilidad**. Todos los sentidos tienen la capacidad de expandirse infinitamente, y cuando cada sentido es seguido y <pin lang="es">225</pin> utilizado conscientemente, puede guiar al hombre en tres principales direcciones:
    1. Al centro de todas las cosas, regreso al corazón de Dios.
    2. A la íntima comunicación con su semejante, poniéndolo en armonía con él, cuando así lo desea.
    3. A hacer contacto con todas las formas.
  <p>
- [i352] Para el hombre común no existe más que lo que puede oír, tocar, ver, probar y oler, siendo los únicos cinco modos por los cuales puede conocer. Para él solo existen cinco respuestas posibles al hacer contacto con cualquier tipo de vibración; en nuestro sistema solar no existe más que energía vibratoria, Dios en movimiento activo. Estos cinco métodos lo ponen en armonía con los cinco elementos, pero cuando el aspirante se da cuenta de ello, tiene ante sí infinitas posibilidades. Posteriormente, al hombre avanzado, se le presenta otra y más elevada escala de vibraciones, cuando puede utilizar la mente, no sólo como unificadora de los cinco sentidos sino como sexto sentido. Este es el objetivo de todas las prácticas de Raja Yoga. Por medio de la mente se llega a conocer el reino del alma; así como por medio de los sentidos se establece contacto con el mundo objetivo.
+ <pin lang="en">352</pin> Para el hombre común no existe más que lo que puede oír, tocar, ver, probar y oler, siendo los únicos cinco modos por los cuales puede conocer. Para él solo existen cinco respuestas posibles al hacer contacto con cualquier tipo de vibración; en nuestro sistema solar no existe más que energía vibratoria, Dios en movimiento activo. Estos cinco métodos lo ponen en armonía con los cinco elementos, pero cuando el aspirante se da cuenta de ello, tiene ante sí infinitas posibilidades. Posteriormente, al hombre avanzado, se le presenta otra y más elevada escala de vibraciones, cuando puede utilizar la mente, no sólo como unificadora de los cinco sentidos sino como sexto sentido. Este es el objetivo de todas las prácticas de Raja Yoga. Por medio de la mente se llega a conocer el reino del alma; así como por medio de los sentidos se establece contacto con el mundo objetivo.
  </p>
 
 5. **Propósito útil**. Cuando se comprende la relación de los cinco sentidos con los cinco elementos y se estudia y domina la Ley de Vibración, el adepto puede dedicar todos los poderes de su naturaleza a propósitos útiles. No sólo entra en comunicación con todas las partes de su propia naturaleza, afines o análogas a la naturaleza de Dios, según Se manifiesta en el macrocosmos. 
 
 ### 48. Como resultado de esta perfección se obtiene rapidez de acción, como la de la mente, la percepción interdependiente de los órganos y el dominio sobre la sustancia raíz. {#af48}
 
-Hemos considerado los diversos resultados del proceso de [i353] la meditación cuando se perfecciona y llega al punto culminante. El vidente ha llegado a la consumación del proceso de alineamiento. Su triple yo personal ha sido purificado, reajustado y controlado. Cada uno de los tres cuerpos vibra a tono con la nota del ego o yo superior, que a su vez está en proceso de sincronizarse con la mónada o yo divino, el espíritu en su propio plano. El gran "Hijo de la Mente", el pensador en los niveles superiores del plano mental, es ahora el factor dominante; el resultado de este dominio es triple, y cada efecto se manifiesta en todos los planos, pero principalmente en uno. Tales resultados son:
+Hemos considerado los diversos resultados del proceso de <pin lang="en">353</pin> la meditación cuando se perfecciona y llega al punto culminante. El vidente ha llegado a la consumación del proceso de alineamiento. Su triple yo personal ha sido purificado, reajustado y controlado. Cada uno de los tres cuerpos vibra a tono con la nota del ego o yo superior, que a su vez está en proceso de sincronizarse con la mónada o yo divino, el espíritu en su propio plano. El gran "Hijo de la Mente", el pensador en los niveles superiores del plano mental, es ahora el factor dominante; el resultado de este dominio es triple, y cada efecto se manifiesta en todos los planos, pero principalmente en uno. Tales resultados son:
 
-1. **Rapidez de acción como la de la mente**. Empleamos frecuentemente la frase “rápido como el pensamiento” cuando queremos [e226] dar idea de la máxima rapidez. La actividad del yogui en el plano físico, sincronizada con sus procesos mentales, sus decisiones instantáneas y sus fines rápidamente alcanzados, hacen que su vida en el plano físico se caracterice por una actividad muy sorprendente y por sus asombrosos resultados. De él puede decirse lo mismo que decimos del Creador: "Dios meditó, visualizó, habló, y los mundos fueron hechos".
+1. **Rapidez de acción como la de la mente**. Empleamos frecuentemente la frase “rápido como el pensamiento” cuando queremos <pin lang="es">226</pin> dar idea de la máxima rapidez. La actividad del yogui en el plano físico, sincronizada con sus procesos mentales, sus decisiones instantáneas y sus fines rápidamente alcanzados, hacen que su vida en el plano físico se caracterice por una actividad muy sorprendente y por sus asombrosos resultados. De él puede decirse lo mismo que decimos del Creador: "Dios meditó, visualizó, habló, y los mundos fueron hechos".
 2. **Percepción independiente de los órganos**. El adepto no depende de los órganos de los sentidos ni del sexto sentido, la mente, para adquirir conocimiento.
- La intuición se ha desarrollado en él, hasta convertirse en instrumento utilizable; la directa captación de todo conocimiento, independiente de la facultad [i354] de conocimiento o mente razonadora, es su privilegio y derecho. Ya no necesita emplear la mente para comprender la realidad, ni los sentidos como medio de contacto: empleará los seis, pero de manera diferente. Utilizará la mente para trasmitir al cerebro los deseos, planes y propósitos del Maestro, el Cristo interno; los cinco sentidos trasmitirán distintos tipos de energía a los objetivos elegidos. Se abre aquí un vasto campo de estudio para el investigador interesado. El ojo es uno de los transmisores más potentes de energía, y este conocimiento dio pábulo, en la antigüedad, a la creencia acerca del mal de ojo. Mucho debe descubrirse respecto a la vista, porque incluye no sólo la visión física, sino el desarrollo del tercer ojo, la clarividencia, la visión espiritual perfecta, y así sucesivamente hasta el inconcebible misterio que encierran los términos: "el Ojo que todo lo ve" y "el Ojo de Shiva".
+ La intuición se ha desarrollado en él, hasta convertirse en instrumento utilizable; la directa captación de todo conocimiento, independiente de la facultad <pin lang="en">354</pin> de conocimiento o mente razonadora, es su privilegio y derecho. Ya no necesita emplear la mente para comprender la realidad, ni los sentidos como medio de contacto: empleará los seis, pero de manera diferente. Utilizará la mente para trasmitir al cerebro los deseos, planes y propósitos del Maestro, el Cristo interno; los cinco sentidos trasmitirán distintos tipos de energía a los objetivos elegidos. Se abre aquí un vasto campo de estudio para el investigador interesado. El ojo es uno de los transmisores más potentes de energía, y este conocimiento dio pábulo, en la antigüedad, a la creencia acerca del mal de ojo. Mucho debe descubrirse respecto a la vista, porque incluye no sólo la visión física, sino el desarrollo del tercer ojo, la clarividencia, la visión espiritual perfecta, y así sucesivamente hasta el inconcebible misterio que encierran los términos: "el Ojo que todo lo ve" y "el Ojo de Shiva".
 
  Las manos son factores potentes en todo trabajo mágico de curación, y la utilización del sentido del tacto es una ciencia esotérica. La sublimación del sentido del oído y su empleo para oír la Voz del Silencio o la música de las esferas, es un sector de la enseñanza oculta del tipo más profundo, y esos adeptos que se han especializado en las ciencias de la vista y del sonido son algunos de los más eruditos y avanzados de la Jerarquía.
 
- Los otros sentidos son también susceptibles de profundo desenvolvimiento, pero están peculiarmente ocultos en [i355] los misterios de la iniciación y nada más puede decirse acerca de ellos. Los tres sentidos, oído, tacto y vista, son las tres características de las tres razas humanas y de los tres planos de nuestros tres mundos.
+ Los otros sentidos son también susceptibles de profundo desenvolvimiento, pero están peculiarmente ocultos en <pin lang="en">355</pin> los misterios de la iniciación y nada más puede decirse acerca de ellos. Los tres sentidos, oído, tacto y vista, son las tres características de las tres razas humanas y de los tres planos de nuestros tres mundos.
 
  |          |         |               |       |                                 |
  | -------- | ------- | ------------- | ----- | ------------------------------- |
@@ -1401,10 +1401,10 @@ Hemos considerado los diversos resultados del proceso de [i353] la meditación c
  | 3. Vista | Aria    | Cuerpo mental | Ojo   | Respuesta a la visión.          |
 
  <p>
- [e227] El tercer sentido afecta principalmente a nuestra raza, de allí las palabras del profeta: "Donde no hay visión los pueblos perecen". El desarrollo de la vista y el logro de la percepción espiritual constituyen el gran objetivo de nuestra raza y de todo el Raja Yoga. El místico llamará a esto "iluminación", el ocultista "visión pura", siendo una y la misma cosa. Los otros dos sentidos están todavía velados; su verdadero significado aparecerá en el transcurso de la sexta y séptima razas, que seguirán a la nuestra, y su verdadera relación es con el plano búdico o intuitivo y el átmico o espiritual respectivamente.
+ <pin lang="es">227</pin> El tercer sentido afecta principalmente a nuestra raza, de allí las palabras del profeta: "Donde no hay visión los pueblos perecen". El desarrollo de la vista y el logro de la percepción espiritual constituyen el gran objetivo de nuestra raza y de todo el Raja Yoga. El místico llamará a esto "iluminación", el ocultista "visión pura", siendo una y la misma cosa. Los otros dos sentidos están todavía velados; su verdadero significado aparecerá en el transcurso de la sexta y séptima razas, que seguirán a la nuestra, y su verdadera relación es con el plano búdico o intuitivo y el átmico o espiritual respectivamente.
  </p>
 
-3. **Dominio sobre la sustancia raíz**. Esta sustancia raíz es el pradhana; a veces se la denomina la raíz de todo, sustancia primordial, materia raíz. Rama Prasad, en su traducción y comentario, dice lo siguiente: "Dominio sobre pradhana significa el poder de controlar todas [i356] las modificaciones de prakriti. Estas tres realizaciones... se obtienen venciendo la apariencia sustantiva de los cinco instrumentos independientes de sensación".
+3. **Dominio sobre la sustancia raíz**. Esta sustancia raíz es el pradhana; a veces se la denomina la raíz de todo, sustancia primordial, materia raíz. Rama Prasad, en su traducción y comentario, dice lo siguiente: "Dominio sobre pradhana significa el poder de controlar todas <pin lang="en">356</pin> las modificaciones de prakriti. Estas tres realizaciones... se obtienen venciendo la apariencia sustantiva de los cinco instrumentos independientes de sensación".
 
 Es interesante observar que estas tres realizaciones demuestran:
 
@@ -1418,17 +1418,17 @@ Para finalizar, podría observarse que esta capacidad es en sí relativa, porque
 
 ### 49. El hombre que puede discriminar entre alma y espíritu, alcanza la supremacía sobre todas las condiciones y llega ser omnisciente. {#af49}
 
-El comentario de Charles Johnston, sobre este aforismo, describe muy bien al hombre que puede lograr esto, y la belleza de su [i357] pensamiento se descubrirá al analizar sus palabras:
+El comentario de Charles Johnston, sobre este aforismo, describe muy bien al hombre que puede lograr esto, y la belleza de su <pin lang="en">357</pin> pensamiento se descubrirá al analizar sus palabras:
 
-> El hombre espiritual está envuelto en la red de sus emociones, [e228] deseos, temores, ambiciones, pasiones y obstaculizado por formas mentales de separatividad y de materialismo. Cuando estas redes se rompen y se superan totalmente dichos obstáculos, entonces el hombre espiritual surge fuerte, poderoso y sabio de su propio y amplio mundo. Utiliza sus poderes divinos con alcance y energías divinas, actuando conjuntamente con los seres divinos, diciéndosele: “Eres ahora un discípulo capaz de permanecer, oír, ver y hablar. Has vencido el deseo y logrado el autoconocimiento, has visto a tu alma en su florecimiento y la has reconocido, y has oído la Voz del Silencio".
+> El hombre espiritual está envuelto en la red de sus emociones, <pin lang="es">228</pin> deseos, temores, ambiciones, pasiones y obstaculizado por formas mentales de separatividad y de materialismo. Cuando estas redes se rompen y se superan totalmente dichos obstáculos, entonces el hombre espiritual surge fuerte, poderoso y sabio de su propio y amplio mundo. Utiliza sus poderes divinos con alcance y energías divinas, actuando conjuntamente con los seres divinos, diciéndosele: “Eres ahora un discípulo capaz de permanecer, oír, ver y hablar. Has vencido el deseo y logrado el autoconocimiento, has visto a tu alma en su florecimiento y la has reconocido, y has oído la Voz del Silencio".
 
 La maravillosa síntesis de la enseñanza, en ninguna parte es más evidente que en este aforismo, porque el punto alcanzado es de un orden más elevado que el mencionado en el [Libro II, Af. 45](libro2#af45), es una condición intermediaria entre la mencionada en este último y la del [Libro IV, Afs. 30 al 34](libro4#af30).
 
-En el [Libro I, Af. 4](libro1#af4), vimos que el verdadero hombre está atrapado en las redes de la naturaleza síquica, y la luz que hay en él está velada y oculta. Al aprender a discriminar entre el verdadero yo y el yo personal inferior, se desenreda y ve la luz en él, quedando liberado. Lograda la liberación, desarrollados los poderes del alma y alcanzada la maestría, se abren ante él experiencias y conocimientos más vastos y amplios. Empieza a expandir su conciencia de lo planetario a lo solar, y la conciencia [i358] grupal puede desarrollarse en conciencia divina. El primer paso para ello está indicado en el aforismo que estamos considerando; el mismo paso es señalado y tratado más extensamente en el Libro Cuarto. No se dan las reglas para esta expansión porque conciernen al desarrollo del Maestro y al desenvolvimiento del Cristo, hasta alcanzar ese estado superior del ser que Le es posible obtener; pero el Libro Cuarto se ocupa de las etapas preparatorias e insinúa otras posibilidades. En el que ahora tratamos, se mencionan requisitos básicos: la discriminación entre alma o el Cristo interno, y el aspecto Espíritu o Padre. La actividad inteligente ha sido demostrada, basada en el desenvolvimiento de la naturaleza amor. Entonces podrá desarrollar sin peligro el espíritu o aspecto voluntad y entregar el poder en manos de Cristo.
+En el [Libro I, Af. 4](libro1#af4), vimos que el verdadero hombre está atrapado en las redes de la naturaleza síquica, y la luz que hay en él está velada y oculta. Al aprender a discriminar entre el verdadero yo y el yo personal inferior, se desenreda y ve la luz en él, quedando liberado. Lograda la liberación, desarrollados los poderes del alma y alcanzada la maestría, se abren ante él experiencias y conocimientos más vastos y amplios. Empieza a expandir su conciencia de lo planetario a lo solar, y la conciencia <pin lang="en">358</pin> grupal puede desarrollarse en conciencia divina. El primer paso para ello está indicado en el aforismo que estamos considerando; el mismo paso es señalado y tratado más extensamente en el Libro Cuarto. No se dan las reglas para esta expansión porque conciernen al desarrollo del Maestro y al desenvolvimiento del Cristo, hasta alcanzar ese estado superior del ser que Le es posible obtener; pero el Libro Cuarto se ocupa de las etapas preparatorias e insinúa otras posibilidades. En el que ahora tratamos, se mencionan requisitos básicos: la discriminación entre alma o el Cristo interno, y el aspecto Espíritu o Padre. La actividad inteligente ha sido demostrada, basada en el desenvolvimiento de la naturaleza amor. Entonces podrá desarrollar sin peligro el espíritu o aspecto voluntad y entregar el poder en manos de Cristo.
 
 Tres palabras servirán para proyectar luz sobre este proceso de desenvolvimiento.
 
-El primer gran conocimiento que el aspirante debe obtener es la omnipresencia, comprender su unidad con todo y la unicidad de su alma con las demás almas; descubrir a Dios en su propio corazón y en cada forma de vida. Luego, como iniciado, alcanzar la omnisciencia, es decir, el omniconocimiento, y las Aulas del Aprendizaje y de la Sabiduría le entregan sus secretos. [e229] Deviene un Cristo, un conocedor de todas las cosas, que sabe lo que hay en el corazón del Padre y en el corazón de los hombres. Finalmente, con el tiempo, alcanza la omnipotencia u omnipoder, entonces cuando las llaves del Cielo se entregan al Hijo del Hombre, todo poder será suyo. [i359]
+El primer gran conocimiento que el aspirante debe obtener es la omnipresencia, comprender su unidad con todo y la unicidad de su alma con las demás almas; descubrir a Dios en su propio corazón y en cada forma de vida. Luego, como iniciado, alcanzar la omnisciencia, es decir, el omniconocimiento, y las Aulas del Aprendizaje y de la Sabiduría le entregan sus secretos. <pin lang="es">229</pin> Deviene un Cristo, un conocedor de todas las cosas, que sabe lo que hay en el corazón del Padre y en el corazón de los hombres. Finalmente, con el tiempo, alcanza la omnipotencia u omnipoder, entonces cuando las llaves del Cielo se entregan al Hijo del Hombre, todo poder será suyo. <pin lang="en">359</pin>
 
 ### 50. La desapasionada actitud hacia esta realización y todos los poderes del alma, hace que quien está libre de las semillas de la esclavitud, alcance el estado de unidad aislada. {#af50}
 
@@ -1436,3 +1436,91 @@ La unidad aislada, que aquí se refiere, es la total separación de todos los as
 
 Un adecuado sentido de valores ha sido establecido y los poderes desarrollados y las percepciones alcanzadas contienen "las semillas de la esclavitud", por lo tanto, el verdadero yogui no se ocupa de ellas. Prestando servicio a voluntad, percibirá lo que necesita y también empleará a voluntad los poderes ocultos, permaneciendo desapegado y libre de toda limitación kármica.
 
+### 51. Debe haber rechazo absoluto de las tentaciones de todas las formas, incluso la celestial, pues aún es posible la repetición de contactos malignos. {#af51}
+
+La traducción de Rama Prasad es iluminadora y digna de mención. Dice:
+
+> Cuando las deidades que presiden, invitan, no debe <pin lang="en">360</pin> haber apego ni una sonrisa de satisfacción, pues el contacto con lo indeseable es nuevamente posible
+
+La interpretación de Dvivedi nos da otro punto de vista: "Debería establecerse la diferencia entre el placer o el orgullo, ante el llamado de las potestades de distintos lugares, pues existe la posibilidad de que se repita el mal".
+
+El yogui o discípulo ha alcanzado su objetivo. Se ha desligado (por medio del desapasionamiento y de la discriminación) de las redes de la forma, y está libre y emancipado. Pero debe mantenerse en guardia, porque "quien cree que está firmemente de pie debe tener cuidado de no caer". La vida de la forma siempre atrae, y las seducciones de la gran ilusión están siempre presentes. El alma emancipada debe apartar sus ojos del llamado de las <pin lang="es">230</pin> "deidades que presiden" (esas vidas que en los tres mundos forman la totalidad de la vida del plano) y fijarlos en esos aspectos más espirituales que constituyen la vida de Dios mismo.
+
+Hasta el reino del alma, y la "Voz de los Dioses", como se la denomina, contiene latente las simientes del apego; por lo tanto, apartándose de todo lo adquirido y abandonando todo pensamiento de las perfecciones alcanzadas y poderes desarrollados, el Hijo de Dios, el Cristo en manifestación, nuevamente avanza hacia una meta más elevada. En cada etapa del sendero se enuncia el precepto: "Olvidando las cosas que quedan detrás, sigue adelante". (Fil. 3:13). Cada nueva iniciación marca simplemente <pin lang="en">361</pin> el comienzo de un nuevo ciclo de esfuerzo.
+
+Los comentadores de este aforismo señalan que hay cuatro clases de chelas o discípulos, y son:
+
+1. Aquellos cuya luz recién comienza a iluminar, denominados "cumplidores de las prácticas" porque recién han entrado en el sendero, siendo los probacionistas y aspirantes.
+2. Aquellos cuya intuición va despertando y manifiestan el correspondiente desarrollo del poder psíquico. Esta etapa es muy peligrosa, porque los discípulos son susceptibles de ser seducidos por las posibilidades de adquirir el poder que brinda la facultad síquica. Tienden a alucinarse y a creer que el poder psíquico indica crecimiento y desenvolvimiento espiritual, y no es así.
+3. Los discípulos que han vencido las atracciones de los sentidos y no pueden ser engañados por el aspecto forma en los tres mundo. Han vencido los sentidos y han conquistado la naturaleza forma.
+4. Aquellos que han trascendido todo lo anterior y se mantienen firmes en la verdadera conciencia espiritual. Éstos son los iluminados que han progresado a través de las siete etapas de iluminación. [(Véase Libro II, Af. 27)](libro2#af27).
+
+Si el estudiante relee el [Af. 26](#af26) de este Libro Tercero y su comentario, obtendrá alguna idea del carácter de los mundos, de la forma y de las deidades que los presiden, cuyas voces tratan de desviar al aspirante del camino y llevarlo al reino de la ilusión. Además hallará interesante establecer el contraste y comparar los cuatro primeros tipos de espíritus, enumerados <pin lang="en">362</pin> en ese aforismo, con los cuatro tipos de discípulos. Lo que existe en los tres mundos es un reflejo de lo que existe en las regiones celestiales, y mucha comprensión se obtendrá del gran aforismo hermético "como es arriba, así es abajo". Ese reflejo es lo que constituye el mal; ese aspecto inverso de la realidad constituye la gran ilusión, de lo cual no se ocupan los hijos de Dios. Constituyen el mal en <pin lang="es">231</pin> lo que a ellos concierne, pero no en otro sentido. Las formas de vida en estos mundos y las vidas que animan a estas formas son buenas y correctas en sí, y siguen su propio sendero evolutivo; pero su objetivo inmediato y estado de conciencia no están sincronizados con los del discípulo en evolución, por lo tanto no debe haber intercambio con ellos.
+
+### 52. El conocimiento intuitivo se desarrolla por el empleo de la facultad discriminadora, cuando hay concentración enfocada en los instantes y su continua sucesión. {#af52}
+
+Se ha dicho que la total comprensión de la Ley de los Ciclos llevaría al hombre a un elevado grado de iniciación. Esta Ley de Periodicidad subyace en todos los procesos de la naturaleza; su estudio sacará al hombre del mundo de los efectos objetivos y lo llevará al de las causas subjetivas. Se ha dicho también que el tiempo es simplemente una sucesión de estados de conciencia, y esto es verdad respecto a un átomo, un hombre o un Dios. Esta verdad subyace en los grandes sistemas de la ciencia mental y de la Christian Science de Occidente, y en muchas <pin lang="en">363</pin> filosofías de Oriente. Este aforismo da la clave de la relación que existe entre materia y mente o entre sustancia y el alma que la anima, lo cual se comprenderá si consideramos las palabras de un comentador indú, que dice:
+
+> Así como el átomo es una sustancia en la cual lo diminuto alcanza su límite, así un instante es una fracción de tiempo en que lo diminuto alcanza igualmente su límite, o un instante es el tiempo que tarda un átomo en abandonar la posición que ocupa en el espacio y llegar al punto siguiente. La sucesión de instantes es la no cesación de su resplandor
+
+Cuando nos damos cuenta de que un átomo y un instante son una y la misma cosa, y que detrás de ellos está el conocedor de ambos, tenemos el indicio de todos los estados de conciencia y de la naturaleza de la energía. También habremos alcanzado la verdadera comprensión del Eterno Ahora y la exacta apreciación del significado del pasado, presente y futuro. Se dice que todo ello puede obtenerse por la meditación concentrada en el tiempo y sus unidades.
+
+Será oportuno indicar que las distintas clases de concentración a que se refiere este Libro Tercero, no son aplicables o apropiadas a todos los tipos de aspirantes. Los hombres pertenecen a siete tipos principales, cuya característica y naturaleza distintivas y cualidades precisas, los predisponen a ciertos y definidos aspectos del sendero de retorno. Algunos se inclinan por las matemáticas y <pin lang="es">232</pin> tienen tendencia a la geometría divina y a los conceptos de espacio y tiempo, los cuales sabiamente seguirán el método de desarrollar el conocimiento <pin lang="en">364</pin> intuitivo de que trata este aforismo. Otros lo hallarán muy difícil y harían bien en ocuparse de otros tipos de meditación concentrada.
+
+### 53. De este conocimiento intuitivo nace la capacidad de distinguir (entre todos los seres) y de conocer su especie, sus cualidades y el lugar que ocupan en el espacio. {#af53}
+
+Las dificultades de este aforismo serán obviadas si damos una paráfrasis libre.
+
+> Mediante el desarrollo de la intuición, surgirá el conocimiento exacto de las fuentes de la vida manifestada, de las características o cualidades, y del lugar que ocupa dentro del todo
+
+Del principio al fin, Los Aforismos de la Yoga ponen de manifiesto que las triplicidades divinas se hallan en todas partes, y que cada forma que anima una vida (nada más hay en manifestación) debe ser conocida como:
+
+1. **Vida**. La vida de Dios emana de su fuente por medio de siete corrientes, emanaciones o “alientos"; cada forma en el mundo objetivo es la expresión de una vida de una de estas corrientes. El desarrollo de la intuición permite al vidente conocer la naturaleza del átomo de la vida. Esto se deduce de la palabra "género". El ocultista moderno preferiría la palabra "rayo" y el cristiano neuma o espíritu, pero la idea es la misma.
+2. **Conciencia o alma**. Todas estas formas vivientes de vida divina son conscientes, aunque todos los estados de conciencia no son los mismos, sino que varían desde la vida del átomo de sustancia, según está limitado <pin lang="en">365</pin> y circunscripto, hasta la vida de un Logos solar. El estado de respuesta consciente de todas las formas a su medio ambiente, exotérico e invisible, produce las diversas características además de las diferencias, debidas al
+   1. rayo
+   2. plano de manifestación
+   3. grado de vibración
+   4. etapa de desarrollo
+ y estas características forman la cualidad a que hace referencia este aforismo. Éste es el aspecto subjetivo, en contraposición a lo objetivo y a lo esencial.
+
+3. **Forma o cuerpo**. Es el aspecto exotérico que surge del subjetivo, como resultado del anhelo espiritual. El lugar que ocupa en el espacio es esa parte, en el cuerpo del Hombre celestial, donde <pin lang="es">233</pin> un átomo o forma está ubicado. Aquí debe recordarse que para el estudiante ocultista "el espacio es una entidad" (La Doctrina Secreta, T. II, pág. 233.) y esta entidad es la misma que el Cristo cósmico, el "cuerpo de Cristo", mencionado por San Pablo en I, Co. 12:27.
+
+Por lo tanto este aforismo aclara que el yogui liberado, que ha desarrollado la intuición, puede conocer todo acerca de las formas de la vida, lo cual implica el conocimiento de:
+
+| 1. Género    | 2. Cualidad          | 3. Lugar en el Espacio.                 |
+| ------------ | -------------------- | --------------------------------------- |
+| Rayo         | Carácter             | Lugar en el cuerpo del Hombre celestial |
+| Espíritu     | Alma                 | Cuerpo.                                 |
+| Aspecto vida | Conciencia           | Forma.                                  |
+| Esencia      | Naturaleza subjetiva | Forma objetiva.                         |
+
+<pin lang="en">366</pin> A este conocedor podemos aplicarle las palabras del Instructor, cuyas obras se encuentran en el archivo de la Logia:
+
+> Él, que permanece ante la Chispa, ve tanto la llama como el humo
+>
+> Para él, la sombra vela el reflejo y, sin embargo ve la luz
+>
+> Para él, lo tangible demuestra meramente lo intangible, y ambos revelan el espíritu, mientras que la forma, el color y el número pronuncian en voz alta la palabra Dios
+
+
+### 54. Este conocimiento intuitivo, el gran liberador, es omnipresente y omnisciente y abarca el pasado, el presente y el futuro, en el Eterno Ahora. {#af54}
+
+La única parte de este aforismo que no está clara, es el significado de las palabras Eterno Ahora. No es posible comprenderlas hasta haber desarrollado la conciencia del alma. Decir que el tiempo es una sucesión de estados de conciencia y que el presente se pierde instantáneamente en el pasado y se fusiona en el futuro, a medida que se experimenta, es de poca utilidad para el estudiante común. Decir que llega un momento en que la vista se pierde en la visión (cuando la suma total de las esperanzas de la vida se cumplen) en el momento de la realización, y que esto persiste siempre, e indica un estado de conciencia en el que no hay sucesión de acontecimientos ni realizaciones, es hablar en lenguaje misterioso. No obstante así es y será. Cuando el aspirante llega a su meta, conoce el verdadero significado de su inmortalidad y la verdadera naturaleza de su liberación. <pin lang="en">367</pin> Espacio y tiempo son para él términos sin sentido. La única Realidad verdadera es la gran vida central de fuerza, permaneciendo inmutable e inamovible <pin lang="es">234</pin> en el centro de las formas temporarias, cambiantes y evanescentes.
+
+"Yo soy", dice la unidad humana, y se considera como el yo y se identifica con la forma cambiante. Tiempo y espacio son para él verdaderas realidades. "Yo soy Ese", dice el aspirante, y trata de conocerse como realmente es, una palabra viviente, parte de una frase cósmica. Para él el espacio ya no existe, se conoce como omnipresente. "Yo soy Ése Yo soy", dice el alma liberada, el hombre libre, el Cristo. Ni tiempo ni espacio existen para él, y omnisciencia y omnipresencia son cualidades características.
+
+Charles Johnston al comentar este aforismo cita a Santa Colomba y dice:
+
+> Existen aquellos, aunque muy pocos, a quienes la gracia divina les ha otorgado ver con toda claridad y nitidez en un mismo momento, como bajo un rayo de sol, toda la esfera del mundo, incluyendo el océano y el firmamento que los rodea, y la parte más interna de su mente se expande maravillosamente.
+
+Sería de valor citar el breve comentario de Dvivedi, pues está bien expresado y compendia concisamente el estado de conciencia alcanzado:
+
+> En el [Af. 33](#af33) de este Libro Tercero, se ha descrito la naturaleza del Taroka-Jnana, el conocimiento que libera de las ataduras del mundo. El conocimiento discriminador descrito, <pin lang="en">368</pin> da por resultado Taraka, el conocimiento que es el fin y objetivo de la yoga. Se relaciona con todos los objetos, desde pradhana (espíritu-materia, A.A.B.) hasta los bhutas (elementos, formas, A.A.B.), y también con todas las condiciones de esos objetos. Además trae conocimiento de todas las cosas simultáneamente y es completamente independiente de las reglas comunes del conocimiento. Por lo tanto es el conocimiento más elevado que puede desear el yogui, y un índice seguro de Kaivalya (estado de absoluta unicidad, A.A.B.) cuyo resultado se describirá en el siguiente aforismo.
+
+### 55. Cuando las formas objetivas y el alma han logrado igual pureza, se alcanza la unificación, que trae como resultado la liberación. {#af55}
+
+Lo que oculta la luz del alma se ha purificado; así surge la luz de Dios. Lo que era un impedimento y un obstáculo para la plena expresión de la divinidad en manifestación, ha sido tratado en tal forma que ahora sirve como medio de expresión y de servicio adecuados. El alma puede ya actuar libre e inteligentemente en los <pin lang="es">235</pin> tres mundos, porque se ha llegado a la completa unidad entre el hombre inferior y el superior.
+
+El alma y sus vehículos forman una unidad y están unificados. Se ha alcanzado el completo alineamiento de los cuerpos, y el Hijo de Dios puede actuar libremente en la Tierra. Así ha obtenido el gran objetivo, y aplicando los ocho métodos de la yoga, el alma, por medio del <pin lang="en">369</pin> triple hombre inferior, puede manifestarse y a su vez constituir un medio de expresión para el espíritu. Se ha llevado la materia a un estado en que su vibración puede sincronizarse con la del alma; el resultado es que, por primera vez, el espíritu puede hacer sentir su presencia, porque "la materia es el vehículo para la manifestación del alma en este plano de existencia, y el alma es el vehículo para la manifestación del espíritu en una vuelta más alta de la espiral. Estos tres son una trinidad sintetizada por la vida que los compenetra a todos". Para el hombre que ha realizado esto, ya no hay renacimiento. Está libre y emancipado y puede decir con esa plena comprensión consciente del significado de las palabras:
+
+> Mi vida (la vida física inferior) se oculta en Cristo (la vida del alma) en Dios (el espíritu)". (Col. 3:3).
