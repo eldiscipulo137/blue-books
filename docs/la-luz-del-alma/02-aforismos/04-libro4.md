@@ -11,13 +11,13 @@ title: Libro IV. La iluminación
 1. Los siddhis (o poderes) superiores e inferiores, se obtienen durante la encarnación; o por las drogas, las palabras de poder, el deseo intenso o la meditación. <af book="4" af="1"/>
 2. La trasferencia de la conciencia, de un vehículo inferior a otro superior, es parte del gran proceso creador y evolutivo. <af book="4" af="2"/>
 3. Las prácticas y métodos no son la verdadera causa de la trasferencia de la conciencia, sólo sirven para eliminar obstáculos, de manera similar a como el agricultor prepara la tierra para la siembra. <af book="4" af="3"/>
-4. La conciencia del "yo soy" es responsable de la creación de los órganos mediante los cuales se disfruta del sentido de individualidad.
-5. La conciencia es una, no obstante, produce las variadas formas de los muchos.
-6. Entre las formas que la conciencia asume, sólo las que resultan de la meditación están libres de karma latente.
-7. Las actividades del alma liberada están libres de los pares de opuestos. Las de otras personas son de tres tipos.
-8. De estos tres tipos de karma emergen las formas necesarias para la fructificación de los efectos.
-9. Existe idéntica relación entre la memoria y la causa productora de efectos, aún cuando estén separadas por la especie, el tiempo y el lugar.
-10. Por ser eterno el deseo de vivir, las formas creadas por la mente carecen de principio conocido. <pin lang="en">374</pin>
+4. La conciencia del "yo soy" es responsable de la creación de los órganos mediante los cuales se disfruta del sentido de individualidad. <af book="4" af="4"/>
+5. La conciencia es una, no obstante, produce las variadas formas de los muchos. <af book="4" af="5"/>
+6. Entre las formas que la conciencia asume, sólo las que resultan de la meditación están libres de karma latente. <af book="4" af="6"/>
+7. Las actividades del alma liberada están libres de los pares de opuestos. Las de otras personas son de tres tipos. <af book="4" af="7"/>
+8. De estos tres tipos de karma emergen las formas necesarias para la fructificación de los efectos. <af book="4" af="8"/>
+9. Existe idéntica relación entre la memoria y la causa productora de efectos, aún cuando estén separadas por la especie, el tiempo y el lugar. <af book="4" af="9"/>
+10. Por ser eterno el deseo de vivir, las formas creadas por la mente carecen de principio conocido. <pin lang="en">374</pin> <af book="4" af="10"/>
 11. Estas formas las crea y las mantiene unidas el deseo, la causa básica; la personalidad, el resultado efectivo, la vitalidad mental o voluntad de vivir, y el apoyo de la vida u objetivo exteriorizado; cuando éstos cesan de atraer, entonces las formas dejan igualmente de existir.
 12. El pasado y el presente existen en realidad. La forma asumida dentro del concepto de tiempo presente, es el resultado de características desarrolladas, conteniendo latentes las simientes de la cualidad futura.
 13. Las características estén latentes o en potencia, participan de la naturaleza de los tres gunas (o cualidades de la materia).
