@@ -299,4 +299,124 @@ Una de las explicaciones dadas respecto a las funciones de la mente se refiere a
 
 ### 22. Cuando la inteligencia espiritual, que permanece sola y libre de los objetos, se refleja en la sustancia mental, entonces se obtiene la percepción del yo. {#af22}
 
+Conocemos a la inteligencia espiritual, el hombre [i416] real, el Hijo de Dios, eterno en los Cielos, por muchos y variados nombres, según la escuela de pensamiento. La lista de sinónimos dada a continuación es de utilidad para el estudiante, porque le da una visión más amplia y una comprensión incluyente, revelándole el hecho de que los Hijos de Dios, revelados o no, se encuentran en todas partes. [e262]
 
+|                            |                       |                              |
+| -------------------------- | --------------------- | ---------------------------- |
+| La inteligencia espiritual | El Regente Interno    | El Verbo hecho carne.        |
+| El alma                    | El segundo aspecto    | El AUM.                      |
+| La entidad autoconsciente  | La segunda Persona    | El Pensador.                 |
+| El Cristo                  | Dios encarnado        | El Observador, el Perceptor. |
+| El Yo                      | El hijo de la mente   | El Constructor de formas.    |
+| El Yo superior             | El Manasaputra divino | La fuerza.                   |
+| El Hijo de Dios            | El Agnishvattva       | El Morador del cuerpo.       |
+
+Éstos y otros muchos términos están diseminados en todas las Escrituras y literaturas del mundo. Sin embargo, en ningún otro libro como en el Bhagavad Gita se representa tan maravillosamente la naturaleza del alma, tanto macrocósmica (el Cristo cósmico) como microcósmica (el Cristo individual). Los tres libros: El Bhagavad Gita, El Nuevo Testamento y Los Aforismos de la Yoga, contienen un cuadro completo del alma y su desenvolvimiento.
+
+### 23. Así la sustancia mental, reflejando al conocedor y lo conocible, deviene omnisciente. {#af23}
+
+Este aforismo es una especie de resumen; hace resaltar el hecho de que la mente, estando aquietada y pasiva durante la práctica de la concentración [i417] y la meditación, se convierte en el reflector "de lo que está arriba y de lo que está abajo". Es el transmisor del conocimiento del yo al cerebro físico del hombre en encarnación, y además el transmisor de todo lo que el yo conoce y percibe. Ve y conoce el campo de conocimiento. El Conocedor es también percibido y la "percepción de todos los objetos" llega a ser posible. Por lo tanto, es literalmente verdad que para el yogui nada hay oculto o desconocido. Obtiene información sobre todos los temas, porque posee un instrumento que puede utilizar para cerciorarse de lo que el alma sabe respecto al reino de Dios, el reino de la verdad espiritual. Puede entrar en comunicación con el alma e impartirle lo que el hombre conoce en encarnación física, de manera que el conocedor, el campo del conocimiento y el conocimiento mismo, entran en conjunción, siendo la mente el medio para ello.
+
+Ésta es una gran etapa en el sendero de retorno; aunque a su debido tiempo la intuición reemplazará a la mente y la percepción espiritual directa tomará el lugar de la percepción mental, no obstante, esta etapa es avanzada e importante y abre la puerta para que la luz entre directamente. Nada debe ahora entorpecer el descenso de la fuerza y la sabiduría espiritual al cerebro, porque el [e263] entero triple hombre inferior ha sido purificado y dominado; los cuerpos físico, emocional y mental forman simplemente un canal para la luz divina y constituyen el vehículo por el cual la vida y el amor de Dios pueden manifestarse. [i418]
+
+### 24. La sustancia mental, reflejando como lo hace, una infinidad de impresiones de la mente, se convierte en instrumento del yo y actúa como agente unificador. {#af24}
+
+Nada le queda por hacer al hombre espiritual en conexión con este yo inferior purificado, sino aprender a utilizar su instrumento, la mente, por medio de la cual los otros dos cuerpos son dirigidos, controlados y utilizados. Este instrumento ha sido descubierto, desarrollado y dominado, aplicando los ocho métodos de yoga, y ahora debe ser utilizado y aplicado en forma activa, de tres maneras:
+
+1. Como vehículo para la vida del alma.
+2. En servicio de la Jerarquía.
+3. En colaboración con el plan de la evolución.
+
+En el [Libro I, Af. 41](libro1#af41), hallamos estas palabras: "Aquel que ha controlado totalmente sus vrittis (modificaciones de la sustancia mental) llega a un estado de identificación y similitud con lo que ha conocido. El conocedor, el conocimiento y el campo del conocimiento se convierten en uno, así como el cristal toma los colores de lo que refleja." Esto nos da una idea de lo que ocurre al hombre que ha dominado su instrumento. Registra en su cerebro, por conducto de la mente, lo que es verdadero y real. Llega a darse cuenta de la naturaleza del ideal, y dedica todo su poder en concretar tal ideal objetivamente; percibe la visión del reino de Dios, tal como será en el futuro, y entrega todo cuanto tiene y es, a fin de que tal visión sea percibida por todos; [i419] conoce el plan, porque le ha sido revelado en el "lugar secreto en el Monte de Dios", y colabora inteligentemente con el plan en el plano físico. Oye la Voz del Silencio y obedece sus mandatos, trabajando constantemente en la tarea de vivir espiritualmente en un mundo consagrado a cosas materiales.
+
+Todo es posible para el hombre que ha aquietado la versátil naturaleza síquica y ha dominado la soberana ciencia de Raja Yoga. En la literatura oculta de los adeptos, las siguientes estrofas compendian el estado del hombre que ha realizado; es amo no sirviente; conquistador, no esclavo:
+
+> El quinto ha penetrado en la paz, sin embargo deambula por nuestra esfera. Lo que es denso y oscuro brilla ahora con luz clara y pura, y [e264] el resplandor fluye de los siete lotos sagrados. Ilumina al mundo e irradia en los lugares más profundos con fuego divino
+>
+> Lo que hasta ahora ha permanecido desasosegado, indómito como el océano, agitado como mar tormentoso, yace quieto y tranquilo. Límpidas las aguas de la vida inferior, aptas para aplacar a los sedientos que a tientas claman por saciar su sed
+>
+> Lo que ha matado y velado lo Real durante muchos y prolongados eones, es muerto y, con su muerte, termina la vida separada. Se ve al Uno. Se oye la Voz: Se conoce lo Real y se percibe la Visión. El fuego de Dios surge hacia arriba y se convierte en llama
+>
+> El lugar más oscuro recibe luz. Amanece en la tierra. La fuente del día vierte desde las alturas sus brillantes rayos sobre el infierno mismo, y todo es luz y vida
+
+Entonces el yogui liberado, se halla ante una alternativa. Enfrenta un problema espiritual cuya naturaleza está descrita en el fragmento extraído de un antiguo catecismo esotérico:
+
+> [i420] ¿Qué ves ¡oh! liberado? Veo muchos que sufren, lloran y claman ayuda, Maestra.
+>
+> ¿Qué harás, ¡oh! hombre de paz? Volveré al lugar de donde he venido
+>
+> ¿De dónde vienes tú, Peregrino divino? De lo más profundo de la oscuridad, de allí ascenderé a la luz
+>
+> ¿A dónde vas tú, ¡oh! Viajero en el camino ascendente? Vuelvo a las profundidades de la oscuridad, lejos de la luz del día
+>
+> ¿Para qué das este paso, ¡oh! Hijo de Dios? Para levantar a los que tropiezan en la oscuridad e iluminar sus pasos en el sendero
+>
+> ¿Cuándo termina el servicio, ¡oh! Salvador de hombres? Lo ignoro; sólo sé que mientras alguien sufra, me quedaré y serviré
+
+### 25. El estado de unidad aislada (absorbido en la verdadera naturaleza del yo) es la recompensa del hombre capaz de discriminar entre la sustancia mental y el yo, u hombre espiritual {#af25}
+
+El estado de unidad aislada no debe ser considerada como una reacción separatista, sino resultado de un estado mental particular.
+
+Toda práctica de meditación, todo momento de reflexión, todo ejercicio de afirmación, toda hora de recogimiento de nuestra propia y verdadera naturaleza, son medios que empleamos para apartar la mente de las reacciones y tendencias inferiores y adquirir el hábito de reconocer constantemente la propia naturaleza divina. Una vez lograda esa comprensión, no son ya necesarios tales ejercicios y entramos en posesión de nuestra herencia. El aislamiento, a que se hace referencia, es la separación del yo del campo del conocimiento, e implica la negativa del yo a buscar [e265] experiencia [i421] sensoria externa, manteniéndose firme en el estado espiritual del ser.
+
+El hombre llega a ser consciente de sí mismo como conocedor; ya no se interesa principalmente en el campo del conocimiento, como en las primeras etapas de su desenvolvimiento; tampoco se ocupa del conocimiento mismo, como lo hizo durante la etapa de desenvolvimiento mental, ya sea como hombre evolucionado o como discípulo. Puede discernir entre los tres; en adelante ya no se identifica ni con el campo del conocimiento -la vida de los tres mundos por medio de sus tres vehículos y los cinco sentidos, además de la mente-, ni con el conocimiento obtenido, ni con la experiencia sufrida. Conoce al yo. Se identifica con el verdadero conocedor; así ve las cosas tal cual son, disociándose totalmente del mundo de la percepción sensoria.
+
+Sin embargo, hace esto mientras actúa en la tierra como ser humano. Participa de la experiencia terrena; se sumerge en las actividades humanas; camina entre los hombres; come, duerme, trabaja y vive. No obstante, todo el tiempo "está en el mundo, pero no es del mundo", de él se puede decir lo que se dijo del Cristo:
+
+> Quien siendo a imagen de Dios, no consideró usurpación ser igual a Dios
+> Pero no creó reputación para sí, sino que asumió la forma de sirviente y fue hecho a semejanza de los hombres
+> Y reducido a la condición de hombre, se humilló y se hizo obediente hasta la muerte, hasta morir en la cruz. (Fil. 2: 6, 7 y 8)
+
+<p>
+[i422] Se ha unificado con el alma de todos; pero separado y aislado de todo lo que concierne a la forma o naturaleza material. Los tres aforismos siguientes deben ser considerados como uno, pues proporcionan una imagen del crecimiento gradual de la naturaleza espiritual del hombre que ha alcanzado el estado de desapego discriminador y, por el total desapasionamiento, sabe lo que significa la "unidad aislada".
+</p>
+
+### 26. Entonces la mente tiende a la discriminación y al acrecentamiento de la iluminación, respecto a la verdadera naturaleza del Yo uno. {#af26}
+
+### 27. Sin embargo, por la fuerza del hábito, la mente reflejará otras impresiones mentales y percibirá los objetos de percepción sensoria. [e266] {#af27}
+
+### 28. Estos reflejos tienen el carácter de obstáculos, y el método para vencerlos es el mismo. {#af28}
+
+Una vez establecida la correcta tendencia y ritmo, sólo es cuestión de una constante perseverancia, sentido común y resistencia. A no ser que se ejerza la máxima vigilancia, los antiguos hábitos mentales se reafirmarán muy fácilmente, y por lo tanto hasta la última iniciación el aspirante debe "vigilar y orar".
+
+Las reglas que rigen el triunfo, las prácticas que traen el éxito, son las mismas tanto para el luchador experto avanzado y el iniciado, como para el neófito más humilde. En el Libro Segundo se exponen detalladamente los métodos por los cuales se pueden vencer y neutralizar los inconvenientes y obstáculos. Estos métodos y modos de vida disciplinada deben aplicarse inflexiblemente desde el momento de entrar en el sendero de probación, hasta experimentar la [i423] última gran iniciación, y el hombre liberado surge a la plena luz del día. Esto implica paciencia, capacidad de continuar después del fracaso, de perseverar, aunque el éxito esté aún muy lejano. Esto lo sabía bien el gran iniciado Pablo, de allí su recomendación a los discípulos que trató de ayudar: "Manteneos firmes... y habiendo hecho todo, manteneos firmes". Santiago nos da la misma idea cuando dice: "Mirad, consideramos felices a quienes resisten".
+
+Seguir adelante cuando se ha llegado al agotamiento; dar otro paso, cuando toda la fuerza parece haberse perdido; mantenerse firme, cuando parece no haber más que derrota por delante; la decisión de resistir lo que venga, cuando la resistencia parece haber llegado a su límite, es lo que caracteriza a los discípulos de todos los grados. Para ellos es la clarinada de San Pablo:
+
+> Manteneos firmes; ceñid vuestros lomos con la verdad y vestíos con la coraza de la justicia
+>
+> Y calzad vuestros pies con la preparación del evangelio de la paz
+>
+> Sobre todo, tomad el escudo de la fe, con el que podréis apagar todos los dardos de fuego de los malvados
+>
+> Y tomad el yelmo de la salvación y la palabra del espíritu, que es la palabra de Dios. (Ef. 6: 14, 15, 16 y 17)
+
+También resuena el igualmente claro mandato de Krishna a Arjuna:
+
+> Habiendo considerado tu deber, no vaciles, porque nada hay mejor para un guerrero que pelear por una causa [i424] justa. Y tal batalla ha venido a ti por su propia cuenta; la misma puerta del cielo se abrirá; felices los guerreros... que encuentran lucha como ésta... Por consiguiente, [e267] levántate decidido a pelear. Siendo iguales para ti la buena y la mala fortuna, la ganancia y la pérdida, la victoria y la derrota, disponte a combatir. (Gita, II: 31, 32, 37 y 38)
+
+### 29. El hombre que cultiva el desapego, hasta en su aspiración por iluminación y unidad aislada, oportunamente llega a ser consciente, mediante la práctica de la discriminación, de la influyente nube de conocimiento espiritual. {#af29}
+
+Resulta difícil para el neófito ser impersonal, cuando se trata de su propio desenvolvimiento espiritual. Sin embargo, la misma ansiedad de su aspiración puede servir como obstáculo; una de las primeras cosas que debe aprender es seguir por el sendero, ajustándose a las reglas, haciendo las prácticas, empleando los medios y cumpliendo constantemente la ley, y al mismo tiempo ocuparse de la visión y del servicio y no de sí mismo. Es muy fácil ser víctima de elevados deseos y preocuparse tan intensamente de las reacciones y emociones, que las redes de la versátil naturaleza síquica vuelven rápidamente a atrapar al aspirante hombre inferior. Debe desprenderse de todo tipo de percepción sensoria superior e inferior.
+
+La mayoría de las personas que pasan del sendero del sentimiento y del acercamiento devocional del corazón (línea mística) al del control intelectual -el acercamiento por medio de la cabeza, el método ocultista- se quejan de que ya en la meditación no experimentan los momentos de gozo y beatitud [i425] anteriores. El sistema les parece árido, frío y poco satisfactorio. Pero el gozo y la paz son impresiones de la naturaleza emocional y de ninguna manera afectan a la realidad. No tiene importancia, desde el punto de vista del alma, que su reflejo, el hombre encarnado, sea feliz o no, sienta beatitud o tristeza, esté contento o angustiado. Sólo una cosa es importante: establecer contacto con el alma, alcanzar la unión (consciente e inteligente) con el UNO. Esta unión puede efectuarse en la conciencia del plano físico y manifestarse como sentimiento de paz y gozo. Pero debe manifestarse en creciente capacidad para servir a la raza y servirla más eficazmente. Los sentimientos del discípulo son de poca importancia, lo que vale es su comprensión y utilidad como canal para la fuerza espiritual; Se debe recordar que en el sendero no cuentan las virtudes ni los vicios (excepto en la medida que evadimos los pares de opuestos). Lo único que cuenta es lo que nos impele a seguir adelante en ese sendero que "brilla cada vez más hasta que el día sea con nosotros".
+
+Cuando el hombre pueda apartar sus ojos de todo lo que concierne a lo físico, emocional y mental, y elevarlos y dirigirlos lejos [e268] de sí mismo, será consciente de "la influyente nube de conocimiento espiritual” o de la nube de cosas cognoscibles”, según ha sido traducido.
+
+Esto, esotérica y simbólicamente, indica que ante el iniciado (avanzado como está) hay un progreso aún mayor y otro velo que penetrar. Ha llegado a [i426] la gran unificación, pues ha unificado alma y cuerpo. Se encuentra (con respecto a los tres mundos) en la etapa llamada "unidad aislada", pero es posible otra unión más, la del alma con el espíritu. El Maestro debe convertirse en Cristo; para ello debe alcanzar la nube de conocimiento espiritual, penetrarla y utilizarla. Resultará inútil tratar de considerar lo que está al otro lado del velo que oculta al Padre. Según El Nuevo Testamento, cuando el Padre se comunicó con Cristo, la voz procedió de una nube. (Véase Mt. 17).
+
+### 30. Cuando se alcanza esta etapa, se superan los obstáculos y el karma. {#af30}
+
+Los dos versículos que acabamos de estudiar han llevado al aspirante de la etapa del adepto a la del Cristo.
+
+Todo lo que ha entorpecido, ocultado o impedido la plena expresión de la Vida divina, ha sido superado, todas las barreras fueron derribadas y los obstáculos eliminados. La rueda de los renacimientos ha servido su finalidad, y la unidad espiritual, que entró en la forma, llevando consigo poderes potenciales y posibilidades latentes, los ha desarrollado en toda su plenitud, abriendo totalmente la flor del alma. La ley de causa y efecto, tal como actúa en los tres mundos, ya no rige al alma liberada; el karma individual se ha agotado; aunque puede estar aún sujeto al karma grupal (planetario o solar), nada tiene que agotar [i427] ni inicia nada que pueda servir para atarlo a los tres mundos con las cadenas del deseo. Su estado está resumido en el aforismo siguiente:
+
+### 31. Cuando se han eliminado los obstáculos y purificado las envolturas, se dispone de todo el conocimiento, entonces nada le queda al hombre por hacer. {#af31}
+
+Se ha realizado el doble trabajo. Los obstáculos, resultantes de la ignorancia, de la ceguera, del medio ambiente y de la actividad, fueron eliminados. La tosquedad de las envolturas ha sido corregida y debido a ello, y mediante la aplicación de los métodos de yoga, todo conocimiento está disponible. El yogui se da cuenta ahora de su omnipresencia esencial y que su alma es una con todas las almas, por lo tanto forma parte de la unidad esencial, la [e269] vida omni-penetrante, del inmutable e ilimitado principio, la causa de toda manifestación. Es también omnisciente porque todo el conocimiento le pertenece y las avenidas del conocimiento están abiertas para él. Se ha liberado del campo del conocimiento, no obstante, puede actuar en él, utilizar los instrumentos del conocimiento y comprobar todo cuanto quiera conocer, pero él mismo está centrado en la conciencia del conocedor. Ni el espacio ni el tiempo lo pueden retener, ni la forma material puede aprisionarlo; llega para él la gran consumación, expresada por Patanjali en los tres aforismos finales. [i428]
+
+### 32. Las modificaciones de la sustancia mental (o cualidades de la materia), mediante la naturaleza inherente a los tres gunas, llegan a su fin, pues han cumplido ya su propósito {#af32}
+
+### 33. El tiempo, secuencia de las modificaciones de la mente, también llega a su término, cediendo su lagar al Eterno Ahora. {#af33}
+
+### 34. El estado de "unidad aislada" es posible cuando las tres cualidades de la materia (los tres gunas o potencias de la naturaleza) ya no aferran al yo. La conciencia espiritual pura se retrotrae en el Uno. {#af34}

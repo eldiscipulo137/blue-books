@@ -29,16 +29,16 @@ title: Libro IV. La iluminación
 19. Debido a que la mente puede ser vista o conocida, resulta evidente que no es la fuente de iluminación. <af book="4" af="19"/>
 20. Tampoco la mente puede conocer dos objetos simultáneamente, ella y lo que está fuera de ella. <af book="4" af="20"/>
 21. Si el conocimiento de la mente (chitta) es postulado por otra mente lejana, se inferirá que, existe un número infinito de conocedores, y las consecutivas reacciones de la memoria tenderán a confundir grandemente. <af book="4" af="21"/>
-22. Cuando la inteligencia espiritual, que permanece sola y libre de los objetos, se refleja en la sustancia mental, entonces se obtiene la percepción del yo.
-23. Así la sustancia mental, reflejando al conocedor y lo conocible, deviene omnisciente. <pin lang="en">375</pin>
-24. La sustancia mental, reflejando como lo hace, una infinidad de impresiones de la mente, se convierte en instrumento del yo y actúa como agente unificador.
-25. El estado de unidad aislada (absorbido en la verdadera naturaleza del yo) es la recompensa del hombre capaz de discriminar entre la sustancia mental y el yo, u hombre espiritual.
-26. Entonces la mente tiende a la discriminación y al acrecentamiento de la iluminación, respecto a la verdadera naturaleza del yo uno.
-27. Sin embargo, por la fuerza del hábito, la mente reflejará otras impresiones mentales y percibirá los objetos de percepción sensoria.
-28. Estos reflejos tienen el carácter de obstáculos, y el método para vencerlos es el mismo.
-29. El hombre que cultiva el desapego, hasta en su aspiración por iluminación y unidad aislada, oportunamente llega a ser consciente, mediante la práctica de la discriminación, de la influyente nube de conocimiento espiritual.
-30. Cuando se alcanza esta etapa, se superan los obstáculos y el karma.
-31. Cuando se han eliminado los obstáculos y purificado las envolturas, se dispone de todo el conocimiento, entonces nada le queda al hombre por hacer.
-32. Las modificaciones de la sustancia mental (o cualidades de la materia), mediante la naturaleza inherente a los tres gunas, llegan a su fin, pues han cumplido ya su propósito.
-33. El tiempo, secuencia de las modificaciones de la mente, también llega a su término, cediendo su lugar al Eterno Ahora.
-34. El estado de "unidad aislada" es posible cuando las tres cualidades de la materia (los tres gunas o potencias de la naturaleza, A.A.B.) ya no aferran al yo. La conciencia espiritual pura se retrotrae en el Uno.
+22. Cuando la inteligencia espiritual, que permanece sola y libre de los objetos, se refleja en la sustancia mental, entonces se obtiene la percepción del yo. <af book="4" af="22"/>
+23. Así la sustancia mental, reflejando al conocedor y lo conocible, deviene omnisciente. <pin lang="en">375</pin> <af book="4" af="23"/>
+24. La sustancia mental, reflejando como lo hace, una infinidad de impresiones de la mente, se convierte en instrumento del yo y actúa como agente unificador. <af book="4" af="24"/>
+25. El estado de unidad aislada (absorbido en la verdadera naturaleza del yo) es la recompensa del hombre capaz de discriminar entre la sustancia mental y el yo, u hombre espiritual. <af book="4" af="25"/>
+26. Entonces la mente tiende a la discriminación y al acrecentamiento de la iluminación, respecto a la verdadera naturaleza del yo uno. <af book="4" af="26"/>
+27. Sin embargo, por la fuerza del hábito, la mente reflejará otras impresiones mentales y percibirá los objetos de percepción sensoria. <af book="4" af="27"/>
+28. Estos reflejos tienen el carácter de obstáculos, y el método para vencerlos es el mismo. <af book="4" af="28"/>
+29. El hombre que cultiva el desapego, hasta en su aspiración por iluminación y unidad aislada, oportunamente llega a ser consciente, mediante la práctica de la discriminación, de la influyente nube de conocimiento espiritual. <af book="4" af="29"/>
+30. Cuando se alcanza esta etapa, se superan los obstáculos y el karma. <af book="4" af="30"/>
+31. Cuando se han eliminado los obstáculos y purificado las envolturas, se dispone de todo el conocimiento, entonces nada le queda al hombre por hacer. <af book="4" af="31"/>
+32. Las modificaciones de la sustancia mental (o cualidades de la materia), mediante la naturaleza inherente a los tres gunas, llegan a su fin, pues han cumplido ya su propósito. <af book="4" af="32"/>
+33. El tiempo, secuencia de las modificaciones de la mente, también llega a su término, cediendo su lugar al Eterno Ahora. <af book="4" af="33"/>
+34. El estado de "unidad aislada" es posible cuando las tres cualidades de la materia (los tres gunas o potencias de la naturaleza, A.A.B.) ya no aferran al yo. La conciencia espiritual pura se retrotrae en el Uno. <af book="4" af="34"/>
