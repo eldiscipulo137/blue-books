@@ -8,7 +8,7 @@ const darkCodeTheme = require("prism-react-renderer/themes/dracula");
 const config = {
   title: "Discipulo",
   tagline: "Información util para el discipulado",
-  url: "https://your-docusaurus-test-site.com",
+  url: "https://discipulo.info",
   baseUrl: "/",
   onBrokenLinks: "throw",
   onBrokenMarkdownLinks: "warn",
