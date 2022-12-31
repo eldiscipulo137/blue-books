@@ -1,0 +1,223 @@
+---
+title: 9. Matando las Aves de Estinfale
+---
+
+# Trabajo 9
+
+# Matando las Aves de Estinfale
+
+> (Sagitario, 23 Noviembre - 22 Diciembre)
+
+## El Mito
+
+<p>
+<pin lang="es">134</pin> <pin lang="en">155</pin> Dentro del lugar de paz permanecía el Maestro, y habló a Hércules. "Oh, hijo de Dios que eres también un hijo de hombre", dijo el Maestro, "ha llegado el tiempo de hollar otro camino. Tú te hallas ante el noveno Portal. Pasa por él y encuentra el pantano de Estinfale donde moran los pájaros que hacen estragos. Descubre, luego, el camino para hacerlos volar de su por mucho tiempo, segura morada".
+</p>
+
+Él se detuvo un momento. "La llama que brilla más allá de la mente revela la dirección segura", agregó. "La tarea aguarda. Tú debes pasar ahora a través del noveno Portal".
+
+Hacia adelante, entonces, marchó Hércules, el hijo del hombre que era también el hijo de Dios.
+
+Buscó por mucho tiempo hasta que llegó a Estinfale. Ante él se tendía el fétido pantano. Una multitud de pájaros graznaban roncamente, un coro amenazador y disonante, a medida que él se acercaba.
+
+Mirando más de cerca vio los pájaros. Grandes y feroces y horribles eran. Cada uno tenía un pico de hierro, afilado como una espada. Las plumas también parecían como dardos de acero, y si caían, podrían partir en dos la cabeza de los fatigados viajeros. Sus garras igualaban a sus picos en agudeza y fuerza.
+
+Tres pájaros, percibiendo a Hércules, se precipitaron sobre él. Él se mantuvo en su lugar, y paró los ataques con la pesada maza que sostenía. A un pájaro lo golpeó resonantemente sobre el lomo; dos plumas cayeron verticalmente al suelo y temblaron mientras se hundían en la floja tierra. Finalmente los pájaros se retiraron.
+
+Hércules permanecía delante del pantano, y reflexionaba en cómo podría realizar la tarea asignada, cómo liberar al lugar de estas aves de rapiña.
+
+<p>
+<pin lang="en">156</pin> Buscó muchos medios para encontrar una manera de lograrlo. Al principio <pin lang="es">135</pin> trató de matarlos con un carcaj lleno de flechas. Los pocos que mató no eran sino una fracción de los muchos que quedaban. Se elevaban en nubes tan espesas que ocultaban el sol.
+</p>
+
+Pensó en colocar trampas dentro del pantano. Ni barca ni pies humanos podían atravesar la ciénaga.
+
+Hércules se detuvo. Recordó entonces las palabras de consejo que se le habían dado. "La llama que brilla más allá de la mente revela la dirección segura". Reflexionando por un largo tiempo, se le ocurrió un método.
+
+Él tenía dos címbalos, grandes y broncíneos, que emitían un agudo sonido sobrenatural; un sonido tan penetrante y desagradable que podía asustar a los muertos. Para el mismo Hércules el sonido era tan intolerable, que se tapó ambos oídos con almohadillas.
+
+A la hora del crepúsculo cuando la ciénaga estuvo repleta de innumerables pájaros. Hércules regresó. Golpeó, entonces, los platillos bruscamente una y otra vez. Un estruendo y un ruido tan estridente sobrevino entonces que él mismo apenas podía soportarlo. Tal disonancia agresora de los oídos no se había oído antes en Estinfale.
+
+Aturdidos y perturbados por tan monstruoso ruido, las aves de presa se elevaron en el aire con las broncíneas alas aleteando salvajemente y chillando con ronco desaliento. Completamente perturbada, la vasta nube de pájaros huyó con frenética prisa, para nunca regresar. El silencio se difundió a través del pantano. Las horribles aves habían desaparecido. Se vio el delicado fulgor del sol poniente, mientras éste vacilaba en el paisaje que se iba oscureciendo.
+
+Cuando Hércules regresó, el Maestro le saludó: "Las aves de rapiña han sido ahuyentadas. El trabajo está cumplido".
+
+## Interpretación del Trabajo
+
+> (Conferencia de A.A.B. editada en 1937)
+
+Sagitario es a mi juicio sumamente interesante, porque tiene una aplicación muy peculiar para cada uno de nosotros, que respondemos al nombre de *«aspirante»*.
+
+<p>
+<pin lang="en">157</pin> Hay dos palabras que yo quiero ver excluidas del vocabulario del ocultista, "iniciado" y "maestro". "Iniciado" es deleitosamente separatista, es una palabra base. "Maestro" ha engendrado en la conciencia de la gente el sentimiento de que existen hombres sobrehumanos, que asumen la actitud de directores o maestros sobre sus discípulos; que les dicen qué hacer y cómo hacerlo. Ningún verdadero adepto ha sido nunca conocido por hacer eso.
+</p>
+
+<p>
+<pin lang="es">136</pin> Me gustan las palabras "aspirante" y "discípulo". Aspirante es una palabra general que nos cubre como un manto en cada etapa de nuestro desarrollo. Si quieren una palabra más técnica, usen discípulo; ella es una palabra de ocultación porque un aspirante del grado más inferior es un discípulo. El Cristo mismo es también un discípulo. Ella suprime las calidades, clases, grados y las varias etapas de la evolución.
+</p>
+
+En qué punto estemos en la escala de la evolución, es nuestro propio asunto privado. El mundo sabrá lo que somos, cuando hayamos hecho la obra que está trazada por nosotros en este trabajo de Sagitario.
+
+Nosotros ya nos hemos ocupado de este estupendo signo de Escorpio, en el cual Hércules se demostró a sí mismo, el hecho de que no podría ser engañado más por la serpiente de la ilusión. Él estaba libre del temor y el hechizo de todo lo que podría seducirlo. La visión podía ser vislumbrada.
+
+Porque Sagitario es un signo tan sumamente importante, yo quiero darles un breve resumen de lo que ha ocurrido hasta el presente; él cubre lo que está situado detrás nuestro. Yo estoy presumiendo que cada uno de nosotros es el aspirante directo, el arquero a caballo, yendo en línea recta como una flecha hacia su meta.
+
+Es interesante que el estandarte de los Estados Unidos muestra las flechas de Sagitario en las garras de un águila, porque Aquila es intercambiable astrológicamente con Sagitario y es el símbolo del espíritu manifestándose a través del alma, la cual el aspirante en el plano físico está buscando unidireccionalmente. Hay una profecía en el estandarte de los Estados Unidos, de la meta de esta raza cuando se haya desarrollado, pues es dentro de esta raza que surgirá ese grupo de aspirantes, fusionándose a su vez en un <pin lang="en">158</pin> grupo de discípulos, que demostrará al planeta la realidad del mundo subjetivo. Ese es el destino de esta raza. Será el logro de todas las razas reunidas en los Estados Unidos.
+
+Remitámonos a la historia de Hércules, el aspirante, y lo que ha hecho en cada signo.
+
+En Aries, Hércules comenzó en el plano de la mente en su esfuerzo por capturar a las yeguas devoradoras de hombres y fracasó porque trató con ellas en un modo de obrar de la personalidad. Trató con el pensamiento desde el punto de vista de la personalidad; no trabajó con su problema desde el punto de vista del alma. En Sagitario ahuyentó a las aves devoradoras de hombres. Volvió nuevamente al mismo problema en el plano de la mente, donde demostró completo control de lo que es lo primero que el aspirante a la iniciación tiene que hacer. Nosotros controlamos nuestros pensamientos y por lo tanto controlamos nuestras palabras. No hay iniciación para nosotros hasta que no lo hacemos. En Aries empezó a controlar el pensamiento.
+
+:::note Recuerda
+
+Nosotros controlamos nuestros pensamientos y por lo tanto controlamos nuestras palabras. No hay iniciación para nosotros hasta que no lo hacemos.
+
+:::
+
+<p>
+<pin lang="es">137</pin> En Tauro descendió al plano astral y abordó el problema del sexo, la demostración de la gran ley de atracción en el universo en su aspecto más bajo. Tuvo éxito totalmente. Controló al toro y lo condujo a la ciudad de los Cíclopes.
+</p>
+
+En Géminis empezó a comprender que él era dual: estaba preocupado con el problema del alma y el cuerpo y cómo coordinarlos. Esa es la razón por la cual Géminis fluctúa en las primeras etapas.
+
+En Cáncer se formó juicio hasta cierto punto de la conciencia de la masa; tomó forma. Esa es una etapa de la encarnación humana. Para muchos, el hecho de que ellos son seres humanos relacionados con otros seres humanos, no entra en absoluto en su conciencia. En Cáncer, Hércules empezó a lograr ese punto de vista. **En el momento en que uno logra eso, captura la tímida gama de la intuición, y empieza a ser intuitivo, no psíquico**.
+
+Luego Hércules pasó al difícil signo de Leo, donde tantos estamos ahora, y se convirtió en un individuo realmente potente. Estaba <pin lang="en">159</pin> seguro de que podía hacerlo todo, permanecía solo: una etapa de poder. En esta etapa se va a gobernar a los hombres y se empieza por gobernarlos equivocadamente. Se hace sentir demasiado enérgicamente, y uno piensa que es más importante de lo que es. Hay que librarse del sentimiento de "yo soy". Esa es la historia completa de la vida del aspirante. Debe volverse tan identificado con la verdadera entidad espiritual, que está detrás de todas las formas, que no esté ya ocupado con su propia forma, o reacciones mentales o emocionales, o su propia utilidad.
+
+En Virgo, Hércules se volvió consciente, no del alma y el cuerpo colocados en yuxtaposición una con otro, sino del hecho de que dentro de sí mismo estaba latente el Cristo infinito; de que la personalidad, el aspecto forma, estaba nutriendo un hermoso algo oculto, y sus ojos se abrieron.
+
+En Libra pasó por una difícil etapa de lograr el equilibrio, un signo muy abstruso en muchos sentidos, porque el hombre no es ni el alma ni el cuerpo. Libra es el equilibrio en el plano físico, de los pares de opuestos. Los ha equilibrado tanto que no siente que está llegando donde quiere.
+
+En Escorpio, en el plano astral, se dedica de nuevo al trabajo empezado en Tauro, lo completa y quita los estorbos del gran lodazal, la gran ilusión, y permanece libre con la meta clara delante suyo.
+
+Géminis es lo opuesto de Sagitario; Géminis la dualidad, Sagitario la unidad, lo unidireccional ‑adelantándose, la personalidad unificada, consciente del alma, determinada a entrar en el signo de Capricornio donde se hace la gran transición del cuarto reino al quinto o reino espiritual.
+
+Sagitario es el arquero sobre el caballo blanco, representado a veces como <pin lang="es">138</pin> el centauro con el arco y las flechas. En estas dos formas de representación -el centauro mitad humano y mitad animal, el arquero sobre el caballo blanco, mitad humano y mitad divino- se tiene la historia completa. Un caballo blanco es siempre el símbolo de la divinidad. Cristo aparecerá cabalgando en un caballo blanco. Tenemos a Sagitario en el Libro de la Revelación. Es un signo doble y siempre que haya un signo doble tenemos un problema.
+
+En Sagitario, lo mismo que en Escorpio, Hércules retomó y completó el trabajo empezado en Tauro, retomó y completó el trabajo empezado en Aries. En Aries estaba tratando con el pensamiento en su fuente. En este signo él demuestra completo control del pensamiento y de la palabra.
+
+Sagitario ha sido a veces llamado "el signo del efecto de Escorpio". En el momento en que nos liberamos de la ilusión, en ese momento entramos en Sagitario y vemos la meta. Antes realmente no la hemos visto nunca, porque entre nosotros y la meta siempre se encuentra esa nube de formas de pensamientos que nos impide verla.
+
+Nosotros hablamos acerca del amor espiritual, de la devoción a Cristo, de la devoción a los hermanos mayores de la raza, al alma; y como estamos ocupados en estos pensamientos, formamos nubes con forma de pensamientos, porque estamos pensando, y a medida que pensamos, las formamos. Por consiguiente, hemos formado alrededor nuestro tal nube con forma de pensamientos acerca de nuestras aspiraciones, que no vemos la meta. Yo no estoy socavando la tierra bajo tus pies, pero deja de pensar tanto acerca de qué hacer y aprende más simplemente "a ser".
+
+## El silencio
+
+Sagitario es el signo preparatorio para Capricornio y es llamado en algunos libros antiguos "el signo del silencio". En los misterios antiguos el hermano recientemente admitido tenía que sentarse en silencio, no le estaba permitido caminar ni hablar; tenía que estar, trabajar y observar, porque uno no puede entrar al quinto reino de la naturaleza, el reino espiritual, o trepar la montaña de Capricornio, hasta que no ha tenido restricción de la palabra y control del pensamiento. Esa es la lección de Sagitario: restricción de la palabra a través del control del pensamiento. Eso nos mantendrá ocupados, porque después que se han dejado de usar las formas ordinarias del lenguaje, tales como la murmuración, entonces se tiene que aprender a limitar el lenguaje acerca de las cosas espirituales. Se debe aprender que no hay que dar acerca de la vida del alma, muchas <pin lang="en">161</pin> o abundantes explicaciones sobre cosas para las cuales la gente puede no estar lista todavía.
+
+<p>
+<pin lang="es">139</pin> El correcto uso del pensamiento, la restricción del lenguaje, y la consecuente inofensividad en el plano físico, dan por resultado la liberación, pues nosotros estamos retenidos en la unidad humana, estamos aprisionados en el planeta, no por alguna fuerza exterior que nos sujeta allí, sino por lo que nosotros mismos hemos dicho y hecho. En el momento en que no establecemos más relaciones erróneas con la gente, por las cosas que decimos, que no deberían haber sido dichas, en el momento en que dejamos de pensar acerca de la gente, cosas que no deberíamos pensar, poco a poco esos lazos que nos retienen a la existencia planetaria son cortados, estamos libres, y trepamos la montaña como la cabra en Capricornio.
+</p>
+
+Se ha preguntado: ¿Debemos crear karma para nosotros, o hacer algo que nos ate a cualquier ser humano, porque mientras nos atemos a él tendremos que continuar reencarnando? Bueno, yo me voy a unir a la humanidad por medio del servicio, del amor, del pensamiento desinteresado. Eso es lo correcto. Pero no voy a atarme por el pensamiento crítico, ni por pensamientos de auto-compasión, por la murmuración, por las palabras que no debería decir; no voy a conseguir para mi único beneficio, mi propia liberación.
+
+Una advertencia: no seas bueno, no seas inofensivo, no sirvas meramente para huir de todo, que es lo que hace mucha gente. Permanece con la humanidad como lo hace Cristo, o como esa gran Vida de la cual se nos dice permanecerá en su lugar designado hasta que el último peregrino haya encontrado su camino al hogar.
+
+## Las Dos Puertas, las Tres Constelaciones
+
+Sagitario es la pequeña puerta hacia Capricornio. Hay dos puertas cósmicas: Cáncer, la puerta a la encarnación; Capricornio, la puerta al reino espiritual. Anterior a Capricornio está Sagitario, hablando de él como de "una puerta más pequeña". Me gusta pensar en ella como la pequeña puerta al pie de la colina a través de la cual pasamos antes de escalar la montaña, y pasando a través de esa pequeña puerta, demostramos nuestra capacidad para usar con justicia las flechas del pensamiento. Esa es la gran prueba.
+
+<p>
+<pin lang="en">162</pin> Hay dos pájaros que se ven en los cielos cerca de Sagitario. Uno, Aquila, el águila volando rectamente a la cara del sol, el pájaro fuera del tiempo y el espacio, el símbolo de la inmortalidad, el símbolo de esa secreta cosa oculta que aún yace detrás de nuestras almas; pues se nos dice que la materia o la forma es el vehículo para la manifestación del alma, y el alma en una vuelta superior de la espiral, es el vehículo para la manifestación del espíritu, y estas tres son una trinidad unificada por la vida que las compenetra a todos.
+</p>
+
+<p>
+<pin lang="es">140</pin> La otra constelación es Cygnus, el símbolo del alma. Sagitario, el aspirante, mirando a izquierda y derecha: viendo a la derecha el Aquila y diciéndose a sí mismo, "Yo soy el espíritu volando en busca de mi hogar"; mientras al otro lado y viendo a Cygnus, el cisne, con sus cuatro estrellas en forma de cruz y diciendo, "Yo soy el alma crucificada en la materia de la cual me liberaré".
+</p>
+
+Recuerda, está llegando el día en que hablaremos acerca del alma como ahora hablamos sobre la personalidad, como de algo de lo que tenemos que ser liberados eventualmente. Ese es el problema, si puedo usar este término, del hombre que ha tomado la tercera iniciación, para liberarse del alma.
+
+¿Tomarás a esas tres constelaciones como tu símbolo: Cygnus, Aquila y Sagitario? Aquila, el águila en el estandarte de los Estados Unidos, las flechas de Sagitario. Y ¿Has pensado alguna vez que dondequiera que vayas tú ves la cruz de Cygnus, la Cruz Roja? Eso es lo que representa los Estados Unidos. La tienes en los cielos.
+
+Sagitario es el noveno signo. Piensa acerca de esta sustancia del pensamiento. En Virgo, el sexto signo, tenemos la indicación de la vida: en Sagitario, el noveno signo, la terminación del período prenatal antes del nacimiento del Cristo en Capricornio, en diciembre. Es sorprendente cómo se llevan a cabo las correspondencias, las analogías. Esta es la razón por la que se nos dice que estudiemos al ser humano. Es a través del simbolismo del ser humano que llegamos a la comprensión de la gran vida que nos incluye a todos nosotros en su existencia.
+
+## El Símbolo de la Crisálida
+
+<p>
+<pin lang="en">163</pin> Sagitario, bastante curiosamente, ha sido llamado la etapa de la crisálida; el hombre no es ni una cosa ni la otra. En la crisálida se tiene la extraña triplicidad de la oruga, la crisálida y la mariposa. La oruga, se nos dice, reencarna cinco veces: muda su piel cinco veces, cinco es el número del hombre. Luego llega ese curioso acontecimiento en la vida de la oruga en que hay un completo cambio, y de una cosa que se arrastra impulsada por el deseo, comiendo todo el tiempo, llega la etapa de la crisálida. Lo que sigue en esa etapa de crisálida es un suceso de lo más misterioso. Dentro del duro caparazón de la crisálida que ha construido la oruga, no hay nada más que una masa informe. Cada cosa aislada se ha disuelto y en esa masa está lo que se llama los tres centros de la vida, y a causa de la acción recíproca entre esos tres puntos focales de energía, se efectúa un cambio, una reconstrucción, hasta que emerge del período de silencio, una maravillosa mariposa. Es casi como si en la crisálida hubiera tres aspectos de la divinidad simbolizada y trabajando según un modelo, el modelo de Cristo.
+</p>
+
+<p>
+<pin lang="es">141</pin> Considera lo que sigue en la vida del aspirante individual en Sagitario. Ha habido una completa pérdida de todo en Escorpio; todo ha sido reducido a fluido, pues Escorpio es un signo astral y el agua es el símbolo. En la vida del aspirante de hoy, no necesito extenderme sobre ello, ha habido una completa pérdida de todo. Como me decía una persona, no ha quedado nada por qué vivir, no hay nada suficientemente interesante para hacerlo avanzar a uno a través de la existencia. ¿Por qué? Porque tú eres un aspirante, un discípulo; es la mejor indicación que puedes tener de tu estadio en la escala de la evolución. Todo se ha trastornado y tú lo sabes. Pero los tres aspectos de la divinidad todavía están allí en ese fluido; y ellos actuarán y el modelo está allí. La etapa de crisálida es Sagitario. Es interesante llevar la secuencia del pensamiento o realización, desde Escorpio dentro del poder y el éxito desarrollados en Sagitario, pues es un signo de poder.
+</p>
+
+<p>
+<pin lang="en">164</pin> El verdadero sagitariano es una persona muy potente; potente porque es el signo del silencio; potente porque es el signo de la agudeza y la meta se ve claramente por primera vez; potente porque ese es el período que precede inmediatamente al nacimiento de Cristo
+</p>
+
+## El Espíritu de Verdad
+
+Sagitario, se nos dice, es el espíritu de verdad; es la suma de toda Verdad proveniente de la revelación individual.
+
+Ahora la consecuencia usual cuando hay una revelación individual es el sectarismo; una ilustración del abuso de Sagitario. Yo tuve una revelación; Dios me ha revelado esto, eso y lo otro. Yo impongo inmediatamente sobre mis semejantes mi personal interpretación de la verdad. No veo otra verdad sino la mía. Soy un aspirante, pero todos los aspirantes deben interpretar la verdad como yo la veo; si no, no son aspirantes. Ustedes deben creer en la reencarnación porque es la verdad; ustedes deben creer en los Maestros de Sabiduría porque ellos existen; ustedes deben creer esto, eso y lo otro.
+
+Agudo, sí. Pero solo un poquito de la verdad. Apenas tanto de verdad como tu pobre pequeño cerebro puede asir, y no obstante tan tremenda revelación para ti que tú piensas que todo eso es la verdad.
+
+En Sagitario, el primero de los grandes signos universales, nosotros vemos la verdad en conjunto cuando usamos rectamente las flechas del pensamiento. Diré, esto es para mí, mi formulación de la verdad, porque eso me ayuda a vivir. Otros grupos usan otras terminologías sólo mientras yo pueda asir el modo de ver la verdad de mis hermanos, será posible para mí tener la visión.
+
+Todas las distintas verdades forman una Verdad; eso es lo que se comprende <pin lang="es">142</pin> en Sagitario, y tú no puedes pasar por la puerta que está al pie de la montaña, hasta que no hayas visto dónde tu pedacito de verdad forma parte del conjunto de mosaicos. Eso es todo.
+
+## El Espíritu de Justicia
+
+<p>
+<pin lang="en">165</pin> Sagitario ha sido llamado el signo del espíritu de justicia, originándose en las contiendas de los ocho signos previos. Cuando yo esté verdaderamente funcionando en Sagitario, habré aprendido a discriminar entre lo justo y lo injusto. Sabré lo que es justo por mí misma, pero habré aprendido también esta lección: que mi justicia puede ser la injusticia para mi hermano, y la injusticia de mi hermano puede ser mi justicia: que es imposible para mí decir lo que es justo para ti porque todos estamos equipados diferentemente, tenemos diferente herencia, tradición diferente y tendencia y antecedentes raciales diferentes. Somos todos muy diversos, y practicando ese pensamiento, juntos avanzamos a lo largo de diferentes rayos. Tenemos diferentes rayos del ego y diferentes rayos de la personalidad, y mientras más sabe uno acerca de estas cosas, menos puede hablar acerca de ellas.
+</p>
+
+Yo se lo que es justo para mí, y me esforzaré en vivir según mi justicia, mi idea de lo justo. Yo no se lo que es justo para ti, pero te reconoceré el mérito de que actúas lo mejor que sabes. Si pudiéramos asumir esa actitud uno hacia el otro, el espíritu de inofensividad, de control del pensamiento y de sujeción del lenguaje, surgiría en el mundo y escaparíamos de nuestros problemas mundanos. El mundo nunca será enderezado combatiendo, sino por el pensamiento justo, y será un proceso del alma. Alguien ha dicho que en Escorpio tenemos el convencimiento del pecado; en Sagitario tenemos el convencimiento de lo justo.
+
+## Los Tres Dones
+
+En algunos libros sobre astrología se establece que hay tres signos de efusión benéfica en el zodíaco. Uno es Aries, desde el cual está fluyendo sobre nosotros el don de la existencia. Cierta cita de una escritura hindú nos dice que hay tres cosas que tenemos por la gracia de Dios: el don de ser un ser humano, el ansia de la liberación y estar bajo la guía de un perfecto sabio, en nuestro propio corazón.
+
+El don de la existencia en Aries es la maravilla de ser un ser humano. Si tú puedes pensar de ti mismo como de un mineral, de tales <pin lang="en">166</pin> limitaciones llegarás a la maravilla del ser, porque eso significa libertad desde el punto de vista mineral. Completa libertad.
+
+<p>
+<pin lang="es">143</pin> En Leo, el don de la oportunidad. Yo soy un individuo. Usaré la vida para mí mismo, si soy un pequeño Leo; o usaré la oportunidad de abrir las puertas para otras gentes.
+</p>
+
+En Sagitario, el don del poder. ¿Te sientes capaz de tener poder? La definición de un ocultista es: un ser humano que trabaja en el mundo de los poderes y las fuerzas. Yo no conozco a nadie a quien se pueda confiar esgrimir sin peligro el poder. ¿Por qué? Porque Sagitario no ha hecho su trabajo. Todavía no se ha aprendido la sujeción de la palabra. El control del pensamiento no ha sido dominado, y el alma no es suficientemente poderosa. Cuando nosotros amamos lo suficiente, podemos tener poder. Cuando amamos lo suficiente y somos suficientemente inofensivos, entonces, las puertas del cielo y del infierno estarán en nuestras manos, pero no antes.
+
+Empecemos por amar, no sentimentalmente, sino empezando realmente a comprender a los seres humanos, identificarnos con ellos y amarlos. Tú puedes saber lo que es un ser humano, con todos sus defectos, y puedes amarlo; no desde un punto de vista superior, diciendo "pobre cosa, algún día estará donde yo estoy", sino desde el punto de vista de pensar "yo he sido exactamente como ese", o "soy exactamente como ese".
+
+El don de la existencia, el don de la oportunidad y el don del poder; los tres grandes dones del zodíaco.
+
+## Las Tres Constelaciones
+
+Hay tres constelaciones conectadas con este signo, las tres más hermosas.
+
+Lyra, el arpa de siete cuerdas. El aspirante aprende a tocar en el arpa y hace música con su vida.
+
+Ara, el altar, porque el aspirante lo coloca todo sobre el altar, no con el espíritu de triste renunciación, asegurándose a sí mismo que es un perfecto miserable, sino con un espíritu de "no hay nada más que <pin lang="en">167</pin> hacer. Me estoy desprendiendo de estas cosas para poder servir más perfecta y completamente".
+
+Draco, la serpiente. Nosotros encontramos a la hidra, la serpiente, en Géminis; ahora encontramos a Draco, la serpiente de la sabiduría.
+
+La música en la vida de la armonía, los sacrificios en las reacciones y los deseos de la personalidad, y la sabiduría.
+
+Y cerniéndose encima otras dos constelaciones: Aquila, el espíritu: y Cygnus, el alma.
+
+¿Ves tú por qué estoy tan emocionada a causa de Sagitario, ¡Es un signo tan hermoso y hay tanto que decir acerca de él! ¡He omitido tanto!
+
+## Los Detalles de la Historia
+
+<p>
+<pin lang="es">144</pin> Leemos que las ciénagas de Arcadia estaban llenas de aves devoradoras de hombres, descriptas en libros antiguos como feroces cigüeñas, las aves de Estinfale. Ascendían a tres; tres pájaros más grandes, pero había muchos pequeños. Estaban devastando la región, pero no podrían ser vistos; estaban ocultos en el matorral, en la maleza, haciendo daño, pero no podían ser localizados.
+</p>
+
+Como de costumbre, Hércules se precipita hacia la tierra de Arcadia y toma la determinación de librar a la región de estas aves devoradoras de hombres.
+
+El se había liberado de la ilusión y Atenea le había dado algunos címbalos que él golpeó tan ruidosamente que los pájaros se elevaron del pantano en el aire y trataron de escapar; entonces él montó en su caballo alado y les disparó con sus flechas. Es una historia maravillosa.
+
+Los pantanos son un símbolo de la mente con la añadidura de la emoción. Hércules descubre que aunque él pueda ser un aspirante y pueda haber triunfado en Escorpio, posee aún una naturaleza emocional, y encuentra que los pájaros de Estinfale, especialmente tres de ellos, son de una clase de devoradores de hombres y que él debe hacer algo acerca de eso.
+
+Para describir su reacción, el descubrimiento del vencedor es que él es una fuerza devastadora, que con sus palabras y pensamientos está haciendo <pin lang="en">168</pin> daño. Recuerda esto, mientras más lejos transites a lo largo del sendero del regreso, y mientras funciones más como una entidad espiritual, más poderoso te volverás y más daño puedes hacer. Tú eres potente, estás esgrimiendo el poder, eres probablemente el centro de tu grupo. Si tú eres un aspirante, si eres un discípulo, la actividad del pensamiento y el lenguaje son tu principal actividad. Tú consideras tus pensamientos porque hay una fuerza detrás de tu pensamiento, y cuando piensas erróneamente, el daño que haces es mucho más poderoso que el daño que hace una persona menos evolucionada.
+
+Nosotros debemos lograr que los pájaros salgan de la ciénaga al aire puro donde podemos verlos y vencerlos.
+
+Los pájaros que más daño hacían eran tres. En un libro están enumerados; la murmuración cruel; la plática del yo, la conversación egoísta; y arrojar margaritas a los cerdos. ¿Qué significa eso?
+
+Se ha dicho que la murmuración es "el asesinato espiritual". ¿Necesito discutir la murmuración cruel, cómo las vidas han sido arruinadas por ella? Hay una ley inquebrantable, si tú murmuras se murmurará de ti. Conseguimos lo que damos. Si tú das servicio, conseguirás servicio; si bondad, bondad; si <pin lang="es">145</pin> amor, amor. Si la humanidad te maltrata, indágate a ti mismo y descubre en qué estás equivocado. Una escritura antigua dice, que toda enemistad cesa para aquel que es inofensivo. Yo sé que cuando logre la inofensividad en el pensamiento, palabra y obra, entonces no tendré problemas. El hecho de que tengamos problemas presupone nuestra ofensividad.
+
+Hablando acerca de uno mismo, estamos ocupados siempre con nuestros propios problemas, nuestros propios asuntos. Arrojar margaritas a los cerdos: hablar acerca de inquietudes ocultas para las cuales no están preparados los oyentes. Si tú eres un discípulo sabrás a qué me refiero.
+
+El problema está claro: yo soy un sagitariano y tú también. Estamos viviendo con el emblema de Sagitario frente a nosotros todo el tiempo. Estamos tratando de traer armonía a nuestras vidas, tratando de dirigir la vida al "altar", buscando hacer contacto con la serpiente de la sabiduría. Empieza con el pensamiento y la palabra, y empieza hoy.
+
+
