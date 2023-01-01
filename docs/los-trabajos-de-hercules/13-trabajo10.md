@@ -1,0 +1,135 @@
+---
+title: 10. Matando a Cerbero, guardián del Hades
+---
+
+# Trabajo 10
+
+# Matando a Cerbero, guardián del Hades
+
+> (Capricornio, 23 Diciembre - 20 Enero)
+
+## El Mito
+
+<p>
+<pin lang="es">146</pin> <pin lang="en">169</pin> "La luz de la vida debe ahora resplandecer dentro de un mundo de oscuridad" declaró el Gran Presidente. El Maestro comprendió.
+</p>
+
+"El hijo del hombre que es también el hijo de Dios debe pasar a través del décimo Portal", dijo. "En esta misma hora Hércules se arriesgará".
+
+Cuando Hércules estuvo frente a frente con el que era su guía, éste habló:
+
+"Mil peligros has desafiado, ¡Oh, Hércules!", dijo el Maestro, "y mucho se ha logrado. La sabiduría y la fuerza son tuyas. ¿Harás uso de ellas para rescatar al que está en agonía, una víctima de enorme y persistente sufrimiento?"
+
+El Maestro tocó suavemente la frente a Hércules. Ante el ojo interno de éste surgió una visión. Un hombre yacía postrado sobre una roca, y gemía como si su corazón se rompiera. Sus manos y piernas estaban encadenadas; las pesadas cadenas que le ataban, amarradas a anillos de hierro. Un buitre, feroz y temerario, permanecía picoteando el hígado de la postrada víctima; por consiguiente, un escurridizo chorro de sangre manaba de su costado. El hombre alzaba sus manos esposadas y gritaba pidiendo ayuda; pero sus palabras retumbaban vanamente en la desolación y eran tragadas por el viento. La visión desapareció. Hércules permanecía, como antes, al lado de su guía.
+
+"El encadenado que has visto se llama Prometeo", dijo el Maestro. "Por años ha sufrido así, y <pin lang="en">170</pin> sin embargo no puede morir, pues es inmortal. Él robó el fuego del cielo; por esto ha sido castigado. El lugar de su morada es conocido como Infierno, el dominio de Hades. Se te pide, ¡Oh Hércules! ser el salvador de Prometeo. Baja a las profundidades y allí en los planos exteriores libéralo de su sufrimiento".
+
+Habiendo oído y comprendido, el hijo del hombre que era también un hijo de Dios, se lanzó en esta búsqueda, y pasó a través del décimo Portal.
+
+<p>
+<pin lang="es">147</pin> Hacia abajo, siempre hacia abajo, viajó dentro de los apretados mundos de la forma. La atmósfera se hacía sofocante, la oscuridad constantemente más intensa, y sin embargo su voluntad era firme. El empinado descenso continuó durante mucho tiempo. Solo, pero no completamente a solas, erró allí, pues cuando buscó dentro, oyó la voz plateada de la diosa de la sabiduría, Atenea, y las palabras fortalecedoras de Hermes.
+</p>
+
+Finalmente llegó a ese oscuro, envenenado río llamado Estigia, un río que deben cruzar las almas de los muertos. Un óbolo o centavo tenía que pagarse a Caronte, el barquero, para que pudiera conducirlas a la otra orilla. El sombrío visitante de la tierra asustó a Caronte, quien olvidando su paga, condujo al extranjero al otro lado.
+
+Hércules había entrado por fin al Hades, una oscura y brumosa región donde las sombras, o mejor dicho, los cascarones de los muertos, se deslizaban por ahí.
+
+Cuando Hércules percibió a la Medusa, su cabello entrelazado con serpientes silbantes, tomó su espada y se la arrojó, pero no hirió nada salvo el aire vacío.
+
+A través de senderos laberínticos siguió su camino hasta que llegó a la sala del rey que gobernaba el mundo subterráneo, el Hades. Este, torvo y severo, con semblante amenazador, estaba sentado tiesamente en su negro trono de azabache, mientras Hércules se aproximaba.
+
+"¿Qué buscas tú, un mortal viviente, en mis dominios", preguntó Hades. Hércules dijo, "Busco liberar a Prometeo".
+
+<p>
+<pin lang="en">171</pin> "El camino está vigilado por el monstruo Cerbero, un perro con tres grandes cabezas, cada una de las cuales tiene serpientes enroscadas a su alrededor", replicó Hades. "Si tú puedes vencerlo con tus manos desnudas, una hazaña que nadie aún ha realizado, puedes desatar al sufriente Prometeo".
+</p>
+
+Satisfecho con esta respuesta, Hércules prosiguió. Pronto vio al perro de tres cabezas, y oyó su penetrante ladrido. Gruñendo, saltó sobre Hércules. Agarrando primero la garganta de Cerbero, Hércules lo estrechó en su puño como en un torno. Poseído hasta la furia frenética, el monstruo se sacudió. Finalmente, al apaciguarse su fuerza, Hércules lo dominó.
+
+Hecho esto, Hércules prosiguió, y encontró a Prometeo. Yacía sobre una losa de piedra, en agonizante dolor. Entonces, Hércules rompió rápidamente sus cadenas, y liberó a la víctima. Desandando sus pasos, Hércules regresó como había venido. Cuando alcanzó una vez más el mundo de las cosas vivientes, encontró allí a su Maestro.
+
+"La luz brilla ahora dentro del mundo de oscuridad", dijo el Maestro. "El trabajo está realizado. Descansa ahora, hijo mío".
+
+F.M
+
+## Prólogo
+
+<p>
+<pin lang="es">148</pin> El signo de Capricornio, dice El Tibetano, es uno de los signos más difíciles acerca del cual escribir, y es el más misterioso de los doce signos. Así lo hemos encontrado nosotros. Aún el símbolo del signo nunca ha sido correctamente dibujado, se nos dice, porque su correcta delineación produciría una afluencia de fuerza que no sería deseable; este símbolo es llamado también a veces "la firma de Dios".
+</p>
+
+Al pie de la montaña, la cabra, el materialista, busca alimento en lugares áridos. El chivo expiatorio, camino hacia arriba, encuentra las flores del deseo obtenido, cada una con su propia espina de saciedad y desilusión. En la cima de la montaña la cabra sagrada ve la visión y el iniciado aparece. En otros <pin lang="en">172</pin> escritos los símbolos son la cabra, el cocodrilo y el unicornio.
+
+Un mito pone el énfasis en el descenso al infierno para liberar a la humanidad (en la figura del torturado Prometeo). Otros se ocupan más de Cerbero, algunos matándolo, otros haciéndolo subir a la tierra. Nosotros presentamos estas variaciones para la consideración del significado espiritual, por parte del lector.
+
+e recuerda que, según el Credo, Jesús el Cristo "descendió a los infiernos". ¿Por qué? Seguramente porque su muy inclusivo amor protegía a las llamadas "almas extraviadas", que se nos dice que Cristo cobija a la humanidad hasta que la última "pequeña alma" haya llegado al hogar.
+
+Y ¿Quiénes somos nosotros para interpretar la "firma de Dios"? Con humildad sometemos estos puntos para la reflexión. Se nos dice que es de rodillas que el capricorniano ofrece corazón, y vida al alma, y sólo entonces es cuando al autoiniciado se le pueden confiar los secretos de la vida y de los poderes superiores.
+
+## Interpretación del Trabajo en Capricornio
+
+Hay dos portales de importancia dominante: Cáncer, hacia lo que erróneamente llamamos la vida, y Capricornio, el portal hacia el reino espiritual. Capricornio, la puerta a través de la cual finalmente pasamos cuando no nos identificamos más con la parte forma de la existencia, sino que vivimos identificados con el espíritu. Eso es lo que significa ser iniciado.
+
+Un iniciado es una persona que no sitúa la conciencia en su mente, sus deseos, o su cuerpo físico. Él puede usar éstos si lo elige; y lo hace para ayudar a la humanidad, pero no es ahí donde su conciencia está enfocada. Está <pin lang="es">149</pin> enfocado en lo que llamamos alma, que es ese aspecto de nosotros mismos que está libre de forma. Es en la conciencia del alma que nosotros funcionamos eventualmente en Capricornio, nos conocemos a nosotros mismos como iniciados y entramos en los dos grandes signos universales de servicio a la humanidad. Pues es interesante que, en Acuario, tratamos simbólicamente con <pin lang="en">173</pin> animales a granel, ya que en ese signo Hércules tiene el trabajo de limpiar a fondo los establos de Augías, su primer trabajo como discípulo del mundo. Pero en Piscis captura, no al toro, sino a todos los bueyes, llevando a nuestra conciencia la idea de la universalidad del trabajo del mundo, de la conciencia de grupo, de la conciencia universal y del servicio universal.
+
+Si hubieras nacido en el signo de Capricornio, por favor no pienses que eres un iniciado. Deberemos poner énfasis en el sentido de la proporción y del estado de evolución. Los aspirantes, o sufren de un complejo de inferioridad que les hace sentir que no es posible hacer nada, o tienen una idea exagerada de su importancia; tiene un toque de conciencia del alma, pero sólo un minúsculo toque, lo cual ellos piensan que es el total y se vuelven envanecidos. Esto no muestra sentido de proporción.
+
+Este signo simboliza la tercera iniciación, la primera de las iniciaciones mayores. En Mateo 17 leemos que Cristo llevó a tres discípulos, Pedro, Juan y Jacobo, a lo alto de una montaña y se transfiguró delante de ellos. Ellos "cayeron sobre sus rostros" y Pedro dijo, "Construyamos tres chozas". En la filosofía hindú esto es llamado "la iniciación del hombre que construye su choza". Pedro, una roca o cimiento, es el símbolo del cuerpo físico. Jacobo, el engañador, simboliza la naturaleza emocional, la fuente de todo hechizo. Juan simboliza la mente, significando el nombre, "El Señor ha Hablado". Ahí tienes el simbolismo de los tres aspectos de la personalidad, postrados sobre sus rostros delante de Cristo glorificado, en su transfiguración en Capricornio.
+
+## Significado del Signo
+
+Este es el signo de la cabra: es un signo sobrehumano, un signo universal e impersonal. Todos los trabajos de Hércules hasta aquí han estado comprometidos con su propia liberación. Ahora entramos en tres signos que no tienen relación con sus realizaciones personales. Él es libre. Es un iniciado, un discípulo del mundo. Ha dado vuelta tras vuelta al zodíaco, ha aprendido todas las lecciones de los signos y trepado la montaña de la iniciación; <pin lang="en">174</pin> ha sufrido la transfiguración; está perfectamente libre y así puede trabajar universalmente en tareas que no tengan ninguna relación consigo mismo. <pin lang="es">150</pin> Trabaja como un ser sobrehumano en un cuerpo humano. Las grandes etapas de desarrollo en el sendero de la expansión, que nosotros llamamos iniciaciones, están grabadas en el cerebro y no te serán dichas por nadie. Yo nunca encontré a un verdadero iniciado que estuviera dispuesto a admitir que lo era, nunca. La marca de pureza del iniciado es el silencio. Capricornio es un signo triste, es el signo del sufrimiento intenso y la soledad, pues éstas son también señales del iniciado.
+
+La impersonalidad está basada en un logro fundamental de la personalidad. Se debe haber estado enormemente apegado antes de poder conocer el significado de la impersonalidad. Esto es una paradoja, pues no hay logro de ser impersonal sin haber tentación en lo personal. La impersonalidad que debemos desarrollar es una expansión del amor personal que tenemos por un individuo, por nuestra familia, nuestro círculo de amigos; es exactamente la misma actitud hacia la humanidad, pero no tiene nada que ver con el sentimentalismo. Podemos amar a toda la humanidad porque conocemos el significado del amor personal, y debemos brindar a todos el mismo amor que hemos dado a los individuos cercanos a nosotros. La impersonalidad no es impedir la entrada, levantar muros; es amar a todos porque somos capaces de ver a las gentes como realmente son, con sus faltas, sus fracasos, sus logros, con todo lo que hace de ellos lo que son, y viéndolos con mirada penetrante, amarlos lo mismo. En las Reglas del Camino está escrito. "Cada uno ve y conoce la vileza de cada cual. Y sin embargo no hay, con esta gran revelación, negación ni rechazo mutuo", esa es la condición que se debe lograr en Capricornio. Lo que debemos desarrollar no llega endureciendo al corazón, ni con una tremenda separación, ni trepando a un pedestal.
+
+El discípulo del mundo no sólo hace lo que hizo Hércules, bajar al infierno para vencer a Cerbero, sino que trabaja entre los hombres todo el tiempo, interesado en su prójimo. Es impersonal. <pin lang="en">175</pin> Me pregunto si esta impersonalidad no se refiere a nosotros mismos más bien que a otras personas. Nosotros hablamos acerca de ser impersonales en nuestro comportamiento. Si fuéramos absolutamente impersonales tratándose de nosotros mismos, nuestras reacciones hacia el prójimo serían justas.
+
+## Las Constelaciones
+
+Hay tres constelaciones conectadas con el signo de Capricornio. Una es llamada Sagitta, la flecha. No tiene conexión con el signo de Sagitario. En ese nosotros teníamos al arquero con la flecha, con la cual el aspirante realizado atravesaba la personalidad. Aquí tenemos la flecha que viene de [ei151] una fuente cósmica, atravesando el corazón del hijo de Dios, llamado el Cristo, el más cercano a nosotros de los grandes salvadores del mundo, "un hombre de infortunios y familiarizado con el dolor". Él estaba atravesado por la flecha Sagitta, la flecha cósmica.
+
+El nombre hebreo para esta flecha significa "el desolado", y el sendero que todo discípulo huella es necesariamente solitario. El sendero del iniciado es aún más solitario. El sendero de un salvador del mundo es el más solitario de todos. Yo pienso que esta condición va a ser aliviada. A través de los años hemos tenido estas tremendas manifestaciones, una aquí, una allí. ¿Has considerado alguna vez la soledad de ellos? No había nadie que entendiera. Tal vez ellos fueron canonizados cientos de años después de que murieron. Pero ahora hay tantos aspirantes, tantos en el sendero del discipulado, que tal vez la conciencia de grupo que está empezando a ponerse de manifiesto en los asuntos del mundo, resultará en una soledad grupal más bien que en una soledad individual.
+
+Aquila, el águila, es vista como estando tan estrechamente relacionada a Capricornio como a Sagitario. Tenemos el pájaro de luz (símbolo del más alto aspecto del hombre) manifestándose como el alma (el segundo aspecto) que se ha realizado.
+
+En Delphinus, tenemos una constelación muy interesante, que contiene en sí un sorprendente simbolismo. Es representada en un antiguo zodíaco como un pez lleno de vida, saltando fuera del agua en el aire y jugando. Ese es el símbolo del hijo de Dios, quien <pin lang="en">176</pin> trabajando bajo la ley, toma forma y vive en el agua y en el aire; y no siendo limitado por la ley física, puede jugar con las fuerzas de la naturaleza. Estamos empezando a aprender acerca de estas fuerzas, pero todavía pasará un tiempo antes de que Delphinus, el delfín, tenga mucho significado personal para nosotros.
+
+## El Escalamiento de la Montaña
+
+Capricornio cuenta la historia del escalamiento de la montaña y del descenso al infierno. Hay tres grandes ascensiones de cada alma. La masonería, a través de las edades, ha sido un custodio de esta tradición. Primero se produce la elevación de la materia al cielo. Encontramos eso en Virgo, luego, la elevación de la naturaleza psíquica desde abajo del diafragma. Tú no eres más, emocional y centrado, en ti mismo, viviendo en el plexo solar, sino que estás enfocado en el corazón y eres consciente del grupo; tus sentimientos y deseos están relacionados con el grupo.
+
+No vives más en la naturaleza animal, interesado en la creación en el plano <pin lang="es">152</pin> físico, sino que te vuelves una criatura espiritual trabajando con materia mental. No estás más limitado por la forma, sino que tienes que tratar con la forma que se ha elevado a la conciencia de la cabeza, y desde la cabeza controlar la garganta, el corazón, el plexo solar y cada parte de tu cuerpo.
+
+Haces esto no centrándote en ellas, no pensando sobre ellas, sino viviendo como un hijo consciente de Dios sentado en "el trono entre las cejas", el centro ajna (o glándula pituitaria) como lo llaman los hindúes. Esa es la segunda gran ascensión.
+
+La ascensión final es la que marca la emancipación del iniciado de un grado muy alto, que se vuelve conscientemente un salvador del mundo. Pero es en la segunda iniciación, la elevación de la naturaleza psíquica inferior, en la que tenemos que trabajar para que cada deseo, cada disposición de ánimo y cada emoción, sea elevada al "cielo".
+
+## Preparación para el Descenso al Hades
+
+Había tres cosas que Hércules debía hacer antes de empezar a bajar al infierno. El orden en que llegaron es interesante. <pin lang="en">177</pin> Primero tenía que purificarse. Hércules, el hijo de Dios que había vencido, que había sido transfigurado, iba a bajar al infierno a trabajar, y llegó la orden de que se purificara. Él pensó que era muy puro. Cómo fue sometido al proceso de purificación, no se nos dice, pero tengo la idea de que él tenía que probar que estaba libre de irritabilidad y egoísmo en ese poco interesante círculo donde estaba viviendo como un ser humano. Es una regla en ocultismo que, en la escala de la iniciación, si no puedes vivir puramente en tu propio círculo, no eres de utilidad en el cielo o el infierno. ¿Qué quiero significar con "puro"? Nosotros usamos mayormente la palabra en su sentido físico, pero "puro", realmente es, libre de las limitaciones de la materia. Si yo soy en alguna manera prisionero aún de mi mente, que es una forma de materia sutil, no soy puro. Si tengo cualquier emoción egoísta, no soy puro. Hércules tenía que purificarse.
+
+Luego leemos que él tenía que ser iniciado en los misterios. Hasta donde yo puedo comprenderlo (y puedo estar equivocada) esto quiere decir que tú debes pasar a través de tu propio infierno personal, antes de que puedas pasar por el infierno universal. Tienes una época terrible en tu propia vida, y tú eres iniciado cuando sufres tu propio infierno. Aprendes la naturaleza de lo universal, por la experiencia individual; sólo eso es la realización. Tú no puedes aprender de oídas.
+
+Como ha sucedido antes en los mitos, Hércules entonces tenía que detenerse <pin lang="es">153</pin> y realizar un acto de servicio, antes de que pudiera imponerse a Cerbero. El vio a dos personas atadas y siendo atacadas por el ganado. Tenía que liberarlas antes de que pudiera hacer frente a su propio problema. Siempre para el iniciado, el servicio está primero; dejar pasar lo que ha emprendido si se necesita su ayuda. Esa es siempre la historia del iniciado, porque está basada en la conciencia de grupo.
+
+## El Símbolo de Cerbero
+
+Cerbero, el perro de tres cabezas, de espantoso ladrido, con serpientes creciendo en todo su cuerpo y con víboras por cola, era el guardián del Hades. Las tres cabezas simbolizan la sensación, <pin lang="en">178</pin> el deseo y las buenas intenciones. Es el amor a la sensación el que conduce a la humanidad de acá para allá, para satisfacer el hambre en el mundo económico o para satisfacer el deseo de felicidad en el mundo del placer. Los violentos impactos de sensación se buscan para mantener ocupada la mente. La cabeza central fue la primera apresada por Hércules porque era la más importante, ya que el deseo subyace en todas las sensaciones; ellas son lo que el deseo busca expresar y así obtener satisfacción en el mundo exterior. La tercera cabeza son las buenas intenciones no llevadas a cabo. Así tenemos el deseo en el centro, a un lado la sensación simbolizando todos los impactos, y del otro lado la tercera cabeza de las buenas intenciones, no consideradas, nunca realizadas, de las cuales siempre se ha dicho: "El camino del infierno está pavimentado de buenas intenciones".
+
+La cola formada de serpientes representa a todas las ilusiones que impiden el progreso de la vida espiritual; la materialidad que nos oprime; la naturaleza psíquica inferior que causa tal destrucción; el temor a lo largo de cada posible línea; el temor al fracaso que mantiene a tantos apartados de la actividad y engendra sólo inercia, la gran falta, se nos dice, de los aspirantes y los discípulos.
+
+Hércules asió a Cerbero por la cabeza central y lo venció, porque todos los dioses del sol están ocupados con los problemas de la humanidad y porque desolados, descienden solos al infierno para salvar a la humanidad; de ahí que los dioses del sol han nacido en el signo de Capricornio.
+
+*(Conferencia dada por A.A.B. condensada y editada)*
+
+## Epílogo
+
+La gran oscilación en Capricornio es compendiada por las palabras claves. En la rueda común ellas son, "Y la palabra dijo: que la ambición gobierne y <pin lang="es">154</pin> que la puerta permanezca abierta". Esta es la llave para el impulso evolutivo y el secreto del renacimiento (El Tibetano). Cuando el verdadero sentido de la realidad reemplaza tanto a la ambición terrenal como a la ambición espiritual, el hombre puede decir con veracidad, "Estoy" perdido en la luz suprema, pero vuelvo mi espalda a la luz". Así va el discípulo del mundo, el  iniciado en Capricornio, por su camino para servir a la humanidad en <pin lang="en">179</pin> Acuario. En ese signo limpia los establos de Augías (del karma de toda ignorancia y error pasados: el Morador en el Umbral) y así se vuelve en Piscis un salvador del mundo. Se recuerda que el último acto de Cristo en su camino al Getsemaní y al Calvario fue el de lavar los pies de sus discípulos.
+
+Se ha dicho: "El cristianismo no ha fracasado: nunca ha sido ensayado". ¿Estamos ahora, después de dos mil años, realmente empezando a ensayarlo individualmente y en formación grupal? Este es el trabajo que hace posible a Cristo reaparecer y también el que prepara a la humanidad para reconocerlo y para ser capaz de soportar la calidad de las emanaciones que acompañen su venida.
+
+*(Extraído de Astrología Esotérica, PP. 110-23)*
+
+Que cada hombre recuerde que el destino de la humanidad es incomparable y que depende en gran parte de su voluntad para colaborar en la tarea trascendente. Que recuerde que la ley es, y siempre ha sido, luchar; y que la lucha no ha perdido nada de su violencia al ser transportada del plano material al espiritual. Que recuerde que su propia dignidad, su nobleza como ser humano, debe surgir de sus esfuerzos para liberarse de su servidumbre y obedecer a sus aspiraciones más profundas. Y, que por sobre todo, nunca olvide que la chispa divina está en él, sólo en él y que él es libre de descuidarla, de matarla, o de acercarse a Dios mostrando su anhelo de trabajar con Él, y para Él.
+
+*El Conde de Noüy* 
