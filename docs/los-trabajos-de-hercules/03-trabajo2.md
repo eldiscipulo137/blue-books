@@ -164,4 +164,4 @@ Cuando el toro del deseo ha sido entregado a los Cíclopes, al iniciado de un so
 
 de Astrología Esotérica, p. 278
 
-[^1] Reparar en las "Siete Hermanas" cantando alrededor de Hércules, en la exposición del Mito
+[^1]: Reparar en las "Siete Hermanas" cantando alrededor de Hércules, en la exposición del Mito

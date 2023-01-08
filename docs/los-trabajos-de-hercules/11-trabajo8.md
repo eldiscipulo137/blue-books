@@ -164,4 +164,4 @@ Mantén tu ojo en el águila; haz descender el fuego; no mires a la tierra; cén
 
 A.A.B
 
-[^1] Empezando con Escorpio, el relato del mito será escrito por el Dr. Francis Merchant, ya que ninguna copia adicional del Tibetano se encontró entre los papeles de A.A.B. Él ha usado el mejor material disponible para los detalles de la historia, vertiéndola en la cadencia yámbica de El Antiguo Comentario. Otro material de A.A.B. es usado como antes, con algunas condensaciones y reescrituras necesarias.
+[^1]: Empezando con Escorpio, el relato del mito será escrito por el Dr. Francis Merchant, ya que ninguna copia adicional del Tibetano se encontró entre los papeles de A.A.B. Él ha usado el mejor material disponible para los detalles de la historia, vertiéndola en la cadencia yámbica de El Antiguo Comentario. Otro material de A.A.B. es usado como antes, con algunas condensaciones y reescrituras necesarias.
