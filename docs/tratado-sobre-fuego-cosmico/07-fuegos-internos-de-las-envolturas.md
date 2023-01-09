@@ -88,7 +88,15 @@ La combinación de los tres fuegos, la fusión de los tres rayos y la colaboraci
 
 ## II. LOS ELEMENTALES DEL FUEGO Y LOS DEVAS
 
+<p>
+<pin lang="es">80</pin> <pin lang="en">65</pin> Será de utilidad considerar brevemente los elementales del fuego y los devas y tratar la relación que existe entre el Rayo de la Personalidad y el fuego interno del sistema y su triple manifestación.
+</p>
 
+Se conocen ciertos hechos respecto a los espíritus del fuego, si así pueden denominarse. El hecho fundamental que debe acentuarse es que AGNI, el señor del Fuego, rige a los elementales y devas del fuego en los tres planos de la evolución humana, físico, astral y mental; no sólo los rige en este planeta denominado Tierra, sino en los tres planos que corresponden a todo el sistema. Es uno de los siete Hermanos (expresión familiar empleada para los estudiantes de La Doctrina Secreta), y cada uno de ellos personifica uno de los siete principios, constituyendo en Sí Mismos los siete centros en el cuerpo del Señor Cósmico del Fuego, denominado “Fohat” por H. P. B. Es la ígnea inteligencia activa, base de los fuegos internos del sistema solar. En cada plano rige uno de Ellos, y los tres mayores (los tres se verán siempre, luego los siete, quienes con el tiempo se fusionan con los tres primarios) rigen los planos primero, tercero y quinto, o Adi, Atma [^6] y Manas. Es esencial que recordemos que constituyen, <pin lang="en">66</pin> en su tercer aspecto, el fuego de la materia. En su totalidad, estos siete Señores forman la esencia del Señor Cósmico, denominado Fohat en los libros ocultistas. [^7] <pin lang="es">81</pin> 
+
+Similarmente los siete Choanes [^8] y sus grupos de discípulos forman la esencia o centros del cuerpo de uno de los Hombres celestiales, uno de los Logos planetarios. Estos siete, a su vez, forman la esencia del Logos.
+
+Cada uno de los siete Señores de Fuego [^9] se divide en numerosos grupos de entes de fuego, desde los Señores de los devas de un plano, descendiendo hasta las pequeñas salamandras de las hogueras internas. No nos referimos a las esencias ígneas de los planos superiores en esta etapa de nuestro estudio. Enumeraremos sólo sucintamente algunos de los grupos más conocidos con los cuales se hace contacto en los tres mundos.
 
 
 [^1]: La esencia divina que compenetra el entero universo de millones de sistemas solares, es arrebatada por nuestro Sol y trasmitida, en forma manifestada, a los confines de nuestro sistema solar, a fin de que esta esencia manifestada sea la tierra fértil para el crecimiento, conservación y destrucción de nuestros mundos; esa esencia divina es simplemente el Nadam de la filosofía yogui; este Nadam u OM se manifiesta como siete corrientes. Lo inmanifestado se manifiesta o es gestado por las ramificaciones subsiguientes. Estas corrientes son las siete vocales y las siete notas. Estas siete vocales y notas han de tener una correlación especial con los siete versículos védicos, pues en el Vishnu Purana, Parasara describe los versículos védicos como cauces de la esencia solar. Some Thougts on the Gita, pág. 74.
@@ -116,3 +124,24 @@ La combinación de los tres fuegos, la fusión de los tres rayos y la colaboraci
     | Diez esquemas planetarios constituyen | un sistema solar      |
 
 [^5]: "Se ha de recordar que la escala comparativa no interesa, porque la grandeza y la pequeñez son esencialmente relativas. El destino de cada átomo es crear un brahmanda (huevo de brahma). Brahmandas similares, más grandes o más pequeños que el nuestro, unidos por un Sol, están presentes en todo átomo. Vishvas (grandes sistemas mundiales) existen en un átomo, y átomos existen igualmente en esos vishvas. Éste es el significado de "los muchos en uno"; donde veamos el uno deberemos reconocer también los muchos y viceversa. Después de obtener la capacidad y emplearla para crear un brahmanda, el siguiente paso es la creación de un jagat (universo), luego un vishva, después de un maha vishva y así sucesivamente hasta alcanzar el estado de maha vishnu. Pranava Vada, pág. 94, por Bhagavan Das.
+
+[^6]: Atma, significa el Yo, Ego, o un centro individualizado, alrededor del cual se agrupan y se ordenan todas las experiencias mundanas en su doble aspecto de subjetivas y objetivas. Es como uno de los focos de donde salen rayos de luz para iluminar las aguas cósmicas y en el que también convergen los rayos devueltos por esas aguas. En los escritos teosóficos se le llama la la individualidad autoconsciente o el Manas Superior. Desde este punto de vista, veras que el Manas superior es el principio más importante o el eje central de la constitución humana o el alma verdadera. Es el hilo del que quiere agarrarse quien cree conocer la verdad y salir de esta existencia condicionada. A esto se puede objetar que Atma representa el séptimo principio del septenario teosófico y que Manas está mucho más abajo en la escala. Pero la respuesta sencilla es que el séptimo principio es el estado último que puede alcanzar el yo después de cruzar el océano de la existencia condicionada o samsara. Algunos pensamientos sobre el Gita, p. 26
+
+[^7]: Fohat, o electricidad, es una Entidad
+
+    |                     |                     |                       |
+    | ------------------- | ------------------- | --------------------- |
+    | Él es el primordial | Entidad electrica   | D.S. I, 105           |
+    | Él es               | Voluntad            | D.S. I, 136           |
+    | Él es               | Amor-Sabiduría      | D.S. I, 100, 144, 155 |
+    | Él es               | Inteligencia activa | D.S. I, 136           |
+
+    Por consigueinte es el es Dios. D.S. I, 167
+
+    Él es la suma total de la energía de los siete espíritus. Quienes son la suma total de los Logos. D.S. I, 169
+
+[^8]: Chohan (Tibetano). Un Señor o Maestro. Un Gran Adepto. Un iniciado que ha tomado más iniciaciones que las cinco iniciaciones mayores las cuales hacen al hombre un Maestro de Sabiduría
+
+[^9]: Los siete Hermanos. véase D.S. I, 105. Esos siete son las siete diferenciaciones de la energía eléctrica primordial.
+
+    Plano. Como es usado en el ocultismo, el término denota el rango o extensión de algún estado de la conciencia o del poder perceptivo de un conjunto particular de sentidos o la acción o una particular fuerza, o el estado de la materia correspondiente a alguno de los anteriores
