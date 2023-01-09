@@ -98,6 +98,27 @@ Similarmente los siete Choanes [^8] y sus grupos de discípulos forman la esenci
 
 Cada uno de los siete Señores de Fuego [^9] se divide en numerosos grupos de entes de fuego, desde los Señores de los devas de un plano, descendiendo hasta las pequeñas salamandras de las hogueras internas. No nos referimos a las esencias ígneas de los planos superiores en esta etapa de nuestro estudio. Enumeraremos sólo sucintamente algunos de los grupos más conocidos con los cuales se hace contacto en los tres mundos.
 
+### 1. Plano Físico.
+
+**Salamandras**, son los diminutos elementales del fuego que algunos pueden ver danzando en toda llama, cuidan los fuegos del hogar y de la fábrica. Pertenecen al mismo grupo de los espíritus del fuego que se encuentran en las profundidades de las ígneas entrañas del planeta.
+
+**Los espíritus del fuego**, latentes en todo foco de calor, son en si mismos la esencia del calor, se los encuentra <pin lang="en">67</pin> en el calor de la estructura corpórea, humana o animal, y constituyen similarmente el calor terrestre.
+
+Los **Agnichaitas**, o espíritus del fuego de grado superior, forman un vórtice de fuego, y se los ve en gran escala en los volcanes y en los grandes incendios. Se hallan estrechamente vinculados a un grupo de devas aún más importante, quienes forman la envoltura ígnea del Sol.
+
+<p>
+<pin lang="es">82</pin> Los <b>elementales pránicos</b>, esas diminutas esencias ígneas que tienen la capacidad de compenetrar la contextura de un cuerpo humano, de un árbol y de todo cuanto se encuentra en los reinos humano, animal y vegetal, y se fusionan con los fuegos de los sistemas microcósmicos.
+</p>
+
+Ciertos miembros del reino dévico, que pueden ser descritos como animando ciertos grandes rayos de luz, quienes son la esencia de esos rayos. Podríamos enumerar otras formas elementales de vida y grupos de devas, pero los ya citados son suficientes para nuestro propósito.
+
+### 2. Plano Astral.
+
+Las esencias ígneas de este plano son más difíciles de comprender, pues aún no tenemos desarrollada la vista para ver dicho plano. Constituyen en sí el calor del cuerpo emocional y del cuerpo sensorio. Son de orden inferior mientras se hallan en el sendero del deseo, y de orden superior cuando están en el sendero de la aspiración; entonces el elemental se trasmuta en deva.
+
+Tienen muchos grados y categorías, pero sus nombres no interesan, excepto en un caso. Será importante conocer el nombre que se aplica a los devas del fuego, cuya misión es cuidar los fuegos que más tarde destruirán al cuerpo causal. Debemos recordar que el ascenso del fuego latente en la materia y su fusión con los otros dos fuegos causa destrucción. Estos elementales y devas se denominan **Agnisuryas**, siendo en <pin lang="en">68</pin> su totalidad las esencias ígneas de budi, de manera que su manifestación más inferior es el sexto plano, el astral.
+
+En este tratado se dará más adelante una detallada y extensa Información sobre estas vidas dévicas.
 
 [^1]: La esencia divina que compenetra el entero universo de millones de sistemas solares, es arrebatada por nuestro Sol y trasmitida, en forma manifestada, a los confines de nuestro sistema solar, a fin de que esta esencia manifestada sea la tierra fértil para el crecimiento, conservación y destrucción de nuestros mundos; esa esencia divina es simplemente el Nadam de la filosofía yogui; este Nadam u OM se manifiesta como siete corrientes. Lo inmanifestado se manifiesta o es gestado por las ramificaciones subsiguientes. Estas corrientes son las siete vocales y las siete notas. Estas siete vocales y notas han de tener una correlación especial con los siete versículos védicos, pues en el Vishnu Purana, Parasara describe los versículos védicos como cauces de la esencia solar. Some Thougts on the Gita, pág. 74.
 
