@@ -153,6 +153,79 @@ En el sistema solar ocurrirá lo mismo al término de un Mahamanvantara. El Logo
 
 ## II. LA NATURALEZA DEL PRANA
 
+Cuando nos ocupamos del cuerpo etérico y sus funciones, como asimilador y distribuidor de prana, lo hemos hecho desde el punto de vista del lugar que ocupa en el esquema de las cosas. Consideramos el tema desde el punto de vista de las analogías, indicando dónde se hallan en el sistema, en el planeta y en el hombre.
+
+Hemos visto que constituye el fundamento de la forma física y que es, en sí mismo, el vínculo más importante entre:
+
+1. El hombre físico y el plano emocional o astral.
+2. El Hombre planetario y la cualidad emocional, esencial.
+3. El Logos, el gran Hombre celestial, y el plano astral cósmico.
+
+Podemos ahora limitar el tema a la consideración del cuerpo etérico del ser humano, sin tocar las analogías del sistema o cósmicas; aunque quizás sería conveniente recordar que el estudiante inteligente obtiene la sabiduría <pin lang="en">88</pin> por la línea interpretativa; quien se conoce a sí mismo (como manifestación objetiva, cualidad esencial y desarrollo comprensivo), conoce también al Señor de su Rayo y al Logos de su sistema. Por lo tanto sólo es cuestión de aplicación, expansión consciente e interpretación inteligente; además debe abstenerse sensatamente de hacer afirmaciones dogmáticas, y ha de reconocer que la analogía se encuentra en la cualidad y en el método empleado más que en ajustarse estrictamente a una acción específica en un determinado momento de la evolución.
+
+El material de estudio que es posible dar aquí, si se reflexiona detenidamente, puede inducir a llevar una vida práctica más inteligente, empleando el término “vivir” en su sentido esotérico. Estudiando dicho material en forma científica, filosófica y religiosa puede conducir también a desarrollar los objetivos del proceso evolutivo en el ciclo menor inmediato. Por eso nuestro objetivo consiste en hacer más real el cuerpo secundario del hombre y en exponer algunas de sus funciones y la forma en que podrá ser puesto oportuna y conscientemente al alcance de la comprensión mental.
+
+La ciencia, como bien sabemos, está llegando rápidamente a la <pin lang="es">99</pin> etapa en que se verá obligada a admitir la realidad del cuerpo etérico, pues las dificultades que surgirán al negarlo serán tan insuperables como admitir su existencia. Los científicos aceptan ya la existencia de la materia etérica; el éxito obtenido en la fotografía ha demostrado la realidad de lo que hasta ahora fue considerado irreal, porque es intangible desde el punto de vista físico. Continuamente ocurren fenómenos considerados sobrenaturales que pueden ser explicados por medio de la materia etérica, y los científicos, en su empeño por demostrar que los espiritistas están equivocados, han ayudado a la causa del espiritismo verdadero y superior, apoyándose en la realidad y en la existencia del cuerpo etérico, aunque lo consideren (pues se interesan en los efectos sin haber descubierto la causa) un cuerpo que <pin lang="en">89</pin> emana irradiación. La ciencia médica empieza a estudiar (aunque a ciegas) la cuestión de la vitalidad, el efecto de los rayos solares sobre el organismo físico y las leyes subyacentes en el calor inherente e irradiante. Atribuye al bazo funciones no reconocidas anteriormente y estudia los efectos de la acción de las glándulas y su relación con la asimilación de las esencias vitales a través de la estructura corporal. Se halla en el verdadero camino; no pasará mucho tiempo (quizás en el curso de este siglo) sin que la REALIDAD del cuerpo etérico y sus funciones básicas sea afirmada más allá de toda controversia y el objetivo de la medicina, preventiva y curativa, pase, entonces, a un nivel superior. Todo lo que podemos hacer aquí es dar simplemente, y en forma condensada, algunos datos que podrán acelerar el día de su reconocimiento, lo cual despertará mayor interés en el verdadero investigador. Permítaseme, por lo tanto, enunciar brevemente lo que se tratará en los tres puntos que resta considerar:
+
+1. Las funciones del cuerpo etérico.
+2. Su relación con el físico durante la vida.
+3. Los males y las enfermedades del cuerpo etérico (teniendo en cuenta el significado original de la palabra “enfermedad”).
+4. Su condición después de la muerte.
+
+Lo indicado abarcará aquello que es de utilidad práctica en la actualidad. Luego adquiriremos más conocimiento si lo transmitido al público es aplicado cuidadosamente, y si los investigadores estudian inteligente, sensata y ampliamente tan importante tema.
+
+A medida que la naturaleza del cuerpo etérico y su función ocupen en el pensamiento del mundo el lugar que les corresponde, y la gente se dé cuenta de que el etérico es el más importante de los dos cuerpos físicos, el hombre hará contacto consciente e íntimo con otras evoluciones <pin lang="en">90</pin> que existen en materia etérica, así como lo hace en el cuerpo físico denso. Existen ciertos grandes grupos de <pin lang="es">100</pin> devas denominados “devas de las sombras” o devas violeta, que están íntimamente vinculados con el desarrollo evolutivo del cuerpo etérico humano, y le transmiten irradiaciones solares y planetarias. El cuerpo etérico humano recibe prana de diferentes maneras y de diversas clases, que lo ponen en contacto con distintas entidades.
+
+### 1. Prana Solar.
+
+Fluido vital y magnético que irradia del sol, y se trasmite al cuerpo etérico del hombre por mediación de ciertas entidades dévicas de orden muy elevado y de matiz dorado. Pasa a través de los cuerpos de dichas entidades, que lo emiten en potentes irradiaciones, aplicadas directamente a ciertos plexos situados en la parte superior del cuerpo etérico, en la región de la cabeza y de los hombros, desde donde descienden a la analogía etérica del órgano físico, el bazo, y de allí se transmiten enérgicamente al mismo. Estas entidades pránicas, de matiz dorado, se encuentran en el aire sobre nosotros, y están especialmente activas en algunas partes del mundo, como California y en las regiones tropicales, donde el aire es puro y seco y los rayos del sol son considerados esencialmente benéficos. Las relaciones que existen entre el hombre y este grupo de devas son muy íntimas, pero aún muy peligrosas para el hombre. Los devas tienen mucho poder y, en su propia línea, están más evolucionados que el hombre. El ser humano que no sabe protegerse está a merced de éstos, y debido a ello y a la incomprensión de las leyes de resistencia magnética o de repulsión solar, está propenso a la insolación. Cuando el cuerpo etérico y sus procesos asimilativos sean comprendidos científicamente, el hombre se inmunizará de los peligros de la irradiación solar. Se protegerá por la aplicación de las leyes que rigen <pin lang="en">91</pin> la repulsión y la atracción magnéticas y no meramente mediante el vestido y el techo. Por lo general es cuestión de polarización. Podría sugerirse que cuando los hombres comprendan la evolución dévica más correctamente, sepan cómo trabajar en ciertas líneas relacionadas con el Sol y se den cuenta de que tal evolución representa el polo femenino, así como el hombre representa el masculino (la cuarta Jerarquía creadora es masculina)[^6] comprenderán su interrelación y regirán esa relación de acuerdo a la ley.
+
+Estos devas solares reciben los irradiantes rayos del sol, los <pin lang="es">101</pin> cuales salen desde el centro y llegan hasta la periferia por uno de los tres canales de acercamiento, los pasan por su organismo y los enfocan allí. Actúan casi como un vidrio de aumento que concentra los rayos solares. Luego son reflejados o transmitidos al cuerpo etérico humano, que los capta y asimila. Cuando el cuerpo etérico es sano y funciona correctamente, absorbe bastante prana para mantener la forma organizada. Este es el objetivo de la función del cuerpo etérico, cosa que nunca se hará resaltar suficientemente. El prana sobrante se emite como irradiación animal o magnetismo físico; ambos términos expresan la misma idea. Por lo tanto, el hombre repite, en escala menor, la tarea de los grandes devas solares y a su vez agrega su cuota de emanaciones, repolarizada o remagnetizada, a la suma total del aura planetaria.
+
+:::note Recuerda
+
+Cuando el cuerpo etérico es sano y funciona correctamente, absorbe bastante prana para mantener la forma organizada. Este es el objetivo de la función del cuerpo etérico, cosa que nunca se hará resaltar suficientemente.
+
+:::
+
+### 2. Prana Planetario.
+
+Fluido vital que emana de cualquier planeta y constituye su coloración o cualidad fundamental, debido a que se repite dentro del planeta el mismo proceso <pin lang="en">92</pin> que tiene lugar respecto al hombre y al prana solar. El planeta (ya sea la tierra o cualquier otro) absorbe el prana solar, lo asimila en la cantidad requerida e irradia el que no necesita para su bienestar, en forma de irradiación planetaria. El prana planetario es, por lo tanto, prana solar que ha pasado a través del planeta, ha circulado por el cuerpo etérico planetario, ha sido transmitido al cuerpo físico denso del planeta y emitido por éste como irradiación, con la misma característica esencial que la del prana solar, además de la cualidad individual y distintiva del planeta implicado. La repetición del proceso tiene lugar en el cuerpo humano. Las irradiaciones físicas de los hombres difieren de acuerdo a la calidad de sus cuerpos físicos. Lo mismo ocurre con un planeta.
+
+El prana que emana del planeta (como en el caso del prana solar) es recibido y transmitido por medio de un grupo determinado de devas denominados “devas de las sombras”, devas etéricos de matiz ligeramente violado. Los cuerpos de estos devas están compuestos de materia de alguno de los cuatro éteres, y enfocan y concentran las emanaciones del planeta y de todas las formas que existen en el mismo. Debido a la esencial similitud de su sustancia corpórea con la sustancia etérica humana se hallan muy íntimamente vinculados con los seres humanos, transmitiéndole el magnetismo de la "Madre Tierra”. Como vemos, dos grupos de devas trabajan en conexión con el hombre:
+
+1. Los devas solares le trasmiten el fluido vital que circula por el cuerpo etérico. <pin lang="es">102</pin>
+2. Los devas planetarios de color violeta, vinculados al cuerpo etérico del hombre, le transmiten el prana de la tierra o del planeta en el cual actúe el hombre durante una encarnación física.
+
+Aquí podrían formularse varios interrogantes y, aunque no expliquemos plenamente el misterio, hacerse algunas <pin lang="en">93</pin> sugerencias. ¿Cuál es la causa de la aparente falta de vida en la Luna? ¿Existe allí vida dévica? El prana solar ¿produce algún efecto allí? ¿ En qué difiere la Luna, aparentemente muerta, de un planeta vivo tal como la Tierra? [^7]
+
+Aquí nos enfrentamos con un misterio, cuya solución -para quienes investigan- quedará revelada en el hecho de que no existen seres humanos ni ciertos grupos de devas en la Luna. *El hombre no ha dejado de existir en la Luna porque esté muerta y, por consiguiente, no pueda sustentarlo, sino que la Luna está muerta porque el hombre y los devas se han retirado de su superficie y de su esfera de influencia.* [^8] El hombre y los devas actúan en cada planeta como intermediarios o agentes transmisores. Donde ellos no habitan resulta imposible realizar ciertas actividades, sobreviniendo la desintegración. La razón de ese retiro se halla en la Ley cósmica de Causa y Efecto o karma cósmico, y en la historia conjunta, aunque individual, de uno de los Hombres celestiales cuyo cuerpo fue, en un momento determinado, la Luna o cualquier otro planeta.
+
+### 3. Prana de las Formas.
+
+Ante todo se ha de advertir que las formas son de dos clases, cada una de las cuales ocupa un lugar diferente en el esquema:
+
+Formas resultantes del trabajo realizado por el tercero y el segundo Logos y las vidas conjuntas de Estos. Dichas formas constituyen las unidades de los reinos vegetal, animal y mineral.
+
+Formas resultantes de la acción unida de los tres Logos, comprendiendo estrictamente la formas dévicas y humanas.
+
+Existe también una forma más simple incorporada a la sustancia con la cual están hechas todas las formas, siendo estrictamente de materia atómica y molecular, animada por la vida o energía del tercer Logos. <pin lang="en">94</pin> <pin lang="en">95</pin>
+
+Con respecto al primer grupo de formas se ha de observar que las emanaciones pránicas, emitidas por las unidades de los reinos animal y vegetal (después que han absorbido el prana solar y planetario), son lógicamente la combinación de ambos, siendo transmitidas por medio de irradiaciones superficiales, como el prana <pin lang="es">103</pin> solar y el planetario, a ciertos grupos de devas menores de orden no muy elevado, que tienen una curiosa e intrincada relación con el alma grupal del animal o del vegetal que las irradia. De ello no podemos ocuparnos aquí. Estos devas tienen también un matiz violado, pero tan pálido que es casi gris; están en estado de transición y se mezclan en forma confusa con grupos de entidades que se encuentran en el arco involutivo [^9] [^10] [^11]
+
+<pin lang="en">96</pin> Respecto al segundo grupo, la forma humana transmite las irradiaciones emanantes a un grupo de devas de grado mucho más elevado. Estos devas tienen un matiz más pronunciado, los cuales después de asimilar debidamente la irradiación humana, la trasmiten principalmente al reino animal, demostrándose así la íntima relación existente entre estos dos reinos. Si la explicación que antecede sobre la complicada interacción entre el Sol y los planetas, entre éstos y las formas que evolucionan en ellos y entre dicha, formas y aquellas inferiores, sirve para demostrar aunque <pin lang="es">104</pin>
+
+![Logos de un sistema solar](../assets/LogosDeUnSistemaSolar.gif)
+
+<pin lang="es">105</pin> sólo sea la exquisita interdependencia de todo lo existente, mucho se habrá logrado.
+
+Otro hecho que debe hacerse resaltar es la íntima relación existente entre todas las evoluciones de la naturaleza, desde el Sol celestial a la violeta más humilde, por mediación de la <pin lang="en">97</pin> evolución dévica, que actúa como fuerza transmisora y transmutadora en todo el sistema.
+
+Por último, todos trabajan con fuego. Fuego interno, inherente y latente, irradiante y emanante; generado, asimilado e irradiado; vivificador, estimulador y destructor; fuego transmitido, reflejado y absorbido, base de toda vida; esencia de todo lo que existe y agente que desarrolla e impulsa lo que se halla detrás de todo proceso evolutivo; fuego edificador, preservador y constructor; fuego originador, el proceso y la meta; fuego purificador y consumidor. El Dios del Fuego y el fuego de Dios interactúan hasta que todos los fuegos se fusionen y ardan y todo lo que existe haya pasado por el fuego -desde un sistema solar hasta una hormiga-, surgiendo como triple perfección. Entonces el fuego emergerá como esencia perfecta del “círculo no se pasa”, ya sea la del “círculo no se pasa” humano, planetario o solar. La rueda del fuego gira; todo <pin lang="es">106</pin> lo que se halla dentro de ella es sometido a una triple llama, y con el tiempo todo llega a la perfección.
+
+## III. LA FUNCIÓN DEL CUERPO ETERICO
+
+
 [^1]: "Prana o principio vital, es la relación especial que existe entre Atma y cierta forma de materia, la cual, debido a su relación con Atma, se organiza y erige en un medio para adquirir experiencia. Esta relación especial constituye el prana individual del cuerpo individual. El omniabarcante prana cósmico no es prana, según el sentido de la palabra, sino el nombre aplicado a Brahma como productor de prana individual... Todos los seres, ya sean Devas, hombres o animales, existen mientras sus cuerpos contienen prana. Constituye la duración de todo lo que existe...Prana o vitalidad, es la función común de la mente y de los sentidos." Serpent Power, 94-95.
 
 [^2]: D. S. I, 100.
@@ -164,3 +237,65 @@ En el sistema solar ocurrirá lo mismo al término de un Mahamanvantara. El Logo
 [^4]: Principios son las diferenciaciones básicas, cualidades esenciales o tipos de energía sobre las cuales se construyen todas las cosas; imparten a todas las formas su naturaleza característica.
 
 [^5]: Pralaya. Período de oscuración o reposo -planetario, del sistema o cósmico. Intervalo entre dos períodos de manifestación.
+
+[^6]: D. S. I, 235
+
+    El cosmos es guiado, controlado y animado por una serie casi interminable de Jerarquías de Seres sensibles, teniendo cada uno una misión que cumplir. D. S. I, 287. Entre dichas Jerarquías se encuentras las mónadas humanas.
+
+[^7]: D. S. I, 181-190.
+
+[^8]: D. S. I, 188-189.
+
+[^9]: Arco Involutivo es el término aplicado a la primera parte del proceso evolutivo. Abarca el "sendero de descenso" o descenso del Espíritu en la materia cada vez más densa hasta llegar al punto más inferior, el punto máximo de la concreción. La parte final del proceso se denomina evolutivo y señala el ascenso o retorno del Espíritu a su fuente de origen, llevando consigo lo que ha adquirido durante el proceso evolutivo.
+
+[^10]: "Las Tres Emanaciones. En el diagrama, los símbolos de los tres aspectos (del Logos) están colocados fuera de tiempo y espacio, y sólo las corrientes de influencia que emanan de ellos descienden a nuestro sistema de planos... Representan, en debido orden, lo que comúnmente se denomina las tres Personas de la Trinidad... Se observará en cada una de ellas una emanación de vida o fuerza que se proyecta a los planos que se hallan abajo. La primera de ellas en orden correlativo es la línea recta que desciende desde el tercer Aspecto; la segunda la constituye el óvalo grande colocado en el lado izquierdo de la materia, luego asciende nuevamente por el lado derecho hasta llegar al nivel mental inferior. Se observará que ambas emanaciones de la vida divina se oscurecen y velan a medida que descienden a la materia, a tal grado que en el punto inferior casi no se las reconoce como vida divina; pero al volver a elevarse y pasar su nadir comienzan a verse con mayor claridad. La tercera emanación que desciende del Aspecto más elevado del Logos difiere de las otras en el sentido de que no está oscurecida por la materia a través de la cual pasa sino que conserva su pureza virginal y su esplendor inmaculado. Se comprenderá que dicha emanación sólo desciende hasta el nivel del plano búdico (cuarto plano) y que el vínculo entre ambas lo representa el triángulo dentro del círculo, que representa el alma individual del hombre -el ego reencarnante. La tercera emanación está representada aquí por el triángulo y la segunda por el círculo..." The Christian Creed, C.W. Leadbeater, págs. 39-40.
+
+[^11]: D. S. I, 121-122, 125.
+
+    1. La raíz de la vida se hallaba en cada gota de agua del océano de la inmortalidad. La vida del Logos compenetró todo átomo de la materia.
+    2. El océano era luz radiante, siendo Fuego, Calor, Movimiento. Estos tres son la vida subjetiva manifestándose objetivamente. Fuego: Esencia del primer Logos. Fuego eléctrico. Espíritu. Calor: Dualidad. Esencia del segundo Logos. Fuego solar. Aspecto hijo. Conciencia. Movimiento: Esencia del tercer Logos. Fuego por fricción. Materia.
+
+    **EL MACROCOSMOS**
+
+    |               |            |                                                          |
+    | ------------- | ---------- | -------------------------------------------------------- |
+    | Primer Logos  | Fuego      | Voluntad de vivir o de ser. Eléctrico                    |
+    | Segundo Logos | Calor      | Dualidad o amor entre dos. Solar.                        |
+    | Tercer Logos  | Movimiento | Fuego de la mente, "relación entre". Fuego por fricción. |
+
+    Esta es la expresión subjetiva
+
+    |                |                           |
+    | -------------- | ------------------------- |
+    | El Sol         | Voluntad o poder          |
+    | Venus-Mercurio | Amor y sabiduría          |
+    | Saturno        | Actividad o inteligencia. |
+
+    Esta es la expresión objetiva
+
+    **EL MICROCOSMOS**
+
+    |                 |                    |                          |
+    | --------------- | ------------------ | ------------------------ |
+    | La Mónada       | Fuego eléctrico    | Voluntad o poder.        |
+    | El Ego          | Fuego solar        | Amor y sabiduría         |
+    | La personalidad | Fuego por fricción | Actividad o inteligencia |
+
+    Esta es la expresión subjetiva
+
+    |               |                     |            |
+    | ------------- | ------------------- | ---------- |
+    | Cuerpo mental | Voluntad o poder    | Fuego      |
+    | Cuerpo astral | Amor-sabiduría      | Calor      |
+    | Cuerpo físico | Inteligencia activa | Movimiento |
+
+    Ésta es la expresión objetiva
+
+    **CUERPO FISICO**
+
+    |                    |              |                                   |
+    | ------------------ | ------------ | --------------------------------- |
+    | Cerebro            | Mónada       | Voluntad o poder. Fuego eléctrico |
+    | Corazón            | Ego          | Amor-sabiduría . Fuego solar      |
+    | Órganos inferiores | Personalidad | Inteligencia activa.              |
+    
