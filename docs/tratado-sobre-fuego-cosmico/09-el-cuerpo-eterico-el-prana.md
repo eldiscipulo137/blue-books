@@ -225,6 +225,129 @@ Por último, todos trabajan con fuego. Fuego interno, inherente y latente, irrad
 
 ## III. LA FUNCIÓN DEL CUERPO ETERICO
 
+Continuaremos nuestro estudio respecto al cuerpo etérico a fin de analizar sus funciones y su relación con el cuerpo físico.
+
+Será conveniente considerarlos conjuntamente, porque se interrelacionan tan íntimamente, que no es posible estudiarlos por separado. Las principales funciones del cuerpo etérico son tres:
+
+1. Receptor de prana.
+2. Asimilador de prana.
+3. Transmisor de prana.
+
+### 1. Receptor de Prana
+
+El cuerpo etérico puede clasificarse como negativo o receptivo respecto a los rayos del sol, y como <pin lang="en">98</pin> positivo o expulsor respecto al cuerpo físico denso. Su segunda función, la asimilativa, está estrictamente equilibrada y es interna. Como se explicó anteriormente, el cuerpo etérico absorbe las emanaciones pránicas del sol por medio de ciertos centros situados principalmente en la parte superior del cuerpo, desde los cuales descienden al centro denominado bazo etérico, su contraparte en materia etérica. El centro principal receptor de prana, en la actualidad, está situado entre los dos omóplatos. Hay otro centro situado un poco más arriba del plexo solar que ha quedado, debido a los abusos de la llamada civilización, parcialmente aletargado. La próxima raza raíz, y cada vez más la presente, valorará la necesidad de exponer dichos centros a los rayos del sol, lo cual aumentará la vitalidad física y la adaptabilidad. Los centros situados
+
+1. entre los omóplatos,
+2. arriba del diafragma y
+3. en el bazo,
+
+forman, si pudiéramos verlo, un triángulo etérico radiante donde se origina el impulso para la ulterior circulación pránica que recorrerá todo el sistema. El cuerpo etérico está realmente formado por una red de finos canales, que forman un sutil cordón trenzado -el cual es parte del eslabón magnético que une los cuerpos físico y astral, cortándose al retirarse el cuerpo etérico del cuerpo físico denso en el momento de la muerte. Como lo expresa la Biblia, [^12] el cordón plateado se corta. Esto fundamenta la leyenda de la “hermana fatal que corta el hilo de la vida con las temidas tijeras”. <pin lang="es">107</pin>
+
+La trama etérica está compuesta por el complicado tejido de este cordón vitalizado, y separados de los siete centros <pin lang="en">99</pin> de la trama (Centros sagrados, de los cuales el bazo se considera frecuentemente uno de ellos) se hallan los dos ya mencionados, que forman con el bazo, un triángulo activo. La trama etérica del sistema solar es análoga, e igualmente posee tres centros receptores de prana cósmico. La misteriosa franja del firmamento denominada Vía Láctea [^13] está íntimamente relacionada con el prana cósmico, vitalidad cósmica o alimento que vitaliza al sistema etérico solar.
+
+### 2. Asimilador de Prana
+
+El proceso de asimilación se lleva a cabo en el triángulo mencionado; el prana, al penetrar por cualquiera de esos centros, circula tres veces por todo el triángulo, antes de ser transmitido al vehículo etérico y de éste al cuerpo físico denso. El órgano principal de asimilación es el bazo -el centro etérico y el órgano físico denso. La esencia vital procedente del sol penetra en el bazo etérico; en éste es sometida a un proceso de intensificación o desvitalización, lo cual depende del estado de salud de dicho órgano. Si el hombre está sano la emanación recibida será intensificada por la vibración individual, y el grado de vibración será acelerado antes que el prana pase al bazo físico. Si el estado de salud no es bueno, el grado de vibración disminuye y se hace más lento el proceso.
+
+Estos tres centros, parecidos a platillos, tienen la misma forma que los demás y se asemejan a pequeños remolinos que atraen a su esfera de influencia las corrientes que se ponen a su alcance.
+
+Los centros pueden describirse como vórtices giratorios, unidos entre si por el triple canal compactamente entretejido, que casi forma un sistema circulatorio separado. Este sistema tiene su punto de salida <pin lang="en">100</pin> en el lado del bazo, opuesto a aquel por el cual penetra el prana. El fluido vital circula tres veces por estos tres centros y entre ellos antes de pasar a la periferia de su pequeño sistema. Después de circular el prana por los finos canales entrelazados pasa por todo el cuerpo, impregnándolo totalmente con sus emanaciones si así puede expresarse. Dichas emanaciones salen finalmente del sistema etérico, irradiándose por la superficie. La esencia pránica sale de la circunferencia de su “circulo no se pasa” temporario como emanante prana humano, que es el mismo prana recibido anteriormente pero cargado, durante su transitoria circulación, con la cualidad peculiar que el individuo le transmite. La esencia sale, llevando la cualidad individual.
+
+En esto tenemos una nueva analogía de cómo se evaden todas <pin lang="es">108</pin> las esencias de cualquier “círculo no se pasa”, una vez terminado su ciclo.
+
+El tema del cuerpo etérico es de gran interés práctico. Cuando el hombre se de cuenta de su importancia, prestará mayor atención a la distribución de prana en el cuerpo, y procurará que su vitalización, a través de los tres centros, no sea entorpecida.
+
+Aunque necesariamente el tema se ha de tratar en forma superficial, y sólo pueden darse esbozos y sugerencias espaciadas, se hallará sin embargo, que si se lo estudia detalladamente, impartirá un conocimiento de las verdades cuyo contenido y calidad resultará valioso y algo que hasta ahora no había sido enseñado. El lugar que ocupa la envoltura etérica, como separadora o “círculo no se pasa”, y su función como receptora y distribuidora de prana, se dilucidan aquí en forma mucho más extensa que antes; posiblemente más adelante el tema será ampliado.
+
+Del conjunto de datos tan superficialmente tratados se desprenden dos verdades fundamentales:
+
+<pin lang="en">101</pin> Primero. El cuarto subplano etérico del plano físico es la preocupación inmediata de
+
+1. el hombre, el microcosmos,
+2. el Hombre celestial, el Logos planetario,
+3. el gran Hombre de los Cielos, el Logos solar.
+
+Segundo. En la cuarta cadena y cuarta ronda se comienza a estudiar el cuarto éter que -visto como trama separadora- permite la salida ocasional de las vibraciones correspondientes.
+
+### 3. Transmisor de Prana.
+
+Hasta ahora muy poco nos hemos referido al tema del fuego, pues el propósito del cuerpo etérico es llevarlo y distribuirlo por todo su sistema; sólo hemos tratado los hechos que podrán despertar el interés y acentuar la utilidad del vehículo pránico. Debemos considerar y recalcar ciertos hechos, a medida que estudiamos este círculo estático y sus fuegos circulantes. Para mayor claridad vamos a recapitular brevemente lo ya expuesto:
+
+El Sistema recibe prana de fuentes cósmicas, por medio de tres centros, y lo redistribuye a todas las partes de su dilatada influencia, hasta los límites de la trama etérica solar. Este prana cósmico está coloreado por la cualidad solar y llega a los más apartados confines del sistema. Podría decirse que su misión consiste en vitalizar el vehículo, la expresión material física del Logos solar.
+
+El Planeta recibe prana del centro solar y lo redistribuye, por medio de tres centros receptores, a todas las partes de su esfera de <pin lang="es">109</pin> influencia. Este prana solar está coloreado por la cualidad planetaria y es absorbido por todo lo que evoluciona dentro del “círculo no se pasa” planetario. Podría decirse que su misión consiste en vitalizar el vehículo de expresión material física de cualquiera de los siete Hombres celestiales.
+
+<pin lang="en">102</pin> El Microcosmos recibe prana proveniente del Sol, después dé haber compenetrado el vehículo etérico planetario, de modo que además de ser prana solar, posee la cualidad planetaria. Cada planeta es la personificación de un aspecto de Rayo, y su cualidad se destaca predominantemente durante toda su evolución.
+
+Por lo tanto, prana es calor irradiante, su vibración y cualidad varían de acuerdo a la Entidad receptora. Al pasar el prana por el cuerpo etérico del hombre, es coloreado por su propia cualidad peculiar transmitiéndolo a esas vidas menores que componen su propio sistema. Así se produce una gran interacción; todas las partes se mezclan y fusionan, dependiendo una de otra, y todas reciben, coloran, cualifican y transmiten. Tiene lugar así una interminable circulación sin principio concebible ni posible fin, desde el punto de vista del hombre finito, porque su origen y fin se hallan ocultos en la ignota fuente cósmica. Si existieran en todas partes perfectas condiciones, esta circulación continuaría sin interrupción y sería casi interminable, pero el fin y la limitación son producidos por la imperfección, que gradualmente es reemplazada por la perfección. Cada ciclo se origina en otro ciclo aún no finalizado, cediendo su lugar a otra espiral más elevada; así se suceden periodos de aparente y relativa perfección, que conducen a periodos de mayor perfección.
+
+El objetivo de este ciclo mayor consiste, como sabemos, en fusionar los dos fuegos de la materia, latentes y activos, sumergiéndolos con los fuegos de la mente y del espíritu, hasta que desaparezcan en la llama general; los fuegos de la mente y del espíritu consumen la materia y con ello liberan la vida de los vehículos que la confinan. EI altar terreno es el lugar donde nace el espíritu, quien lo libera de la madre (materia), y es también la entrada a reinos superiores.
+
+Cuando el vehículo pránico funcione correctamente en los tres grupos humano, planetario y solar, se logrará la unión con el fuego latente. Por esta <pin lang="en">103</pin> razón se recalca la necesidad de construir vehículos físicos puros y refinados. Cuanto más refinada y sutil sea la forma, será mejor receptora de prana y ofrecerá menos resistencia a la acción del kundalini en el momento asignado. La materia tosca y los cuerpos burdos e inmaduros son una amenaza para el ocultista; ningún verdadero vidente tendrá un cuerpo burdo. El peligro de ser desintegrado es muy grande y la amenaza de ser <pin lang="es">110</pin> destruido por el fuego es terrible. Ya una vez en la historia (en la época lemuriana) [^14] la raza y los continentes fueron destruidos por medio del fuego. Los Guías de la raza, en esa época, aprovecharon tal acontecimiento para eliminar la forma inadecuada. El fuego latente en la materia (por ejemplo, en las erupciones volcánicas) y el fuego irradiante del sistema se combinaron. El kundalini planetario y la emanación solar entraron en conjunción y tuvo lugar el trabajo de destrucción. Lo mismo podría volver a ocurrir, pero sólo en la materia del segundo éter, y sus efectos no serían tan graves debido a la sutilidad de dicho éter y al refinamiento comparativamente mayor de los vehículos.
+
+:::note Recuerda
+
+Cuanto más refinada y sutil sea la forma, será mejor receptora de prana y ofrecerá menos resistencia a la acción del kundalini en el momento asignado. La materia tosca y los cuerpos burdos e inmaduros son una amenaza para el ocultista; ningún verdadero vidente tendrá un cuerpo burdo. El peligro de ser desintegrado es muy grande y la amenaza de ser destruido por el fuego es terrible.
+
+:::
+
+Observaremos aquí un hecho interesante, aunque sea un misterio insoluble para la mayoría; las destrucciones producidas por el fuego son parte de las pruebas de fuego de una iniciación de ese Hombre celestial cuyo karma está ligado al de nuestra tierra.
+
+La destrucción de una parte de la trama hace más fácil la salida; en realidad (visto desde los planos superiores) es un paso adelante y una expansión. Su repetición se efectúa en el sistema, en ciclos determinados. <pin lang="en">104</pin>
+
+### 4. Desórdenes del Cuerpo Etérico.
+
+Estudiaremos ahora el cuerpo etérico, sus dolencias y también su condición “post-mortem”. Me ocuparé de ello muy brevemente. Todo lo que puedo hacer es indicar, en líneas generales, las dolencias fundamentales a las cuales el cuerpo etérico puede estar sujeto, y la orientación que la medicina podrá seguir más adelante, cuando se comprendan mejor las leyes ocultas. Haré resaltar un hecho significativo que ha sido poco comprendido y ni siquiera captado: las dolencias que padece el vehículo etérico del microcosmos las padece también el del Macrocosmos. Lo antedicho encierra la explicación de los aparentes sufrimientos de la naturaleza. Algunos de los grandes males del mundo tienen su origen en las dolencias etéricas; extendiendo la idea, lo mismo puede decirse respecto a las condiciones planetarias e incluso las solares. Al tratar las causas de las dolencias etéricas en el hombre, quizás percibamos las analogías y reacciones de orden planetario y solar. Se deberá tener muy en cuenta, al estudiar esto, que las enfermedades del cuerpo etérico derivan de su triple propósito y podrían ser:
+
+1. funcionales, afectando por consiguiente la absorción de prana; <pin lang="es">111</pin>
+2. orgánicas, afectando de esta manera la distribución del prana;
+3. estáticas, afectando la trama considerada estrictamente como el “círculo no se pasa” físico, y como elemento separador entre el físico y el astral.
+
+Las tres funciones o propósitos antedichos son de primordial interés, producen resultados totalmente diferentes y reaccionan externa e internamente de distintas maneras.
+
+Consideradas desde el punto de vista planetario sé podrán percibir las mismas condiciones, y el cuerpo etérico planetario <pin lang="en">105</pin> (que es fundamentalmente el cuerpo de los planetas sagrados, de los cuales la Tierra no es uno de ellos) también tendrá sus desórdenes funcionales que afectarán la absorción de prana, y sufrirá trastornos orgánicos que alterarán su distribución produciendo dificultades en la trama etérica, el “círculo no se pasa” del Espíritu planetario involucrado. Quisiera advertirles que en los Espíritus planetarios que se hallan en el arco evolutivo divino, los Hombres celestiales, cuyos cuerpos son planetas, la trama etérica no constituye una barrera, sino que (al igual que los Señores kármicos, pero en un plano superior) pueden actuar libremente fuera de los limites de la trama planetaria, dentro de la circunferencia del circulo no se pasa solar. [^15]
+
+Desde el punto de vista del sistema, puede observarse que los mismos efectos están vinculados funcionalmente con el centro cósmico orgánicamente, con la totalidad de los sistemas planetarios y estáticamente, con el “círculo no se pasa” solar o logoico.
+
+Podemos ahora, para mayor claridad, considerar estos tres grupos en forma separada, e indicar brevemente (lo único que puedo hacer) los métodos curativos y rectificadores.
+
+a. Desordenes funcionales en el microcosmos. En el hombre, se relacionan con la absorción de los fluidos pránicos por medio de sus correspondientes centros. Debemos tener siempre en cuenta y saber distinguir con claridad que las emanaciones de prana tienen relación con el fuego latente en la materia; cuando son recibidas y actúan correctamente a través del cuerpo etérico, colaboran con el calor natural latente <pin lang="en">106</pin> del cuerpo y al mezclarse lo vitalizan, <pin lang="es">112</pin> imponiendo a su materia cierto grado de acción vibratoria, que lleva al vehículo físico a la necesaria actividad y al correcto funcionamiento de sus órganos. Por lo tanto, es evidente que el a b c de la salud física se halla sujeto a la correcta recepción del prana, y que uno de los cambios fundamentales en la vida del animal humano (el aspecto que estamos considerando) deberá efectuarse en las condiciones comunes del vivir diario.
+
+Se ha de procurar que los tres centros principales, utilizados para la recepción de prana, funcionen con más libertad y menos restricción. Debido al actual sistema erróneo de vida seguido durante siglos y a los errores fundamentales originados en la época lemuriana, los tres centros pránicos del hombre no funcionan correctamente en la actualidad. El centro entre los omóplatos es el que está en mejores condiciones receptivas, aunque, debido a una deficiente condición de la columna vertebral (que en muchas personas está desviada), su ubicación en la espalda quizá no es exacta. El centro del bazo, situado cerca del diafragma, es de tamaño menor que lo normal y su vibración no es correcta. En el caso de los aborígenes de las islas del Pacífico sur, sus condiciones etéricas son mejores y su vida es más normal (desde el punto de vista animal) que en cualquier otra parte del mundo.
+
+La raza en general carece de ciertas capacidades, situación que puede ser descrita de la manera siguiente:
+
+Primero. Incapacidad para extraer de las corrientes pránicas, debido a la vida malsana que lleva la mayoría. Esto interrumpe el aprovisionamiento proveniente de la fuente de origen y causa la consiguiente atrofia y reducción de los centros receptores. Ello se observa, con exageración, en los niños de las zonas muy pobladas de las grandes ciudades y en los moradores anémicos y viciosos de los bajos fondos. La cura es evidente: mejores condiciones de vida, uso <pin lang="en">107</pin> de ropas más adecuadas y adopción de métodos de vida más independientes y saludables. Una vez que los rayos pránicos tengan libre acceso a los hombros y al diafragma, la condición subnormal del bazo se ajustará automáticamente.
+
+Segundo. Excesiva capacidad de extracción de las corrientes pránicas. El primer tipo de desorden funcional mencionado es común y muy difundido. Su opuesto se encuentra donde las condiciones de vida son de tal naturaleza que los centros (por estar expuestos y sometidos directa y prolongadamente a las emanaciones solares) se desarrollan excesivamente, vibran muy rápidamente y reciben demasiado prana. Esto es poco frecuente, pero sucede en algunos países tropicales, siendo en gran parte la causa de la molesta debilidad que ataca a sus moradores. El cuerpo etérico recibe el prana o los rayos solares con demasiada rapidez y <pin lang="es">113</pin> permite que entre y salga del sistema con excesiva fuerza, dejando a la víctima presa de la inercia y la desvitalización. En otras palabras, el cuerpo etérico se hace perezoso; es como una tela inconsistente (empleando un ejemplo muy familiar), semejante al tejido de una raqueta de tenis que se ha aflojado y ha perdido elasticidad. El triángulo interno transmite las emanaciones de prana con demasiada rapidez, no permitiendo la subsidiaria absorción, y lógicamente sufre todo el sistema; más adelante se descubrirá que la mayoría de las dolencias sufridas por los europeos en la India tienen su origen en esto, y algunas de las dificultades se eliminarán cuidando el bazo y regulando inteligentemente las condiciones de vida.
+
+Al analizar las condiciones similares que imperan en el planeta, se perciben las mismas dificultades. Nada más puedo decir, pero al estudiar inteligentemente la acción de la radiación solar sobre la superficie del planeta, en relación con su movimiento giratorio, se comprenderán y aplicarán algunas reglas grupales sanitarias. El espíritu del planeta (o entidad planetaria) tiene análogamente sus ciclos: el secreto de la fertilidad y de la vegetación se halla en la adecuada absorción y distribución del <pin lang="en">108</pin> prana planetario. Gran parte de esto se oculta en la fabulosa leyenda que se refiere a la lucha entre el fuego y el agua, basada en la reacción del fuego latente en la materia, oponiéndose al fuego que viene de lo externo de sí misma y actúa sobre ella. En el intervalo que transcurre mientras ambas están en proceso de fusionarse, se suceden esos períodos, durante los cuales, debido a la herencia kármica, la absorción es irregular y la distribución desigual. Cuando se haya alcanzado el punto de equilibrio racial, se logrará también el equilibrio planetario y con ello se obtendrá un equilibrio recíproco entre los planetas solares. Una vez que hayan obtenido mutuo equilibrio e interacción, entonces el sistema se estabilizará y se llegará a la perfección. La distribución equitativa de prana irá paralela al equilibrio obtenido por el hombre, la raza, el planeta y el sistema. Ésta es otra manera de decir, que se logrará una vibración uniforme.
+
+b. Desórdenes orgánicos microcósmicos. Éstos, fundamentalmente son dos:
+
+1. Malestares producidos por congestión.
+2. Destrucción de los tejidos, a causa de la excesiva absorción de prana o su fusión demasiado rápida con el fuego físico latente.
+
+Un ejemplo de ambos lo tenemos en la insolación y en la sofocación o acaloramiento. Aunque los médicos creen conocerlos, sin embargo constituyen desórdenes etéricos. Cuando se comprenda mejor la naturaleza del cuerpo etérico y se lo cuide inteligentemente, se podrán prevenir ambas clases de dolencias. Son <pin lang="es">114</pin> ocasionadas por la emanación solar pránica. En ciertos casos su efecto es la muerte o una enfermedad grave, a causa de la congestión de un canal etérico; mientras que en otros, el mismo efecto se produce por la destrucción de la materia etérica.
+
+El ejemplo dado tiene un propósito definido; <pin lang="en">109</pin> pero debe observarse que la congestión etérica puede traer otras dolencias además de incapacidad mental. La congestión etérica hace que la trama adquiera un espesor anormal que puede impedir, por ejemplo, establecer contacto con el Yo superior o principios, y traer como resultado la idiotez y el desequilibrio mental. También podría ocasionar un crecimiento carnoso anormal y engrosamiento de algún órgano interno, produciendo la consiguiente y excesiva presión; la parte congestionada del cuerpo etérico puede alterar totalmente la condición física y dar lugar a diversas dolencias.
+
+La destrucción de los tejidos puede ocasionar varios tipos de demencia, especialmente las incurables. Por otra parte, al quemarse la trama permitirá la entrada de corrientes astrales extrañas, contra las cuales el hombre no tiene defensa; los tejidos cerebrales podrían destruirse a causa de esta presión y surgir serias dificultades debido a la destrucción de alguna parte del “círculo no se pasa” etérico.
+
+Algo por el estilo puede ocurrir respecto al planeta. Más adelante se dará información que hasta ahora no ha sido suministrada y pondrá de manifiesto en qué forma han sido influenciadas razas enteras y perturbados ciertos reinos de la naturaleza, por la congestión etérica planetaria o la destrucción de tejidos etéricos planetarios.
+
+Hemos tratado las dolencias funcionales y orgánicas del etérico, dando ciertas indicaciones para luego extender el concepto a otras esferas, además de la estrictamente humana. En el reino humano se halla la llave que abrirá la puerta a una más amplia interpretación, puesto que permite la entrada a los misterios de la naturaleza. Aunque la llave debe hacerse girar siete veces, sin embargo, una sola vuelta revela inconcebibles avenidas de eventual Comprensión. [^16] [^17]
+
+<pin lang="es">115</pin> <pin lang="en">110</pin> Hemos considerado la recepción y distribución de las emanaciones pránicas en el hombre, en el planeta y en el sistema y observado las causas que producen desórdenes momentáneos y la desvitalización o la vitalización excesiva de la forma orgánica. Ahora estudiaremos el tema desde un tercer ángulo:
+
+c. Desórdenes estáticos microcósmicos, o el cuerpo etérico considerado en su función de proveer un “circulo no se pasa” entre lo estrictamente físico y lo astral. Según ya se ha dicho aquí y en los libros de H. P. B, el “círculo no se pasa” [^18] es la barrera que actúa corno separadora o línea divisoria entre un sistema y lo que se halla fuera del mismo. Como se comprenderá tiene interesantes correlaciones, si consideramos el tema (como corresponde) desde el punto de vista del ser humano, de un planeta y de un sistema, recordando siempre que al estudiar el <pin lang="en">111</pin> cuerpo etérico tratamos con materia física, lo cual no debe olvidarse nunca. Por lo tanto, en todo grupo y conglomerado se hallará un factor dominante, debido al hecho de que el “círculo no se pasa” actúa como un obstáculo para aquello que es de poca importancia en la evolución, pero no constituye una barrera para lo que es de importancia en la misma. Todo depende de dos cosas: del karma, ya sea el del <pin lang="es">116</pin> hombre, del Logos planetario o del Logos solar, y del dominio que ejerce la entidad espiritual interna sobre su vehículo.
+
+## IV. ETERES MACROCOSMICOS Y MICROCÓSMICOS
+
+
+
+
+
 
 [^1]: "Prana o principio vital, es la relación especial que existe entre Atma y cierta forma de materia, la cual, debido a su relación con Atma, se organiza y erige en un medio para adquirir experiencia. Esta relación especial constituye el prana individual del cuerpo individual. El omniabarcante prana cósmico no es prana, según el sentido de la palabra, sino el nombre aplicado a Brahma como productor de prana individual... Todos los seres, ya sean Devas, hombres o animales, existen mientras sus cuerpos contienen prana. Constituye la duración de todo lo que existe...Prana o vitalidad, es la función común de la mente y de los sentidos." Serpent Power, 94-95.
 
@@ -299,3 +422,35 @@ Por último, todos trabajan con fuego. Fuego interno, inherente y latente, irrad
     | Corazón            | Ego          | Amor-sabiduría . Fuego solar      |
     | Órganos inferiores | Personalidad | Inteligencia activa.              |
     
+[^12]: La Biblia. Ecc.: XII, 6.
+
+[^13]: D.S.II, 236.
+
+[^14]: En La Doctrina Secreta, T. II, la llamada en la página 141 se refiere a la destrucción de Lemuria por el fuego, y la llamada en la página 146, T. III, dice: "Lemuria no se sumergió, sino que fue destruida por una erupción volcánica y luego se hundió".
+
+[^15]: Espíritu planetario es otra denominación del Logos de nuestro planeta, uno de los siete Espíritus ante el Trono, por consiguiente uno de los siete Hombres celestiales. Se encuentra en el arco evolutivo del universo y ha avanzado muchos estados más allá del humano.
+
+    La Entidad planetaria se halla en el arco involutivo y es una Entidad de grado muy inferior. Es la suma total de todas las vidas elementales del planeta.
+
+[^16]: Las Llaves de la Doctrina Secreta, por H.P. Blavatsky. Véase D. S. II, 33; IV, 192.
+
+    1. Todo símbolo y alegoría tiene siete llaves. D. S. IV, 105-106;V ,22-23
+    2. Sólo tres llaves se hallaban disponibles en el siglo XIX. D. S. IV, 84 Compárense IV, 150, 350.
+    3. Existen siete llaves para abrir la puerta de Entrada a los Misterios. D. S. V, 167. Compárense II, 37; III, 305; III, 195-196, 250-251.
+    4. Las llaves que sugiere H. P. B. son las siguientes:
+       1. Psicológica. D. S. III, 38, llamada; 1,72.
+       2. Astronómica. D.S. III, 38, llamada; I, 72; V, 183.
+       3. Física y fisiológica. D. S. II, 38, llamada; V, 183.
+       4. Metafísica. D. S. II, 38, llamada; V , 183.
+       5. Antropológica. D. S. II, 72; V, 183.
+       6. Geométrica. D. S. IV, 40; V, 165.
+       7. Mística. D. S. II, 82.
+       8. Simbólica. D. S. IV, 100.
+       9. Numérica. D. S. III, 189.
+    5. Se debe hacer girar cada llave siete veces. D. S. I, 62.
+    6. Los judíos se valieron de dos llaves.
+    7. La llave metafísica está disponible. D. S. II, 29. Compárese V, 183.
+
+[^17]: "las siete llaves abren los misterios pasados y presentes, de las siete grandes razas raíces y de los siete kalpas." Todo libro sobre ocultismo, símbolos y alegorías, puede tener siete interpretaciones. Existen tres cerraduras que han de ser abiertas. Existen siete llaves. Todo libro puede leerse en forma exotérica, subjetiva y espiritual. Aún no están disponibles todas las llaves (D. S. II, 22, 33). Tenemos la llave fisiológica, la psicológica, la astrológica y la metafísica. La quinta es la geométrica.
+
+[^18]: "Círculo no se pasa". Circunferencia de la esfera de influencia correspondiente a todo centro de vida positiva. Incluye la esfera de fuego del trabajo magnético que realiza el orbe solar, considerado como cuerpo de manifestación de un Logos solar, incluso de todo un sistema solar. Este término se aplica también a la esfera de actividad de un Logos planetario o a un esquema planetario, y el mismo podría aplicarse a la esfera de actividad de un ser humano. D.S. II, 35-36.
