@@ -509,6 +509,65 @@ Si el hombre persiste vida tras vida en esta línea de acción, descuidando su d
 
 ## V. LA MUERTE Y EL CUERPO ETERICO
 
+<p>
+<pin lang="en">128</pin> No tenemos el propósito de exponer hechos para que la ciencia los verifique, ni de indicar la dirección del nuevo paso que han de dar los investigadores científicos; si esto sucede es casual y secundario. Nos proponemos especialmente señalar el desarrollo y las analogías de la triple totalidad, que hace de nuestro sistema solar lo que es -el vehículo por medio del cual una gran ENTIDAD cósmica, el Logos solar, manifiesta inteligencia activa con el propósito de demostrar perfectamente el aspecto amor de Su naturaleza. Detrás de este designio existe un propósito, posterior y esotérico, <pin lang="es">129</pin> oculto en la Conciencia Voluntad del Ser Supremo, propósito que necesariamente se manifestará cuando se haya logrado el actual objetivo. La alternativa entre la manifestación objetiva y la oscuración subjetiva, la periódica exhalación, seguida de la inhalación de todo aquello que ha sido llevado a cabo por intermedio de la evolución, personifica, en el sistema, una de las vibraciones cósmicas fundamentales y la tónica de esa ENTIDAD cósmica de la cual somos el cuerpo. Los latidos del corazón del Logos (si se puede expresar en forma tan inadecuada) son la fuente de toda la evolución cíclica; de allí la importancia que se le atribuye a ese aspecto del desarrollo, denominado del “corazón” o del “amor”, y el interés que despierta el estudio del ritmo. Esto no sólo es verdad, cósmica y macro cósmicamente, sino también cuando se estudia al ente humano. Subyacentes en todas las sensaciones físicas producidas por el ritmo, la vibración, los ciclos y los latidos del corazón, se hallan las analogías subjetivas -amor, sentimiento, emoción, deseo, armonía, síntesis y orden consecutivo- y detrás de estas analogías se halla el origen de todo, la identidad de ese Supremo Ser que así
+</p>
+
+:::note Recuerda
+
+ Los latidos del corazón del Logos (si se puede expresar en forma tan inadecuada) son la fuente de toda la evolución cíclica; de allí la importancia que se le atribuye a ese aspecto del desarrollo, denominado del “corazón” o del “amor”, y el interés que despierta el estudio del ritmo.
+
+:::
+
+Por lo tanto, el estudio del pralaya, la extracción de la vida del cuerpo etérico, no variará, ya sea que se <pin lang="en">129</pin> estudie la extracción del cuerpo etérico humano, la del doble etérico planetario o la del doble etérico del sistema solar. El efecto es el mismo y las consecuencias son similares.
+
+¿Cuál es el resultado de dicha extracción, o más bien, qué es lo que causa ese algo que llamamos muerte o pralaya? Debido a que hemos adoptado el estilo de un libro de texto, continuaremos en este tratado con nuestros métodos de clasificación. La extracción del cuerpo etérico del hombre, de un planeta o de un sistema se debe a las causas siguientes:
+
+a. **Cesación del deseo**. Debería ser el resultado de todo proceso evolutivo. La verdadera muerte, de acuerdo a la ley, se produce por haberse alcanzado el objetivo y por haber cesado la aspiración. Esto sucede cuando el ciclo perfecto llega a su término, respecto al ser humano individual, al Hombre celestial y al Logos Mismo.
+
+b. **Logro de la vibración adecuada y la realización del trabajo por la reducción y cesación gradual del ritmo cíclico**. Cuando la vibración o nota se siente o emite perfectamente, produce (en el punto donde se sintetiza con otras vibraciones) la total desintegración de las formas. El movimiento se caracteriza, como sabemos, por tres Cualidades.
+
+1. Inercia.
+2. Movilidad. 
+3. Ritmo.
+
+<p>
+<pin lang="es">130</pin> Las tres se experimentan sucesivamente en el orden indicado y presuponen un período de actividad lenta, seguido por otro de máximo movimiento. Este período intermedio (cuando se busca la nota exacta y el grado de vibración) produce incidentalmente periodos de caos, de experimento, de experiencia y de comprensión. A continuación de estos dos tipos de movimiento (que caracterizan al átomo, al Hombre, al Hombre celestial <pin lang="en">130</pin>o grupo y al Logos o la Totalidad) viene un período de ritmo y estabilización, en que se alcanza el punto de equilibrio. El pralaya es la consecuencia inevitable de la fuerza equilibradora, que trae equilibrio a los pares de opuestos.
+</p>
+
+c. **Separación del cuerpo físico del cuerpo sutil, en los planos internos, mediante la desintegración de la trama**. Esto tiene un efecto triple:
+
+Primero. La vida que ha animado a la forma física (tanto densa como etérica) y que partiendo del átomo permanente “compenetró lo activo y lo estático” (lo que se encuentra en Dios, en el Hombre celestial, en el ser humano, lo mismo que en el átomo de la materia), se recoge totalmente dentro del átomo en el plano de abstracción. Este “plano de abstracción” es distinto para cada uno de los entes implicados:
+
+1. Para el átomo físico permanente, es la esfera atómica.
+2. Para el hombre, es el vehículo causal.
+3. Para el Hombre celestial, es el segundo plano de la vida monádica, lugar donde habita.
+4. Para el Logos, es el plano de Adi.
+
+Estos puntos indican donde desaparece la unidad en el pralaya. Debemos tener presente que siempre es pralaya observado desde abajo. Desde la visión superior, que percibe lo más sutil cerniéndose constantemente sobre lo denso cuando no está en manifestación objetiva, pralaya es simplemente subjetividad, aquello que es esotérico no aquello “que no es”.
+
+Segundo. El doble etérico del hombre, el del Logos planetario, así como el del Logos solar, cuando se desintegra, ya no se polariza con su morador interno, y por lo tanto puede evadirse. Ya no es (para expresarlo en otras palabras) fuente de atracción ni punto focal magnético. Se convierte en no magnético, cesando de regirlo la gran Ley de Atracción, <pin lang="en">131</pin> por eso la desintegración es la condición inmediata de la forma. El Ego ya no es atraído por su forma en el plano físico y, mediante la inhalación, retira su vida de la envoltura. El ciclo se acerca a su fin, ya se ha llevado a cabo el experimento, se ha alcanzado el objetivo -el cual es relativo en cada vida y en cada encarnación-, entonces ya no se desea nada.
+
+<p>
+<pin lang="es">131</pin> El Ego o ente pensante pierde su interés por la forma y dirige su atención internamente. Cambia su polarización y, con el tiempo, abandona el cuerpo físico.
+</p>
+
+Similarmente, el Logos planetario durante Su ciclo mayor (la síntesis o conglomerado de los minúsculos ciclos de las células de Su cuerpo) sigue el mismo curso; cesa de ser atraído hacia abajo, hacia afuera, y dirige Su mirada hacia adentro; recoge internamente el conglomerado de pequeñas vidas dentro de Su cuerpo, el planeta, y corta la conexión. La atracción por lo externo cesa y todo gravita hacia el centro en vez de dispersarse hacia la periferia de Su cuerpo.
+
+En el sistema, el Logos solar sigue el mismo proceso; desde Su elevado lugar de abstracción ya no le atrae Su cuerpo de manifestación porque ha dejado de interesarle, y los dos pares de opuestos, el espíritu y la materia del vehículo, se separan. Con esta separación el sistema solar, el “Hijo de la necesidad” o del deseo, deja de ser y sale de su existencia objetiva.
+
+Tercero. Finalmente se produce la dispersión de los átomos del cuerpo etérico, que vuelven a su condición primitiva. Se retira La vida subjetiva, se activa la síntesis de la voluntad y del amor. La sociedad se disuelve. Entonces la forma se desintegra porque el magnetismo que la mantenía coherente ya no está presente y la dispersión es total. Persiste la materia pero no la forma.
+
+El trabajo del segundo Logos termina, y la divina <pin lang="en">132</pin> encarnación del Hijo llega a su fin. Pero la facultad o cualidad, inherente a la materia persiste, y al fin de cada período de manifestación la materia (aunque vuelve a su forma primitiva) llega a ser materia inteligente activa, Incorporando lo adquirido durante la objetividad y la acrecentada actividad latente e irradiante lograda por la experiencia. Permítaseme dar un ejemplo: la materia indiferenciada del sistema solar fue materia inteligente activa, y esto es todo lo que se puede afirmar de ella. Dicha materia inteligente activa era materia cualificada por una experiencia anterior y coloreada en una encarnación anterior. Ahora esta materia tiene forma, el sistema solar no se encuentra en pralaya, sino en objetividad; esta objetividad tiene por objeto agregar otra cualidad al contenido logoico, la cualidad amor sabiduría. Por consiguiente, en el próximo pralaya solar, al final de los cien años de Brahma, la materia del sistema solar estará coloreada por la inteligencia y el amor activos. Esto significa, textualmente, que el conjunto de materia atómica solar vibrará, con el tiempo, a un ritmo distinto que en los albores de la manifestación.
+
+Puede aplicarse este mismo razonamiento al Logos planetario y a la unidad humana, pues la analogía es perfecta. En pequeña escala, tenemos la analogía en el hecho de que en cada período de la <pin lang="es">132</pin> vida humana el hombre ocupa un cuerpo físico más evolucionado y de mayor sensibilidad, sintonizado a una vibración más alta, más refinada, y vibrando a un ritmo diferente. Estos tres conceptos contienen mucha información si se estudian y amplían.
+
+d. **La transmutación del color violeta en azul**. Sobre esto no nos podemos extender. Simplemente lo exponemos, dejando su elucidación a los estudiantes cuyo karma se lo permita y su intuición esté suficientemente desarrollada.
+
+e. **Mediante la extracción de la vida, la forma se disipará gradualmente**. Resulta interesante observar la acción refleja, pues los Constructores y Devas superiores, <pin lang="en">133</pin> agentes activos durante la manifestación, que mantienen la forma de un conjunto coherente, transmutan, aplican y hacen circular las emanaciones pránicas, y ya no les atrae la materia de la forma sino que dirigen su atención a otra cosa. En el sendero de exhalación (ya sea humano, planetario o logoico) estos Devas constructores (que se hallan en el mismo Rayo o en uno complementario al del ente que desea manifestarse) son atraídos por su voluntad y deseo, y realizan su tarea de construcción. En el sendero de inhalación (humano, planetario o logoico) ya no son atraídos, y la forma empieza a disiparse. Pierden su interés, y las fuerzas (entidades), agentes de destrucción, efectúan el trabajo necesario de destruir la forma; la dispersan (como se dice en ocultismo) a “los cuatro vientos del cielo” o a las regiones de los cuatro alientos -cuádruple separación y distribución. Aquí hay una sugerencia que merece un detenido estudio.
+
+Aunque no han sido descritas, como era de esperarse, las escenas desarrolladas en el lecho de muerte, ni la dramática evasión del palpitante cuerpo etérico a través del centro coronario, sin embargo se han dado algunas de las reglas y propósitos que rigen dicha evasión. Hemos visto que el objetivo de cada vida (humana, planetaria o solar) consiste en realizar y llevar adelante un propósito definido. Propósito que involucra el desarrollo de una forma más adecuada para uso del espíritu; una vez logrado, el Morador interno dirige su atención a otra parte, y la forma se desintegra después de haber llenado su cometido. Esto no siempre ocurre en cada vida humana ni en cada ciclo planetario. El misterio de la Luna es el misterio del fracaso. Conduce, una vez comprendido, a llevar una vida digna, ofreciéndonos un objetivo que merece nuestros mejores esfuerzos. Cuando este aspecto de la verdad sea reconocido universalmente, y lo será si la inteligencia de la raza se desarrolla suficientemente, entonces la evolución avanzará con certeza y los fracasos disminuirán.
+
 
 
 [^1]: "Prana o principio vital, es la relación especial que existe entre Atma y cierta forma de materia, la cual, debido a su relación con Atma, se organiza y erige en un medio para adquirir experiencia. Esta relación especial constituye el prana individual del cuerpo individual. El omniabarcante prana cósmico no es prana, según el sentido de la palabra, sino el nombre aplicado a Brahma como productor de prana individual... Todos los seres, ya sean Devas, hombres o animales, existen mientras sus cuerpos contienen prana. Constituye la duración de todo lo que existe...Prana o vitalidad, es la función común de la mente y de los sentidos." Serpent Power, 94-95.
