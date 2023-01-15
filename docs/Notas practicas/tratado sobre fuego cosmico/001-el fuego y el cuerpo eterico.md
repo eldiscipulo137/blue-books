@@ -1,0 +1,73 @@
+---
+title: El fuego y el cuerpo etérico
+---
+
+# El fuego y el cuerpo etérico
+
+> [Tratado sobre fuego cósmico](/tratado-sobre-fuego-cosmico/el-cuerpo-eterico-el-prana#3-propósito-protector-del-cuerpo-etérico)
+
+:::warning Advertencia
+
+Si alguien, valiéndose del poder de la voluntad o por el desarrollo excesivo del aspecto mental de su temperamento, adquiere el poder de fusionar y activar los fuegos de la materia, corre peligro de obsesión, locura, muerte física o de que una terrible enfermedad ataque alguna parte del cuerpo; también corre el riesgo de desarrollar excesivamente el impulso sexual, debido a que la fuerza activa asciende en forma desordenada, forzando su irradiación a centros indeseables.
+
+<pin lang="es">128</pin> El hombre desprevenido, que no sabe a qué Rayo pertenece, y por lo tanto desconoce la exacta forma geométrica triangular <pin lang="en">127</pin> del correcto sistema de circulación entre un centro y otro, impulsará el avance del fuego en forma indebida, quemando así los tejidos; esto dará por resultado (si no ocurre algo peor) retrasar en varias vidas el reloj de su progreso evolutivo, porque tendrá que dedicar mucho tiempo a reconstruir lo destruido y a recapitular correctamente el trabajo que debe efectuar.
+
+Si el hombre persiste vida tras vida en esta línea de acción, descuidando su desarrollo espiritual y concentrando su esfuerzo intelectual en la manipulación de la materia para fines egoístas, y si a pesar de las advertencias de su yo interno y de aquellos que vigilan, continúa haciéndolo durante un extenso período de tiempo, puede acarrearse la propia destrucción, que significará el fin de su manvantara o ciclo. También, la unión de estos fuegos, el de la materia y la doble expresión del fuego mental puede llegar a destruir totalmente el átomo físico permanente y con ello cortar la conexión con el yo superior por eones de tiempo. H. P. B. se ha referido a algo de esto cuando habla de las “almas perdidas”
+:::
+
+## 3. Propósito Protector del Cuerpo Etérico.
+
+Después de esta extensa dilucidación dejaremos las cosas cósmicas e incomprensibles y entraremos en lo que atañe a la evolución; estudiaremos la materia del cuerpo etérico del hombre y el daño que le puede ocasionar si no llena (por haber quebrantado la ley) su función protectora. Ante todo veamos cuáles son esas funciones protectoras:
+
+Primero. La trama etérica actúa como separadora y divisoria entre el cuerpo astral y el físico denso.
+
+Segundo. Permite la circulación o afluencia de la vitalidad o fluido pránico, acción que realiza en tres etapas.
+
+En la primera etapa se reciben el fluido pránico y <pin lang="en">123</pin> las radiaciones solares, que circulando tres veces por el triángulo pránico y distribuyéndose de éste a la periferia del cuerpo, animan y vitalizan los órganos físicos, lo cual permite que el cuerpo de materia densa actúe automática o subconscientemente. Cuando el etérico desempeña perfectamente su función, protege de las enfermedades; el hombre que absorbe y distribuye el prana correctamente, desconoce las dolencias de la carne. Los médicos deben tener esto en cuenta, pues cuando llegue a ser debidamente comprendido traerá cambios fundamentales en la medicina y en vez de curativa será preventiva.
+
+<p>
+<pin lang="es">125</pin> En la segunda etapa los fluidos pránicos comienzan a fusionarse con el fuego en la base de la columna vertebral y a impulsar dicho fuego lentamente hacia arriba, transfiriendo su calor de los centros situados debajo del plexo solar a los tres centros superiores, cardíaco, laríngeo y coronario. Este es un proceso largo y lento cuando se lo deja exclusivamente librado a las fuerzas de la naturaleza. En esta etapa se permite, en ciertos casos, acelerar el proceso, a fin de equipar a los que trabajan para servir a la humanidad. Es el objetivo que persigue todo entrenamiento ocultista. Este aspecto del tema será tratado más adelante cuando encaremos el tópico que trata de “El Kundalini y la Columna Vertebral”.
+</p>
+
+En la tercera etapa la materia radiante y activa o prana, se fusiona con el fuego latente en la materia en forma más perfecta; esto trae por resultado, como veremos más adelante, ciertos efectos.
+
+Produce el aceleramiento de la vibración normal del cuerpo físico, a fin de que responda con más rapidez a la nota superior del Ego, causando además la constante elevación de los fuegos fusionadores a través del triple canal de la columna vertebral. Este fuego vitalizador que se ha fusionado en la segunda etapa llega hasta un centro situado en la parte inferior de los omóplatos, punto de conjunción y de total fusión del fuego proveniente de la base de la <pin lang="en">124</pin> columna vertebral y del fuego que circula por el triángulo pránico. Se recordará que uno de los vértices de este triángulo se origina allí. Una vez que el triple fuego básico y el triple fuego pránico se unen y fusionan, la evolución avanza con mayor rapidez. Esto se efectúa definidamente en la primera Iniciación, cuando la <pin lang="es">126</pin> polarización sé fija en cualquiera de los tres centros superiores, lo cual depende del rayo a que pertenece el individuo.
+
+A consecuencia de esta fusión, tiene lugar un cambio en la acción de los centros, que se convierten en “ruedas que giran sobre sí mismas” y su movimiento exclusivamente giratorio se transforma en actividad cuatridimensional, manifestándose como centros giratorios irradiantes de fuego viviente.
+
+Los tres centros principales de la cabeza (el orden consecutivo varía de acuerdo al Rayo) entran en actividad, desarrollándose entre ellos un proceso similar al efectuado en el triángulo pránico. Al no ser ya tres los centros que reaccionan débilmente al reciproco movimiento vibratorio (sintiendo cada uno el calor y el ritmo de los otros, aunque en forma separada), el fuego salta de un centro a otro, quedando unida cada rueda giratoria por una cadena de fuego, hasta formar un triángulo ígneo por el cual los fuegos kundalínico y pránico van oscilando hacia atrás y hacia adelante a la vez que circulando. El fuego kundalínico produce el calor del centro, así como su intenso fulgor y brillo, mientras que el fuego pránico emanante produce creciente actividad y rotación.
+
+A medida que transcurre el tiempo, entre la primera y la cuarta iniciaciones, el cuerpo etérico y el triple canal de la columna vertebral se limpian y purifican gradualmente, gracias a la acción del fuego, hasta que (como dicen los cristianos) se quema toda la “escoria” y nada impide ya el avance de esta llama.
+
+A medida que el fuego kundalínico y el prana continúan su tarea y el canal se va despejando, los centros se hacen más activos y el cuerpo se purifica, entonces, la llama <pin lang="en">125</pin> del Espíritu o el fuego proveniente del Ego desciende con más energía, hasta que emana de la cúspide de la cabeza una llama resplandeciente, surgiendo hacia arriba y a través de los cuerpos, en dirección a su fuente de origen, el cuerpo causal.
+
+Con la activación simultánea de los fuegos de la materia y del Espíritu, los de la mente o manas arden con mayor intensidad. Éstos son los fuegos conferidos en la individualización. Son nutridos continuamente por el fuego de la materia, y su calor aumenta debido al fuego solar emanante, que tiene su origen en los niveles cósmicos de la mente. Este aspecto del fuego manásico se desarrolla como instinto, memoria animal y recuerdo activo, tan evidentes en el hombre poco evolucionado. A medida que transcurre el tiempo, el fuego de la mente arde con más brillo, hasta que empieza a quemar y a traspasar la trama etérica -en esa parte de la trama que resguarda al centro situado en la cúspide de la cabeza, permitiendo así la entrada al fuego del Espíritu. De esta manera se produce lo siguiente:
+
+<p>
+<pin lang="es">127</pin> La mente o el aspecto voluntad, desde el plano mental, dirige y regula conscientemente el fuego kundalínico. Por el poder mental del hombre, se mezclan los dos fuegos de la materia, primero entre sí, y luego con el fuego de la mente.
+</p>
+
+Dicha fusión destruye (por Ley y orden) la trama etérica, trayendo la consiguiente continuidad de conciencia, permitiendo que penetre en la vida personal del hombre, la “Vida más abundante”, o tercer fuego del Espíritu.
+
+La precipitación del Espíritu y el ascenso de los fuegos internos de la materia (regulados y dirigidos por la acción consciente del fuego de la mente) producen los correspondientes resultados en los mismos niveles de los planos astral y mental, produciéndose así un contacto paralelo, y prosiguiendo en forma ordenada la gran tarea de liberación.
+
+Las tres primeras iniciaciones perfeccionan <pin lang="en">126</pin> y conducen a la cuarta, donde la intensidad y unidad de estos fuegos consumen totalmente las barreras, liberándose el Espíritu de su triple envoltura inferior mediante el esfuerzo conscientemente dirigido. El hombre ha consumado así, conscientemente, su propia liberación. Estos resultados son autoinducidos por el hombre al emanciparse en los tres mundos, quien destruye la rueda de los renacimientos, en vez de ser destruido por ella.
+
+Por lo expuesto, es evidente la gran importancia que tiene el vehículo etérico al actuar como factor separador de los fuegos. Esto pone de manifiesto los peligros a que está expuesto quien trate de manipular, ignorante, imprudente y caprichosamente, dichos fuegos.
+
+Si alguien, valiéndose del poder de la voluntad o por el desarrollo excesivo del aspecto mental de su temperamento, adquiere el poder de fusionar y activar los fuegos de la materia, corre peligro de obsesión, locura, muerte física o de que una terrible enfermedad ataque alguna parte del cuerpo; también corre el riesgo de desarrollar excesivamente el impulso sexual, debido a que la fuerza activa asciende en forma desordenada, forzando su irradiación a centros indeseables. La razón de esto reside en que la materia de su cuerpo no está suficientemente purificada para resistir la unión de las llamas, y el canal ascendente de la columna vertebral se halla obstruido o bloqueado, por consiguiente actúa como barrera, haciendo que la llama retroceda hacia abajo; esta llama (conjunción de llamas producidas por el poder de la mente, sin el simultáneo descenso del poder, desde el plano del espíritu) al quemar el etérico, permite la entrada de fuerzas, corrientes y hasta entidades extrañas e indeseables. Éstas destruyen, rasgan y deterioran lo que queda del vehículo etérico, de los tejidos del cerebro y hasta del mismo cuerpo físico denso.
+
+<p>
+<pin lang="es">128</pin> El hombre desprevenido, que no sabe a qué Rayo pertenece, y por lo tanto desconoce la exacta forma geométrica triangular <pin lang="en">127</pin> del correcto sistema de circulación entre un centro y otro, impulsará el avance del fuego en forma indebida, quemando así los tejidos; esto dará por resultado (si no ocurre algo peor) retrasar en varias vidas el reloj de su progreso evolutivo, porque tendrá que dedicar mucho tiempo a reconstruir lo destruido y a recapitular correctamente el trabajo que debe efectuar.
+</p>
+
+Si el hombre persiste vida tras vida en esta línea de acción, descuidando su desarrollo espiritual y concentrando su esfuerzo intelectual en la manipulación de la materia para fines egoístas, y si a pesar de las advertencias de su yo interno y de aquellos que vigilan, continúa haciéndolo durante un extenso período de tiempo, puede acarrearse la propia destrucción, que significará el fin de su manvantara o ciclo. También, la unión de estos fuegos, el de la materia y la doble expresión del fuego mental puede llegar a destruir totalmente el átomo físico permanente y con ello cortar la conexión con el yo superior por eones de tiempo. H. P. B. se ha referido a algo de esto cuando habla de las “almas perdidas” [^28] [^29]; aquí debemos hacer hincapié sobre la realidad de este terrible desastre y advertir sobre los peligros que amenazan a quienes tratan de manipular los fuegos de la materia. La fusión de estos fuegos ha de ser el resultado del conocimiento espiritualizado, dirigida únicamente por la Luz del Espíritu, que es amor y actúa por medio del amor y busca la unificación y la total fusión, no desde el punto de vista de los sentidos o de la satisfacción material, sino con el fin de obtener la liberación y la purificación y establecer la unión superior con el Logos; dicha unión no debe desearse para fines egoístas porque constituye la meta de la perfección grupal cuya finalidad es prestar un mayor servicio a la raza.
+
+:::warning Advertencia
+
+Si alguien, valiéndose del poder de la voluntad o por el desarrollo excesivo del aspecto mental de su temperamento, adquiere el poder de fusionar y activar los fuegos de la materia, corre peligro de obsesión, locura, muerte física o de que una terrible enfermedad ataque alguna parte del cuerpo; también corre el riesgo de desarrollar excesivamente el impulso sexual, debido a que la fuerza activa asciende en forma desordenada, forzando su irradiación a centros indeseables.
+
+<pin lang="es">128</pin> El hombre desprevenido, que no sabe a qué Rayo pertenece, y por lo tanto desconoce la exacta forma geométrica triangular <pin lang="en">127</pin> del correcto sistema de circulación entre un centro y otro, impulsará el avance del fuego en forma indebida, quemando así los tejidos; esto dará por resultado (si no ocurre algo peor) retrasar en varias vidas el reloj de su progreso evolutivo, porque tendrá que dedicar mucho tiempo a reconstruir lo destruido y a recapitular correctamente el trabajo que debe efectuar.
+
+Si el hombre persiste vida tras vida en esta línea de acción, descuidando su desarrollo espiritual y concentrando su esfuerzo intelectual en la manipulación de la materia para fines egoístas, y si a pesar de las advertencias de su yo interno y de aquellos que vigilan, continúa haciéndolo durante un extenso período de tiempo, puede acarrearse la propia destrucción, que significará el fin de su manvantara o ciclo. También, la unión de estos fuegos, el de la materia y la doble expresión del fuego mental puede llegar a destruir totalmente el átomo físico permanente y con ello cortar la conexión con el yo superior por eones de tiempo. H. P. B. se ha referido a algo de esto cuando habla de las “almas perdidas”
+:::

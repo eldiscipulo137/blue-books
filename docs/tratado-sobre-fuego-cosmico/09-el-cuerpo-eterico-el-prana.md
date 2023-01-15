@@ -344,8 +344,170 @@ c. Desórdenes estáticos microcósmicos, o el cuerpo etérico considerado en su
 
 ## IV. ETERES MACROCOSMICOS Y MICROCÓSMICOS
 
+### 1. El Logos Planetario y los Éteres.
 
+El hombre, el pensador interno, sale, durante el reposo, de su “círculo no se pasa” etérico y actúa en otra parte. Por lo tanto, de acuerdo a la ley, el Logos planetario puede igualmente salir de Su “círculo no se pasa” en épocas determinadas, que corresponderían a la hora de reposo del hombre o al pralaya en el planeta.
 
+El Logos solar hace lo mismo durante ciclos determinados, los cuales no son los que preceden a lo que denominamos pralaya solar, sino períodos menores que preceden a los “días de Brahma” o ciclos de actividad menor. Dichos ciclos están regidos por el karma. Así como el verdadero Hombre aplica la ley del karma a sus vehículos, y en su diminuto sistema es la analogía del cuarto grupo de entidades kármicas que denominamos los Señores Lipikas. Aquél aplica la ley a su triple naturaleza inferior. El cuarto grupo de Entidades extra cósmicas, quienes ocupan un lugar secundario respecto a los tres Logos cósmicos, la triple suma total de la naturaleza logoica, puede salir de los límites de Su “círculo no se pasa” solar en determinados ciclos. Este es un profundo misterio cuya complejidad aumenta si tenemos presente que la cuarta Jerarquía creadora de Mónadas humanas y los Señores Lipikas en Sus tres grupos (el primero <pin lang="en">112</pin> y el segundo grupo y los cuatro Maharajáes, constituyendo la totalidad de los triples regentes kármicos, se hallan entre el Logos solar y los siete Logos planetarios) están más íntimamente vinculados, y sus destinos más estrechamente entrelazados que las demás Jerarquías.
+
+Otro eslabón de esta cadena a ser considerado, reside en el hecho de que los cuatro rayos de la mente (que conciernen al karma del cuarto Logos planetario) tienen conjuntamente a su cargo el actual proceso evolutivo del Hombre, considerado como el Pensador. Estos cuatro, con los cuatro regentes kármicos, trabajan en íntima colaboración. En consecuencia tenemos los siguientes grupos que actúan recíprocamente:
+
+Primero. Los cuatro Maharajáes, o Señores Lipikas menores [^19], aplican el karma pasado y lo agotan en el presente. <pin lang="es">117</pin>
+
+Segundo. Los cuatro Lipikas del segundo grupo, según H. P. B., se ocupan de aplicar el karma futuro y manipular el destino futuro de las razas. La tarea del primer grupo de cuatro Lipikas cósmicos es oculta y sólo puede ser revelada parcialmente (y aún así en forma muy superficial) en la cuarta Iniciación, por lo tanto, no nos ocuparemos de ello.
+
+Tercero. La cuarta Jerarquía creadora de Mónadas humanas regida por una cuádruple ley kármica bajo la guía de los Lipikas.
+
+Cuarto. Los cuatro Logos planetarios [^20] de Armonía, Conocimiento, Pensamiento Abstracto y Ceremonial, constituyen <pin lang="en">113</pin> conjuntamente el Cuaternario de manas o mente, mientras se hallan en proceso de evolución, e influencian a todos los hijos de los hombres.
+
+Quinto. Los Señores de los Devas de los cuatro planos, el búdico o plano de la intuición espiritual, manas o el plano mental, el plano del deseo y el físico, se hallan similarmente vinculados a la evolución humana, en sentido más intimo que los tres superiores.
+
+Otra analogía interesante se encuentra en los siguientes hechos que aún están en proceso de desarrollo:
+
+En el cuarto plano o búdico, los Logos planetarios empiezan a salir de Su “círculo no se pasa” planetario, o trama etérica que tiene su contraparte en todos los planos.
+
+Cuando el hombre ha comenzado, por poco que sea, a coordinar el vehículo búdico o, expresándolo de otra manera, cuando ha desarrollado aunque en forma ínfima, el poder de establecer contacto con el plano búdico, empieza simultánea y conscientemente a adquirir la capacidad de evadirse de la trama etérica del plano <pin lang="es">118</pin> físico. Luego se evade de la analogía que subsiste en el plano astral y finalmente de la analogía existente en el cuarto subplano del plano mental, esta vez por medio de la unidad mental. Esto lleva, con el tiempo, a actuar en el causal, o sea a adquirir la capacidad de morar y estar activo en el vehículo egoico, el cual personifica el aspecto Amor-Sabiduría de la Mónada. Obsérvese que ésta es la analogía del hecho comprobado de que hoy la mayoría puede evadirse del cuerpo etérico y actuar en su <pin lang="en">114</pin> envoltura astral, el reflejo de la personalidad, de ese segundo aspecto.
+
+Cuando el hombre recibe la cuarta Iniciación actúa en el vehículo del cuarto plano, el búdico, y ha salido definitivamente del “círculo no se pasa” de la personalidad pasando al cuarto subplano mental. Nada lo retiene en los tres mundos. En la primera iniciación sale del “círculo no se pasa” en determinados momentos, pero aún debe salir de los tres niveles mentales superiores, que tienen sus analogías mentales en los éteres superiores, y desarrollar plena conciencia en estos tres subplanos superiores. Tenemos aquí la analogía de la tarea que el iniciado ha de realizar cuando alcance el cuarto plano solar o búdico. Además debe desarrollar plena conciencia en los tres planos superiores del Espíritu, antes de que pueda evadirse del “círculo no se pasa” solar, lo cual sólo se alcanza en la séptima Iniciación, recibida en algún lugar del sistema o en su analogía cósmica, a la cual llega por medio del sutratma o hilo cósmico de la vida. [^21]
+
+A este respecto la actual cuarta cadena terrestre es una de las más importantes, porque es el lugar asignado a la mónada humana para que domine el cuerpo etérico con el propósito de poder evadir las limitaciones humanas y planetarias. Esta cadena terrestre, aunque no es una de las siete cadenas planetarias sagradas, es hoy de importancia vital para el Logos planetario, quien la emplea temporariamente como medio para encarnar y manifestarse. En esta cuarta ronda llega a su fin la vida caótica y difícil, mediante el simple hecho de desintegrar <pin lang="en">115</pin> la trama etérica a fin de liberarse y emplear posteriormente una forma más adecuada.
+
+Otra serie de ideas surge si tenemos en cuenta que la ciencia en la actualidad está estudiando y desarrollando el conocimiento del cuarto éter, y en cierta medida se halla ya al servicio del hombre; que el cuarto subplano del plano astral es el campo normal <pin lang="es">119</pin> de acción del hombre medio y que en esta ronda está logrando salir del vehículo etérico; que el cuarto subplano del plano mental constituye el actual objetivo que debe lograr una cuarta parte de la familia humana; que el cuarto Manvantara verá que el “círculo no se pasa” solar ofrece caminos de escape para quienes hayan alcanzado el grado de desarrollo necesario; que los cuatro Logos planetarios lograrán evadir perfectamente su medio ambiente planetario y actuarán con mayor facilidad en el plano astral cósmico, repitiendo en niveles cósmicos lo que han logrado los entes humanos los cuales son las células de Sus cuerpos.
+
+Nuestro Logos solar, por ser de cuarto orden, empezará a coordinar Su cuerpo búdico cósmico, y a medida que desarrolle su mente cósmica obtendrá gradualmente, con ayuda de esa mente, la habilidad de establecer contacto con el plano búdico cósmico.
+
+Nos hemos detenido en estas posibilidades y analogías, porque es necesario reconocer el trabajo que se ha de realizar en conexión con la trama etérica antes de ocuparnos de las diversas causas que pueden entorpecer el progreso deseado, impidiendo la evasión prescrita y la liberación destinada. Más adelante consideraremos la trama etérica y su condición estática. Para ello tendremos que recordar dos cosas:
+
+Primero, esta condición estática es considerada como tal, únicamente cuando se la observa desde el punto de vista del hombre en la actualidad, y <pin lang="en">116</pin>se la denomina así a fin de esclarecer los cambios a efectuarse y los peligros a contrarrestarse. La evolución avanza tan despacio desde el punto de vista del hombre, que parece estacionaria, especialmente en lo que concierne a la evolución etérica.
+
+Segundo, debemos tener en cuenta que únicamente nos ocupamos del cuerpo físico etérico y no de sus analogías en todos los planos. Ello se debe a que nuestro sistema se encuentra en los niveles etéricos cósmicos; en consecuencia, es de primordial importancia para nosotros.
+
+### 2. Éteres del Cosmos y del Sistema
+
+En beneficio de los lectores de este tratado y debido a que la repetición consecutiva conduce a aclarar los hechos, enumeraremos brevemente ciertas hipótesis fundamentales que gravitan definidamente sobre el tema en consideración y podrán servir para aclarar la actual confusión respecto al sistema solar. Algunos de tales hechos son ya bien conocidos, otros se deducen y aún otros responden a antiguas y exactas analogías expresadas en términos modernos.
+
+1. El plano cósmico más inferior es el físico cósmico; el único que la mente finita del hombre puede comprender. <pin lang="es">120</pin> <pin lang="es">121</pin>
+2. Este plano físico cósmico está compuesto de materia diferenciada en siete cualidades, grupos, grados o vibraciones.
+3. Estas siete diferenciaciones constituyen los siete planos principales de nuestro sistema solar
+
+![Constitución del hombre](../assets/FisicoCosmico.gif)
+
+Para mayor claridad podemos clasificarlos en plano físico, del sistema y cósmico, a los efectos de evidenciar sus relaciones y analogías y su conexión con aquello que está arriba y lo que está abajo o Incluido en ello. <pin lang="en">117</pin> <pin lang="en">118</pin>
+
+#### LOS PLANOS
+
+|     | Plano Físico                  | Planos del Sistema                  | Planos cósmicos               |
+| --- | ----------------------------- | ----------------------------------- | ----------------------------- |
+| 1.  | Plano atómico <br/> 1er. éter | Divino. Adi<br/> Materia primordial | Plano atómico <br/> 1er. éter |
+| 2.  | Subatómico                    | Monádico. Anupadaka <br/> El Akasha | Subatómico <br/>2do. éter     |
+| 3.  | Super etérico                 | Espiritual. Átmico.Éter             | 3er. éter                     |
+
+#### PLANO DE UNIÓN O UNIFICACIÓN
+
+|     | Plano Físico | Planos del Sistema        | Planos cósmicos   |
+| --- | ------------ | ------------------------- | ----------------- |
+| 4.  | Etérico      | Intuicional. Búdico. Aire | 4to. éter cósmico |
+
+#### LOS TRES MUNDOS INFERIORES
+
+|     | Plano Físico | Planos del Sistema | Planos cósmicos     |
+| --- | ------------ | ------------------ | ------------------- |
+| 5.  | Gaseoso      | Mental. Fuego      | Sub-etérico gaseoso |
+| 6.  | Líquido      | Astral. Emocional  | Líquido             |
+| 7.  | Físico denso | Plano físico       | Físico denso        |
+
+d . Los siete planos principales de nuestro sistema solar constituyen los siete subplanos del plano físico cósmico, y en ello reside la razón de que H. P. B. [^22] [^23] hiciera tanto hincapié respecto a que materia y éter son términos sinónimos, que dicho éter se encuentra en una u otra forma en todos los planos y sólo es una graduación de la materia atómica cósmica, llamada, cuando está indiferenciada, mulaprakriti o sustancia primordial pregenésica, y cuándo está diferenciada por Fohat (Vida energetizadora, el tercer Logos o Brahma) se la conoce como prakriti o materia. [^24]
+
+e. Nuestro sistema solar está clasificado como de cuarto orden, porque está colocado en el cuarto plano etérico cósmico, contando de arriba abajo. <pin lang="en">119</pin>
+
+f. De allí que este cuarto plano etérico cósmico represente el punto de unión del pasado y el futuro y constituya el presente.
+
+g. En consecuencia, también el plano búdico o intuicional (la analogía en el sistema de este cuarto éter cósmico) es el punto o plano de unión para aquello que constituye el hombre y constituirá el superhombre, vinculando lo que fue con lo que será. <pin lang="es">122</pin>
+
+h. Las siguientes analogías existentes en el tiempo, merecen una detenida meditación. Se basan en la comprensión de la relación que existe entre el cuarto éter cósmico, el plano búdico, y el cuarto subplano físico etérico.
+
+El cuarto subplano de la mente, analogía del físico-etérico que existe en el plano mental, es también un punto de transición entre lo inferior y lo superior y el lugar de transferencia a un cuerpo superior.
+
+El cuarto subplano del plano monádico es realmente el lugar donde se pasa del rayo egoico (cualquiera sea este Rayo) al rayo monádico; estos tres rayos mayores se hallan organizados en los tres subplanos superiores del plano monádico, de la misma manera que los tres subplanos abstractos del mental constituyen el grupo de transferencia donde se pasa del rayo de la personalidad al egoico.
+
+Los cuatro rayos menores se fusionan con el tercer rayo mayor de inteligencia activa en el plano mental y en el átmico. Los cuatro Logos o Espíritus planetarios actúan como uno en el plano átmico.
+
+i. En el segundo rayo sintético tiene lugar otra síntesis en el segundo subplano de los planos búdico y monádico, mientras que las pocas Mónadas de voluntad o poder que existen se sintetizan en el subplano atómico del plano átmico. Los tres grupos de Mónadas actúan en triple forma, en el plano mental, regidos por el Mahachoan, el Manu y el Bodhisattva o Cristo; en el segundo plano o monádico actúan como una unidad, efectuando <pin lang="en">120</pin> su trabajo dual sólo en el plano átmico y su triplicidad esencial en el plano búdico. [^25]
+
+<p>
+<pin lang="es">123</pin> El cuarto plano o etérico contiene la clave para dominar la materia. A este respecto se observará que:
+</p>
+
+En el cuarto éter físico el hombre comienza a coordinar su cuerpo astral o emocional, y a pasar a este vehículo con más frecuencia. Una vez que el hombre domina los cuatro éteres alcanza continuidad de conciencia.
+
+En el cuarto subplano del plano mental el hombre comienza a controlar su cuerpo egoico o causal y a polarizar su conciencia en éste, hasta que la polarización es completa. Entonces funciona conscientemente en dicho cuerpo, una vez que ha dominado las analogías que existen en los éteres del plano mental.
+
+En el plano búdico (el cuarto éter cósmico) los Hombres celestiales (o la conciencia grupal de las Mónadas humanas y dévicas) comienzan a actuar y a evadirse, con el tiempo, de los planos etéricos cósmicos. Una vez dominados los tres éteres cósmicos, perfeccionan su funcionamiento y centran su polarización en los vehículos monádicos, entonces los siete Hombres celestiales han alcanzado Su meta.
+
+j. En consecuencia, el Logos de nuestro <pin lang="en">121</pin> sistema repite en estos niveles etéricos, como resumen total, las experiencias de Sus minúsculos reflejos en los planos físicos; coordina Su cuerpo astral cósmico y logra continuidad de conciencia cuando ha dominado los tres éteres cósmicos.
+
+k. Debe observarse que así como el cuerpo físico del hombre en sus tres grados -denso, líquido y gaseoso- no es reconocido como un principio, en sentido cósmico los niveles físico (denso), astral (liquido) y mental (gaseoso) son considerados inexistentes, y el sistema solar tiene su ubicación en el cuarto éter. Los siete planetas sagrados están compuestos de materia de este cuarto éter, y los sietes hombres celestiales, que constituyen los cuerpos de dichos planetas, funcionan normalmente en el cuarto plano del sistema el búdico, o cuarto éter cósmico. Cuando el hombre ha obtenido la conciencia del plano búdico, eleva su conciencia hasta la del Hombre celestial, de cuyo cuerpo es una célula. Esto se logra en la cuarta iniciación, la iniciación liberadora. En la quinta Iniciación el hombre asciende, con el Hombre celestial, al quinto plano o átmico (desde el punto de vista humano) y en la sexta, domina el segundo éter cósmico, alcanzando conciencia monádica y actividad ininterrumpida. En la séptima Iniciación domina toda la esfera de la materia contenida en el plano cósmico inferior, se evade de todo contacto etérico y actúa en el plano astral cósmico.
+
+El sistema solar anterior presenció la superación de los tres planos físicos cósmicos inferiores, desde el punto de vista de la materia y de la coordinación de la triple forma física densa en la cual <pin lang="es">124</pin> se encuentra toda forma de vida, ya sea en materia densa, materia líquida o materia gaseosa. Una analogía de esto puede observarse en el trabajo realizado por las tres primeras razas raíces. [^26] [^27] <pin lang="en">122</pin>
+
+### 3. Propósito Protector del Cuerpo Etérico.
+
+Después de esta extensa dilucidación dejaremos las cosas cósmicas e incomprensibles y entraremos en lo que atañe a la evolución; estudiaremos la materia del cuerpo etérico del hombre y el daño que le puede ocasionar si no llena (por haber quebrantado la ley) su función protectora. Ante todo veamos cuáles son esas funciones protectoras:
+
+Primero. La trama etérica actúa como separadora y divisoria entre el cuerpo astral y el físico denso.
+
+Segundo. Permite la circulación o afluencia de la vitalidad o fluido pránico, acción que realiza en tres etapas.
+
+En la primera etapa se reciben el fluido pránico y <pin lang="en">123</pin> las radiaciones solares, que circulando tres veces por el triángulo pránico y distribuyéndose de éste a la periferia del cuerpo, animan y vitalizan los órganos físicos, lo cual permite que el cuerpo de materia densa actúe automática o subconscientemente. Cuando el etérico desempeña perfectamente su función, protege de las enfermedades; el hombre que absorbe y distribuye el prana correctamente, desconoce las dolencias de la carne. Los médicos deben tener esto en cuenta, pues cuando llegue a ser debidamente comprendido traerá cambios fundamentales en la medicina y en vez de curativa será preventiva.
+
+<p>
+<pin lang="es">125</pin> En la segunda etapa los fluidos pránicos comienzan a fusionarse con el fuego en la base de la columna vertebral y a impulsar dicho fuego lentamente hacia arriba, transfiriendo su calor de los centros situados debajo del plexo solar a los tres centros superiores, cardíaco, laríngeo y coronario. Este es un proceso largo y lento cuando se lo deja exclusivamente librado a las fuerzas de la naturaleza. En esta etapa se permite, en ciertos casos, acelerar el proceso, a fin de equipar a los que trabajan para servir a la humanidad. Es el objetivo que persigue todo entrenamiento ocultista. Este aspecto del tema será tratado más adelante cuando encaremos el tópico que trata de “El Kundalini y la Columna Vertebral”.
+</p>
+
+En la tercera etapa la materia radiante y activa o prana, se fusiona con el fuego latente en la materia en forma más perfecta; esto trae por resultado, como veremos más adelante, ciertos efectos.
+
+Produce el aceleramiento de la vibración normal del cuerpo físico, a fin de que responda con más rapidez a la nota superior del Ego, causando además la constante elevación de los fuegos fusionadores a través del triple canal de la columna vertebral. Este fuego vitalizador que se ha fusionado en la segunda etapa llega hasta un centro situado en la parte inferior de los omóplatos, punto de conjunción y de total fusión del fuego proveniente de la base de la <pin lang="en">124</pin> columna vertebral y del fuego que circula por el triángulo pránico. Se recordará que uno de los vértices de este triángulo se origina allí. Una vez que el triple fuego básico y el triple fuego pránico se unen y fusionan, la evolución avanza con mayor rapidez. Esto se efectúa definidamente en la primera Iniciación, cuando la <pin lang="es">126</pin> polarización sé fija en cualquiera de los tres centros superiores, lo cual depende del rayo a que pertenece el individuo.
+
+A consecuencia de esta fusión, tiene lugar un cambio en la acción de los centros, que se convierten en “ruedas que giran sobre sí mismas” y su movimiento exclusivamente giratorio se transforma en actividad cuatridimensional, manifestándose como centros giratorios irradiantes de fuego viviente.
+
+Los tres centros principales de la cabeza (el orden consecutivo varía de acuerdo al Rayo) entran en actividad, desarrollándose entre ellos un proceso similar al efectuado en el triángulo pránico. Al no ser ya tres los centros que reaccionan débilmente al reciproco movimiento vibratorio (sintiendo cada uno el calor y el ritmo de los otros, aunque en forma separada), el fuego salta de un centro a otro, quedando unida cada rueda giratoria por una cadena de fuego, hasta formar un triángulo ígneo por el cual los fuegos kundalínico y pránico van oscilando hacia atrás y hacia adelante a la vez que circulando. El fuego kundalínico produce el calor del centro, así como su intenso fulgor y brillo, mientras que el fuego pránico emanante produce creciente actividad y rotación.
+
+A medida que transcurre el tiempo, entre la primera y la cuarta iniciaciones, el cuerpo etérico y el triple canal de la columna vertebral se limpian y purifican gradualmente, gracias a la acción del fuego, hasta que (como dicen los cristianos) se quema toda la “escoria” y nada impide ya el avance de esta llama.
+
+A medida que el fuego kundalínico y el prana continúan su tarea y el canal se va despejando, los centros se hacen más activos y el cuerpo se purifica, entonces, la llama <pin lang="en">125</pin> del Espíritu o el fuego proveniente del Ego desciende con más energía, hasta que emana de la cúspide de la cabeza una llama resplandeciente, surgiendo hacia arriba y a través de los cuerpos, en dirección a su fuente de origen, el cuerpo causal.
+
+Con la activación simultánea de los fuegos de la materia y del Espíritu, los de la mente o manas arden con mayor intensidad. Éstos son los fuegos conferidos en la individualización. Son nutridos continuamente por el fuego de la materia, y su calor aumenta debido al fuego solar emanante, que tiene su origen en los niveles cósmicos de la mente. Este aspecto del fuego manásico se desarrolla como instinto, memoria animal y recuerdo activo, tan evidentes en el hombre poco evolucionado. A medida que transcurre el tiempo, el fuego de la mente arde con más brillo, hasta que empieza a quemar y a traspasar la trama etérica -en esa parte de la trama que resguarda al centro situado en la cúspide de la cabeza, permitiendo así la entrada al fuego del Espíritu. De esta manera se produce lo siguiente:
+
+<p>
+<pin lang="es">127</pin> La mente o el aspecto voluntad, desde el plano mental, dirige y regula conscientemente el fuego kundalínico. Por el poder mental del hombre, se mezclan los dos fuegos de la materia, primero entre sí, y luego con el fuego de la mente.
+</p>
+
+Dicha fusión destruye (por Ley y orden) la trama etérica, trayendo la consiguiente continuidad de conciencia, permitiendo que penetre en la vida personal del hombre, la “Vida más abundante”, o tercer fuego del Espíritu.
+
+La precipitación del Espíritu y el ascenso de los fuegos internos de la materia (regulados y dirigidos por la acción consciente del fuego de la mente) producen los correspondientes resultados en los mismos niveles de los planos astral y mental, produciéndose así un contacto paralelo, y prosiguiendo en forma ordenada la gran tarea de liberación.
+
+Las tres primeras iniciaciones perfeccionan <pin lang="en">126</pin> y conducen a la cuarta, donde la intensidad y unidad de estos fuegos consumen totalmente las barreras, liberándose el Espíritu de su triple envoltura inferior mediante el esfuerzo conscientemente dirigido. El hombre ha consumado así, conscientemente, su propia liberación. Estos resultados son autoinducidos por el hombre al emanciparse en los tres mundos, quien destruye la rueda de los renacimientos, en vez de ser destruido por ella.
+
+Por lo expuesto, es evidente la gran importancia que tiene el vehículo etérico al actuar como factor separador de los fuegos. Esto pone de manifiesto los peligros a que está expuesto quien trate de manipular, ignorante, imprudente y caprichosamente, dichos fuegos.
+
+Si alguien, valiéndose del poder de la voluntad o por el desarrollo excesivo del aspecto mental de su temperamento, adquiere el poder de fusionar y activar los fuegos de la materia, corre peligro de obsesión, locura, muerte física o de que una terrible enfermedad ataque alguna parte del cuerpo; también corre el riesgo de desarrollar excesivamente el impulso sexual, debido a que la fuerza activa asciende en forma desordenada, forzando su irradiación a centros indeseables. La razón de esto reside en que la materia de su cuerpo no está suficientemente purificada para resistir la unión de las llamas, y el canal ascendente de la columna vertebral se halla obstruido o bloqueado, por consiguiente actúa como barrera, haciendo que la llama retroceda hacia abajo; esta llama (conjunción de llamas producidas por el poder de la mente, sin el simultáneo descenso del poder, desde el plano del espíritu) al quemar el etérico, permite la entrada de fuerzas, corrientes y hasta entidades extrañas e indeseables. Éstas destruyen, rasgan y deterioran lo que queda del vehículo etérico, de los tejidos del cerebro y hasta del mismo cuerpo físico denso.
+
+<p>
+<pin lang="es">128</pin> El hombre desprevenido, que no sabe a qué Rayo pertenece, y por lo tanto desconoce la exacta forma geométrica triangular <pin lang="en">127</pin> del correcto sistema de circulación entre un centro y otro, impulsará el avance del fuego en forma indebida, quemando así los tejidos; esto dará por resultado (si no ocurre algo peor) retrasar en varias vidas el reloj de su progreso evolutivo, porque tendrá que dedicar mucho tiempo a reconstruir lo destruido y a recapitular correctamente el trabajo que debe efectuar.
+</p>
+
+Si el hombre persiste vida tras vida en esta línea de acción, descuidando su desarrollo espiritual y concentrando su esfuerzo intelectual en la manipulación de la materia para fines egoístas, y si a pesar de las advertencias de su yo interno y de aquellos que vigilan, continúa haciéndolo durante un extenso período de tiempo, puede acarrearse la propia destrucción, que significará el fin de su manvantara o ciclo. También, la unión de estos fuegos, el de la materia y la doble expresión del fuego mental puede llegar a destruir totalmente el átomo físico permanente y con ello cortar la conexión con el yo superior por eones de tiempo. H. P. B. se ha referido a algo de esto cuando habla de las “almas perdidas” [^28] [^29]; aquí debemos hacer hincapié sobre la realidad de este terrible desastre y advertir sobre los peligros que amenazan a quienes tratan de manipular los fuegos de la materia. La fusión de estos fuegos ha de ser el resultado del conocimiento espiritualizado, dirigida únicamente por la Luz del Espíritu, que es amor y actúa por medio del amor y busca la unificación y la total fusión, no desde el punto de vista de los sentidos o de la satisfacción material, sino con el fin de obtener la liberación y la purificación y establecer la unión superior con el Logos; dicha unión no debe desearse para fines egoístas porque constituye la meta de la perfección grupal cuya finalidad es prestar un mayor servicio a la raza.
+
+:::warning Advertencia
+
+Si alguien, valiéndose del poder de la voluntad o por el desarrollo excesivo del aspecto mental de su temperamento, adquiere el poder de fusionar y activar los fuegos de la materia, corre peligro de obsesión, locura, muerte física o de que una terrible enfermedad ataque alguna parte del cuerpo; también corre el riesgo de desarrollar excesivamente el impulso sexual, debido a que la fuerza activa asciende en forma desordenada, forzando su irradiación a centros indeseables.
+
+<pin lang="es">128</pin> El hombre desprevenido, que no sabe a qué Rayo pertenece, y por lo tanto desconoce la exacta forma geométrica triangular <pin lang="en">127</pin> del correcto sistema de circulación entre un centro y otro, impulsará el avance del fuego en forma indebida, quemando así los tejidos; esto dará por resultado (si no ocurre algo peor) retrasar en varias vidas el reloj de su progreso evolutivo, porque tendrá que dedicar mucho tiempo a reconstruir lo destruido y a recapitular correctamente el trabajo que debe efectuar.
+
+Si el hombre persiste vida tras vida en esta línea de acción, descuidando su desarrollo espiritual y concentrando su esfuerzo intelectual en la manipulación de la materia para fines egoístas, y si a pesar de las advertencias de su yo interno y de aquellos que vigilan, continúa haciéndolo durante un extenso período de tiempo, puede acarrearse la propia destrucción, que significará el fin de su manvantara o ciclo. También, la unión de estos fuegos, el de la materia y la doble expresión del fuego mental puede llegar a destruir totalmente el átomo físico permanente y con ello cortar la conexión con el yo superior por eones de tiempo. H. P. B. se ha referido a algo de esto cuando habla de las “almas perdidas”
+:::
+
+## V. LA MUERTE Y EL CUERPO ETERICO
 
 
 
@@ -454,3 +616,57 @@ c. Desórdenes estáticos microcósmicos, o el cuerpo etérico considerado en su
 [^17]: "las siete llaves abren los misterios pasados y presentes, de las siete grandes razas raíces y de los siete kalpas." Todo libro sobre ocultismo, símbolos y alegorías, puede tener siete interpretaciones. Existen tres cerraduras que han de ser abiertas. Existen siete llaves. Todo libro puede leerse en forma exotérica, subjetiva y espiritual. Aún no están disponibles todas las llaves (D. S. II, 22, 33). Tenemos la llave fisiológica, la psicológica, la astrológica y la metafísica. La quinta es la geométrica.
 
 [^18]: "Círculo no se pasa". Circunferencia de la esfera de influencia correspondiente a todo centro de vida positiva. Incluye la esfera de fuego del trabajo magnético que realiza el orbe solar, considerado como cuerpo de manifestación de un Logos solar, incluso de todo un sistema solar. Este término se aplica también a la esfera de actividad de un Logos planetario o a un esquema planetario, y el mismo podría aplicarse a la esfera de actividad de un ser humano. D.S. II, 35-36.
+
+[^19]: Los Cuatro Señores Lipikas se hallan entre el primero y segundo planos. D.S. I, 169.
+
+    1. Pueden salir del "círculo no se pasa". D. S. I, 170.
+    2. Están vinculados al karma. D. S. I, 167.
+    3. Se ocupan del futuro. D. S. I, 165.
+    4. Constituyen tres grupos. D. S. I, 167.
+    5. Son los espíritus del Universo. D. S. I, 165.
+
+[^20]: Los cuatro Rayos de la mente son los cuatro Rayos menores que forman el Cuaternario logoico, y se sintetizan oportunamente, en un quinto Rayo, el tercer Rayo mayor de inteligencia activa o de adaptabilidad.
+
+    Los nombre de los Rayos son los siguientes:
+
+    1. Los tres Rayos mayores:
+       1. El Rayo de Voluntad o Poder.
+       2. El Rayo de Amor o Sabiduría.
+       3. El Rayo de Inteligencia Activa.
+    2. Los cuatro Rayos menores:
+       1. El Rayo de Belleza, Armonía, Arte o Ritmo.
+       2. El Rayo de Conocimiento Concreto o Ciencia.
+       3. El Rayo de Idealismo Abstracto.
+       4. El Rayo de Orden Ceremonial u Organización.
+
+[^21]: **Sutratma.** "Cordón plateado" que encarna, desde el principio hasta el fin, un período de manifestación, y ensarta en el mismo la perla de la existencia humana. Es la línea de energía que vincula al hombre personal inferior con el Padre en el Cielo, por mediación del Ego, principio central mediador. En él se encuentran los puntos focales de energía que llamamos "átomos permanentes".
+
+[^22]: D. S. I, 153; II, 43. D. S. I, 50, llamada 8.
+
+[^23]: D. S. I, 112, 152-153; II, 359-360.
+
+[^24]: Mulaprakriti. La raíz parabrahmica, el principio femenino abstracto y deificado -sustancia indiferenciada. Akasha. Significa literalmente "la raíz de la Naturaleza" (Prakriti) o materia.
+
+[^25]: Las mónadas de la cuarta Jerarquía creadora o mónadas humanas se clasifican en tres grupos principales:
+    
+    1. Las Mónadas de Voluntad
+    2. Las Mónadas de Amor.
+    3. Las Mónadas de Actividad.
+
+    **Mahachohan.** Entidad que preside nuestra Jerarquía planetaria, respecto a las actividades desarrolladas por los cuatro rayos menores y el tercero sintetizador. Se ocupa de la civilización, de la cultura intelectual de las razas y de la energía inteligente. Guía de todos los Adeptos.
+
+    **Bodhisattva.** Exponente de la fuerza del segundo rayo; el Instrutor de los hombres, Adeptos y Ángeles. Originalmente este cargo fue ocupado por el Buda; pero Su lugar (después de obtener la iluminación) está ocupado por el Cristo. La tarea del Bodhisattva se relaciona con las religiones del mundo y con la Esencia espiritual del Hombre.
+
+    **El Manu.** Preside la evolución de las razas. Constituye el Hombre ideal. Trabaja con las formas mediante las cuales se manifiesta el Espíritu; destruye y nuevamente construye.
+
+    Las Entidades mencionadas presiden los tres Departamentos en que está dividida la Jerarquía; por consiguiente, representan, en su esfera particular, los Tres Aspectos de la manifestación divina.
+
+[^26]: **Raza Raíz.** La Doctrina Secreta enseña que en esta evolución o ronda del planeta, el Jivatma (el alma humana) pasa por siete tipos principales o "razas raíces". En el caso de las dos primeras, la "adámica" y la "hiperbórea", las formas animadas fueron astrales y etéricas, respectivamente: Enormes e indefinidas, poseían un grado de conciencia muy inferior, exteriorizado por medio de un sentido (oído) que poseía la primera raza, o por dos sentidos (oído y tacto) que poseía la segunda. Pero la tercera raza, la Lemuriana, se desarrolló un tipo más denso y más humano, el cual quedó perfeccionado en la cuarta raza o Atlante. La quinta raza o Aria, está terminando su ciclo en este globo conjuntamente con una gran parte de la cuarta raza y algunos restos de la tercera. Se ha de observar que, aunque cada raza dé nacimiento a la siguiente, ambas se superponen en el tiempo, coexistiendo durante muchas épocas. De los pueblos existentes, los tártaros, los chinos y los mongoles, pertenecen a la cuarta raza. Los aborígenes australianos y los hotentotes pertenecen a la tercera.
+
+[^27]: En la coordinación de los vehículos monádico, átmico y búdico del Hombre celestial, vehículos de la vida espiritual, analogía esotérica superior del prana que fluye a través del reflejo inferior, el cuerpo etérico-físico, el punto de síntesis siempre se halla en el subplano atómico, fusionándose y convirtiéndose en el séptimo. En este sistema solar, el plano donde se produce la síntesis no está incluido en el esquema evolutivo. Constituye el plano de la unión y del pralaya. En el sistema anterior ocupaba esta posición el cuarto etérico; representaba para los entes evolutivos de ese período lo que ahora es el plano atómico, el punto más elevado de realización. Su meta era el plano búdico o el cuarto éter cósmico. Hoy la meta la constituyen tres planos distintos - el búdico, el átmico y el monádico; tres planos por vez y su eventual síntesis. En el futuro sistema solar el éter atómico físico cósmico (el plano de Adi en el sistema actual) será el punto de partida, y los tres planos a dominar serán los cósmicos astrales inferiores. El hombre comienza donde dejó; lo hace con materia física cósmica perfeccionada. Su cuerpo inferior será por consiguiente, el monádico o el cuerpo del segundo éter cósmico. No se lo considerará como principio; tampoco es considerado ahora como principio el triple cuerpo físico inferior del hombre.
+
+    El presente sistema solar verá la superación de los tres planos físico-cósmicos, los éteres cuarto, tercero y segundo, y la coordinación del cuerpo etérico cósmico.
+
+[^28]: Isis sin Velo. D. S. I, 253; VI, 131, 148, 150-151, 154-155, 158-160.
+
+[^29]: D. S. VI, 156-161.
