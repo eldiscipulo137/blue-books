@@ -127,8 +127,92 @@ Como ya se ha dicho, y es generalmente aceptado, el efecto del calor en la mater
 
 ## II. EFECTOS DEL MOVIMIENTO DE ROTACIÓN
 
+Toda esfera gira en el cuerpo macrocósmico. Esta rotación produce ciertos efectos que podemos enumerar de la manera siguiente:
 
+1. **Separación** producida por el movimiento de rotación. Esta acción causa la diferenciación de las esferas formando como sabemos las siguientes unidades atómicas:
+   1. El sistema solar, reconocido como átomo cósmico; todos los átomos dentro de su periferia son considerados moleculares.
+   2. Los siete planos, considerados como siete vastas esferas, giran longitudinalmente dentro de la periferia solar.
+   3. Los siete rayos, considerados como las siete formas que ocultan a los Espíritus, son bandas esferoidales de color que giran latitudinalmente y forman (respecto a los siete planos) una vasta red entrelazada. Estas dos series de esferas (planos y rayos) constituyen la totalidad del sistema solar y producen su propia forma esférica.
 
+ Dejemos por ahora de lado la Conciencia que anima a dichas esferas, y concentremos nuestra atención en el hecho de que cada plano es una vasta esfera de materia, activada por el calor latente, que progresa o gira en determinada dirección. Cada rayo de luz, no importa cuál sea su color, es igualmente una esfera de materia de máxima tenuidad que gira en dirección opuesta a la de los planos. Estos rayos producen, en virtud de su acción recíproca, un <pin lang="es">148</pin>efecto irradiante entre sí. Así, por la aproximación del calor latente en la materia y la interacción de ese calor sobre otras esferas, se produce esa totalidad denominada “fuego por fricción”.
+
+ <p>
+ <pin lang="en">153</pin>Con respecto a estos dos tipos de esferas, podría decir, a manera de ilustración y para mayor claridad, que
+ </p>
+
+    1. los planos giran de este a oeste y
+    2. los rayos giran de norte a sur.
+ 
+ Los estudiantes deben tener presente que no nos referimos aquí a puntos en el espacio; simplemente establecemos tal diferencia empleando palabras que hagan más comprensible esta idea abstrusa. Desde el punto de vista de los rayos y de los planos no hay norte ni sur, este ni oeste. Aquí tenernos una analogía y un punto muy interesante, aunque también muy complejo. Gracias a esa misma interacción se hace posible el trabajo de los cuatro Maharajáes o Señores del Karma; el cuaternario y todo lo cuádruple podrán verse como una de las combinaciones fundamentales de la materia, producidas por las revoluciones duales de planos y rayos.
+
+ Los siete planos e igualmente los átomos, giran sobre su propio eje y se adaptan a aquello que se exige a todas las vidas atómicas.
+
+ Las siete esferas de cada plano denominadas subplanos, corresponden también al sistema; cada subplano tiene siete ruedas giratorias o planos que giran por su propia capacidad innata, debido al calor latente -el calor de la materia de que están formados.
+
+ Las esferas o átomos de cualquier forma, desde la forma logoica (a la cual nos hemos referido someramente) hasta el último átomo físico y la materia molecular que entra en la construcción del cuerpo físico, demuestran correspondencias y analogías similares.
+
+ Todas estas esferas se ajustan a ciertas reglas, llenan ciertas condiciones y están caracterizadas por las mismas cualidades fundamentales. Más adelante consideraremos dichas condiciones; <pin lang="en">154</pin>por ahora debemos continuar estudiando los efectos de la acción giratoria.
+
+2. **Impulso**, producido por el movimiento rotatorio que dio por resultado la repulsión. Hemos mencionado la Ley de Repulsión como una de las leyes subsidiarias de la gran Ley de Economía que rige a la materia. La repulsión es producida por la acción giratoria, base de la separación, que impide el contacto de los átomos entre sí; mantiene a los planetas en lugares fijos del espacio, separados a distancias invariables uno de otro y los mantiene a cierta distancia del centro de su sistema, impidiendo también que los planos y <pin lang="es">149</pin>subplanos pierdan su identidad material. En esto puede observarse el principio del eterno duelo entre el Espíritu y la materia, característico de la manifestación, donde en un aspecto actúa la Ley de Atracción y en otro rige la Ley de Repulsión. Época tras época el conflicto ha continuado y la materia tiene cada vez menos poder. Lentamente (tanto que casi no se percibe desde el plano físico) el poder de atracción del Espíritu va debilitando la resistencia de la materia, hasta que al final de los ciclos solares mayores se producirá la denominada destrucción, y la Ley de Repulsión será dominada por la Ley de Atracción. Constituye la destrucción de la forma y no de la materia, pues la materia es indestructible. Esto lo podemos ver ahora en la vida microcósmica, en el proceso de desintegración de la forma, la cual se mantiene como unidad separada al emplear el mismo método de rechazo de todas las otras formas. Esta situación gradual e imperceptible puede verse en lo que respecta a la Luna, la cual ya no es rechazada por la Tierra, pues da a nuestro planeta su propia sustancia. H.P.B. lo insinúa en La Doctrina Secreta; sugiero aquí la ley bajo la cual ello ocurre [^7] [^8] <pin lang="en">155</pin>
+3. **Fricción**, que produce efecto sobre los demás cuerpos atómicos y da por resultado:
+   1. la vitalidad del átomo,
+   2. la coherencia del átomo,
+   3. la capacidad de actuar,el calor suministrado a la forma compuesta -de la cual puede ser un fragmento-, ya sea por la rotación de un planeta, dentro de la forma macrocósmica, o de una célula del cuerpo físico, dentro de la forma microcósmica,
+   4. la combustión o desintegración final, cuando los fuegos latentes e irradiantes han llegado a una etapa determinada. Éste es el secreto de la oscuración final y del pralaya; pero no puede disociarse de los otros dos factores: el fuego solar y el eléctrico.
+4. **Absorción** causada por la depresión que se observa en todas las esferas giratorias de materia atómica, en cualquier punto de su superficie, que corresponde al llamado Polo norte de un planeta. Se obtendrá alguna idea de lo que intento impartir si se <pin lang="es">150</pin> estudia el átomo, como ha sido descrito por Babbitt en Principios del Luz y Color y también por la Dra. Annie Besant en Química Ocultista. Esta depresión es producida por las irradiaciones que proceden, en sentido contrario, a las rotaciones de la esfera y que descienden de norte a sur hasta un punto intermedio. Allí tienden a aumentar el calor latente, a producir un mayor impulso y a impartir una cualidad específica de acuerdo a la fuente de donde proviene la irradiación. La absorción de las emanaciones que provienen de fuera de la esfera, encierra el secreto de la dependencia que existe entre una esfera y otra, y tiene su analogía en la periodicidad de un rayo, que ocurre en cualquier plano de las esferas. Cada átomo, aunque esté clasificado como un esferoide, es más exactamente una esfera ligeramente aplanada en determinada parte, <pin lang="en">156</pin> por donde afluye la fuerza que anima a la materia de la esfera. Esto ocurre en todas las esferas, desde la esfera solar hasta el átomo de materia que llamamos célula del cuerpo físico. Por la depresión del átomo físico fluye la fuerza vitalizadora desde lo externo. Todo átomo es positivo y negativo; receptivo o negativo respecto a la afluencia de fuerza, positivo o irradiante, en lo que respecta a sus propias emanaciones y en relación con los efectos que produce en el medio ambiente.
+
+ Esto puede decirse también respecto a todo el “círculo no se pasa” del sistema solar, en relación con su medio ambiente cósmico. En el sistema solar fluyen fuerzas provenientes de tres direcciones a través de tres canales:
+
+    1. El Sol Sirio.
+    2. Las Pléyades.
+    3. La Osa Mayor.
+
+ Quisiera señalar aquí la conexión o analogía de esta afirmación con una anterior, al tratar la irradiación solar y los canales por los cuales puede percibirse. Denominamos a estas corrientes irradiaciones:
+
+    1. Akáshicas
+    2. Eléctricas
+    3. Pránicas
+
+ Al considerar el significado esotérico de lo que aquí se sugiere, podemos elucidar un punto, dejando que el estudiante desarrolle las otras dos relaciones: Las Pléyades son, con respecto al sistema solar, la fuente de energía eléctrica, así como nuestro Sol es la personificación del corazón o aspecto amor del Logos (el cual a su vez es el corazón de AQUEL SOBRE QUIEN NADA PUEDE DECIRSE); de la misma manera también las Pléyades son el opuesto femenino de <pin lang="es">151</pin> ese. Reflexionen sobre lo expuesto pues esta afirmación tiene gran significado.
+
+ :::info Reflexiona
+
+ Las Pléyades son, con respecto al sistema solar, la fuente de energía eléctrica, así como nuestro Sol es la personificación del corazón o aspecto amor del Logos (el cual a su vez es el corazón de AQUEL SOBRE QUIEN NADA PUEDE DECIRSE); de la misma manera también las Pléyades son el opuesto femenino de <pin lang="es">151</pin> ese.
+
+ :::
+
+Se han hecho amplios enunciados sobre la rotación de la materia y sobre los resultados producidos <pin lang="en">157</pin>en las diversas esferas. Lo que se diga respecto a cualquiera esfera o átomo es aplicable a todo, y si en algún sentido es la expresión de un hecho esotérico, deberíamos ser capaces de captar los cuatro efectos de
+
+1. la separación, o el efecto de repulsión,
+2. el impulso, o el efecto interno,
+3. la fricción o el efecto ambiental,
+4. la absorción, o el efecto receptivo o atrayente,
+
+que se producen en los átomos de todos los tipos y grados -de un sistema solar, un sol, un planeta, un plano, un rayo, el cuerpo del Ego o una célula del cuerpo físico.
+
+## III. CUALIDADES DEL MOVIMIENTO DE ROTACIÓN
+
+Toda esfera giratoria de materia está caracterizada por tres cualidades: inercia, movilidad y ritmo.
+
+1. **Inercia.** Caracteriza a todos los átomos al iniciarse la manifestación, al comenzar un ciclo solar o mahamanvántara (cien años de Brahma), una cadena, un globo o cualquier forma esférica sin excepción. Este enunciado comprende por lo tanto la totalidad de las formas en manifestación dentro del sistema solar.
+
+ Téngase bien en cuenta que estamos considerando simplemente las tres cualidades de la materia y no la conciencia. La inercia es consecuencia de la falta de actividad y de la quietud relativa de los fuegos de la materia. Estos fuegos, durante la oscuración o Pralaya, aunque latentes, no reciben el estímulo que proviene del agrupamiento de los átomos al construirse una forma, y de la consiguiente interacción entre las formas. Cuando existe la forma y entran en función las Leyes de Atracción y de Repulsión, que hacen posible la irradiación, entonces tienen lugar el estímulo, efecto emanante, y la gradual aceleración que, procediendo oportunamente desde el interior del átomo, dará origen, por su propio movimiento giratorio, a la cualidad siguiente. <pin lang="en">158</pin>
+
+2. **Movimiento.** Los fuegos inherentes a la materia producen movimiento giratorio. Con el tiempo esta rotación produce irradiación. La irradiación de la materia, resultante de su calor dual, produce necesariamente efecto sobre otros átomos en su medio ambiente (no importa que sea el espacio cósmico, el sistema o la periferia del cuerpo físico del hombre); esta interacción e intercambio causan repulsión y atracción de acuerdo a la polaridad <pin lang="es">152</pin>de los átomos cósmicos, del sistema o físico. Con el tiempo esto produce la coherencia de la forma; los cuerpos o conglomerados de átomos vienen a la existencia o manifestación, subsistiendo mientras transcurren sus ciclos mayores o menores, hasta que se establece definitivamente la tercera cualidad.
+3. **Ritmo.** Logro de un punto perfecto de estabilidad y equilibrio. Este equilibrio perfecto produce ciertos efectos específicos que podríamos enumerar haciéndolos objeto de reflexión, aunque a nuestra mente finita le parezca paradójico y contradictorio. La limitación se halla en nosotros mismos y en el uso de las palabras, no en su aparente inexactitud. Estos efectos son:
+   1. La desintegración de la forma.
+   2. La liberación de la esencia confinada en la forma.
+   3. La separación de Espíritu y materia.
+   4. El fin de un ciclo, ya sea planetario, humano o solar.
+   5. La oscuración y el fin de la objetividad o manifestación.
+   6. La reabsorción de la esencia y nuevamente la fusión de la materia diferenciada con la raíz de la materia.
+   7. El fin del tiempo y del espacio tal como lo comprendemos
+   8. La unificación de los tres Fuegos y la combustión espontánea, si así puede expresarse. <pin lang="en">159</pin>
+   9. La actividad sintética de la materia en los tres tipos de movimiento -giratorio, en espiral, cíclico y progresivo- cuyo movimiento unificado será producido por la interacción de los fuegos de la materia, de la mente y del espíritu.
+
+ Cuando se ha alcanzado el punto de equilibrio o ritmo en un sistema solar, plano, rayo, en el cuerpo causal o en el cuerpo físico, entonces el morador de la forma se libera de la prisión; puede retirarse a su fuente de origen, liberándose de la envoltura que hasta entonces le ha servido de prisión, y puede abandonar el medio ambiente que ha utilizado para adquirir experiencia y ha constituido el campo de batalla de los pares de opuestos. La envoltura o forma, de cualquier clase que sea, automáticamente se desintegra.
+
+## IV. EL MOVIMIENTO DE ROTACIÓN Y EL SIMBOLISMO
 
 
 
@@ -144,3 +228,7 @@ Como ya se ha dicho, y es generalmente aceptado, el efecto del calor en la mater
 [^5]: D. S. I, 123, 129. Véase Estanza III, 7 ª.
 
 [^6]: La Biblia, Juan X, 30.
+
+[^7]: "La Luna (nuestro satélite) precipitando toda su vida, energía y poderes dentro del globo más inferior de nuestra cadena planetaria (Globo D., "Tierra") y habiéndolos transferido a un nuevo centro, se convirtió virtualmente en un planeta muerto, en el cual, desde el nacimiento de nuestro globo, ha cesado toda rotación." D. S. i, 189.
+
+[^8]: D. S. I, 188.
