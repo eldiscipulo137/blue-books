@@ -9,10 +9,20 @@ export interface LinePinProps {
 
 const LinePin: FC<LinePinProps> = ({ lang, children }) => {
   const { settings } = useContext(Settings);
-  if (lang == "es" && !settings.showSpanishPageNumberReference) return <></>;
-  if (lang == "en" && !settings.showEnglishPageNumberReference) return <></>;
-  const langStyle = lang == "es" ? styles.spanish : styles.english;
   const pinPrefix = lang == "es" ? "es" : "en";
+  if (lang == "es" && !settings.showSpanishPageNumberReference)
+    return (
+      <>
+        <a id={`${pinPrefix}${children}`}></a>
+      </>
+    );
+  if (lang == "en" && !settings.showEnglishPageNumberReference)
+    return (
+      <>
+        <a id={`${pinPrefix}${children}`}></a>
+      </>
+    );
+  const langStyle = lang == "es" ? styles.spanish : styles.english;
   return (
     <>
       <a id={`${pinPrefix}${children}`}></a>

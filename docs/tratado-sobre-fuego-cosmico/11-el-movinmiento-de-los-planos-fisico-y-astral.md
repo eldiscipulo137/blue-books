@@ -229,6 +229,202 @@ Consideramos únicamente la materia, el calor latente y el resultado producido p
 
 ## V. EL MOVIMIENTO Y LOS CENTROS
 
+:::warning Advertencia
+
+El hombre ha de llevar una vida de elevado altruismo, debe sujetarse a una disciplina que someta y refine sus vehículos inferiores y esforzarse por purificar y controlar sus envolturas. Cuando haya hecho esto y elevado y estabilizado su vibración, se hallará que el desarrollo y la consecuente actividad de los centros se han efectuado paralelamente y la tarea ha continuado (fuera de su participación activa) en la dirección deseada. Gran peligro y deplorables calamidades amenazan al hombre que despierta dichos centros empleando métodos ilegítimos y experimentando con los fuegos de su cuerpo sin poseer el necesario conocimiento técnico.
+
+:::
+
+El tema de los centros puede encararse en tres direcciones. Se ha escrito y discutido mucho acerca de los centros; existe un gran misterio que ha despertado la curiosidad del ignorante y ha tentado a muchos a inmiscuirse en lo que no les concierne. Procuraré elucidar algo este tema y proporcionar un nuevo punto de vista para <pin lang="en">162</pin>el estudio de tan complicados tópicos. De ningún modo intento encararlo con el fin de impartir reglas o informaciones que permitan vivificar los centros o activarlos. Ante todo formularé una solemne advertencia El hombre ha de llevar una vida de elevado altruismo, debe sujetarse a una disciplina que someta y refine sus vehículos inferiores y esforzarse por purificar y controlar sus envolturas. Cuando haya hecho esto y elevado y estabilizado su vibración, se hallará que el desarrollo y la consecuente actividad de los centros se han efectuado paralelamente y la tarea ha continuado (fuera de su participación activa) en la dirección deseada. Gran peligro y deplorables calamidades amenazan al hombre que despierta dichos centros empleando métodos ilegítimos y experimentando con los fuegos de su cuerpo sin poseer el necesario conocimiento técnico.
+
+<p>
+<pin lang="es">155</pin> Mediante el esfuerzo podrá despertar los fuegos e intensificar la actividad de los centros, pero sufrirá el castigo de su ignorancia destruyendo la materia, quemando los tejidos del cuerpo o el cerebro, ocasionando la demencia y abriendo la puerta a corrientes indeseables y destructoras. No es cobardía ser precavido y cuidadoso respecto a las cuestiones que conciernen a la vida subjetiva. Por consiguiente, el aspirante debe realizar tres cosas:
+</p>
+
+1. Purificar, disciplinar y transmutar su triple naturaleza inferior.
+2. Cultivar el conocimiento de sí mismo y equipar el cuerpo mental; el cuerpo causal ha de ser construido mediante buenos pensamientos y acciones.
+3. Servir a su raza con absoluta abnegación.
+
+Al proceder así cumple con la ley, se condiciona para obtener entrenamiento, y se capacita para recibir la culminante aplicación del Cetro de Iniciación; de este modo aminorará el peligro que significa despertar el fuego.
+
+<p>
+<pin lang="en">163</pin> Todo lo que se intenta hacer en este tratado es proyectar más luz respecto a los centros, demostrar su interrelación y delinear los efectos producidos por el correcto desarrollo. Para ello, como ya se dijo, dividiremos el tema en las siguientes partes:
+</p>
+
+1. La naturaleza de los centros.
+2. Los centros y los rayos.
+3. Los centros y el kundalini.
+4. Los centros y los sentidos.
+5. Los centros y la iniciación.
+
+Como se verá por esta enumeración, el tema no sólo es vasto sino complejo. Ello se debe principalmente a que la raza está obligada a aceptar las afirmaciones de quienes alegan saber, pero hasta que ésta no sea normalmente clarividente no estará en condiciones de comprobar lo que se diga. Cuando el hombre pueda ver y comprobar por sí mismo, entonces le será posible verificar dichas afirmaciones; el momento no ha llegado todavía, excepto para unos pocos.
+
+### 1. La Naturaleza de los Centros.
+
+Consideraremos el primer punto. Enumeraré los centros que vamos a tratar, procurando mantener la misma enumeración dada anteriormente; no me ocuparé de todos los centros sino de los que conciernen más de cerca a la quíntuple evolución del hombre.
+
+Como ya se dijo, al terminar su largo peregrinaje, el hombre <pin lang="es">156</pin> habrá pasado, en su camino de regreso a la fuente de origen, por los cinco reinos de la naturaleza:
+
+1. mineral,
+2. vegetal,
+3. animal,
+4. humano,
+5. superhumano o espiritual,
+
+y habrá desarrollado plena conciencia en los cinco planos: <pin lang="en">164</pin>
+
+1. físico,
+2. emocional o astral,
+3. mental,
+4. intuicional o búdico,
+5. espiritual, átmico o nirvánico,
+
+por medio de los cinco sentidos y sus analogías en los respectivos planos:
+
+1. auditivo,
+2. táctil,
+3. visual,
+4. gustativo,
+5. olfativo.
+
+Cuando llegue la quinta ronda, tres quintas partes de la familia humana habrán alcanzado dicho desarrollo y los cinco sentidos estarán plenamente activos en los tres planos de los tres mundos; los otros dos planos serán dominados durante las dos rondas restantes. Quisiera puntualizar aquí un hecho poco comprendido: en esta quíntuple evolución del hombre y en este sistema solar, las dos rondas restantes de cualquier ciclo planetario y la sexta y séptima razas raíces de dichos ciclos siempre son sintetizadoras; su función es reunir y sintetizar lo realizado en las cinco anteriores. Por ejemplo, en la presente raza raíz, la sexta y séptima subrazas sintetizarán y fusionarán lo que las cinco anteriores han producido. La analogía reside en el hecho de que en este sistema solar los dos planos superiores (el logoico y el monádico) son sintetizadores. Uno es para el Logos el plano sintetizador, el cual extrae la esencia manifestada; el otro lo es para la Mónada, el cual extrae y recoge los frutos de la objetividad.
+
+Por lo tanto, sólo nos ocuparemos de los centros que se relacionan con la evolución de los cuerpos sutiles, la evolución de la psiquis, y no los que están vinculados con la evolución y propagación del cuerpo físico denso. Dichos centros son cinco y están situados: <pin lang="en">165</pin>
+
+1. En la base de la columna vertebral, el único centro tratado que produce efectos físicos. <pin lang="es">157</pin>
+2. En el plexo solar, el centro más importante del cuerpo desde el punto de vista del plano astral.
+3. En la laringe, el más importante desde el punto de vista del plano mental.
+4. En la región del corazón, el cual se vincula esotéricamente con el plano búdico.
+5. En la parte superior de la cabeza, la coronilla, que se relaciona con el plano átmico.
+
+No trataremos los centros inferiores de la procreación ni el del bazo, que se relaciona directamente con el etérico y es el transmisor de prana; de éstos nos hemos ocupado anteriormente.
+
+Los centros del ser humano se relacionan fundamentalmente con el aspecto FUEGO del hombre y con su Espíritu divino. Se relacionan definidamente con la Mónada, el aspecto voluntad, la inmortalidad, la existencia, la voluntad de vivir y con los poderes que son inherentes al Espíritu. No se vinculan con la objetividad y la manifestación sino con la fuerza o los poderes de la Vida divina. La analogía en el Macrocosmos se halla en la fuerza que manipula a las nebulosas cósmicas y con su movimiento de rotación remolinante las transforma en planetas o cuerpos esferoidales. Cada uno de esos planetas es una expresión de la “voluntad de vivir” de alguna entidad cósmica y esa fuerza remolinante, giratoria, constructora, solidificadora, que continúa manteniendo en coherencia a la forma, es la fuerza de algún Ser cósmico.
+
+:::note recuerda
+
+Los centros del ser humano se relacionan fundamentalmente con el aspecto FUEGO del hombre y con su Espíritu divino. Se relacionan definidamente con la Mónada, el aspecto voluntad, la inmortalidad, la existencia, la voluntad de vivir y con los poderes que son inherentes al Espíritu. No se vinculan con la objetividad y la manifestación sino con la fuerza o los poderes de la Vida divina.
+
+:::
+
+Esta fuerza que se origina en niveles mentales cósmicos -partiendo desde ciertos grandes centros que allí existen- desciende al astral cósmico formando los correspondientes puntos focales cósmicos que se encuentran en el cuarto nivel etérico cósmico -el plano búdico de nuestro sistema solar- y sale por ciertos grandes centros. Estos <pin lang="en">166</pin> centros a su vez, se reflejan o reproducen en los tres mundos de la actividad humana. En consecuencia se ha de tener presente que los Hombres celestiales tienen centros en tres planos solares:
+
+1. En el plano monádico, el plano de los siete Rayos.
+2. En el plano búdico, donde los Maestros y sus discípulos constituyen los cuarenta y nueve centros de los cuerpos de los siete Hombres celestiales.
+3. En el cuarto plano físico etérico, donde se encuentran los planetas sagrados, cuerpos densos de materia etérica de los Hombres celestiales.
+
+Podría establecerse también aquí la analogía microcósmica:
+
+En el ser humano los centros se encuentran en el plano mental <pin lang="es">158</pin> donde se origina el impulso que lleva a la existencia en el plano físico, o la voluntad de encarnar; puede aplicarse además en el nivel astral y oportunamente en los niveles etéricos hasta el cuarto éter, donde prácticamente sufren la misma evolución que siguieron los centros planetarios, por cuyo intermedio se produce la objetividad -pues son centros de fuerza.
+
+Los centros están formados en su totalidad por corrientes de fuerza que descienden del Ego, que las transmite desde la Mónada. En esto reside el secreto de la aceleración gradual de las vibraciones de los centros cuando el Ego, por primera vez, empieza a controlar o a actuar; luego (después de la Iniciación) la Mónada hace lo mismo, originando cambios y acrecentando la vitalidad dentro de estas esferas de fuego o de fuerza vital pura.
+
+:::note Recuerda
+
+Los centros están formados en su totalidad por corrientes de fuerza que descienden del Ego, que las transmite desde la Mónada. En esto reside el secreto de la aceleración gradual de las vibraciones de los centros cuando el Ego, por primera vez, empieza a controlar o a actuar; luego (después de la Iniciación) la Mónada hace lo mismo, originando cambios y acrecentando la vitalidad dentro de estas esferas de fuego o de fuerza vital pura.
+
+:::
+
+Cuando los centros funcionan correctamente, forman el “cuerpo de fuego” que, con el tiempo, es todo lo que le queda, en primer lugar, al hombre en los tres mundos, y después a la Mónada. Este cuerpo de fuego es el “cuerpo incorruptible” [^9] o indestructible que menciona San Pablo, el producto de la evolución y de la fusión perfecta de los tres fuegos que finalmente destruyen la forma. Una vez que se <pin lang="en">167</pin>destruye, sólo queda este cuerpo intangible espiritual de fuego, una llama pura, caracterizada por siete centros brillantes que arden con más intensidad. Este fuego eléctrico es el resultado de la unión de los dos polos y se manifiesta en el momento de haberse logrado la completa unificación, constituyendo el significado esotérico de las palabras “Nuestro Dios es un Fuego consumidor”. [^10]
+
+A tres de estos centros se los denomina mayores, porque personifican los tres aspectos de la triple Mónada -Voluntad, Amor e Inteligencia:
+
+|                        |                 |                          |
+| ---------------------- | --------------- | ------------------------ |
+| 1. El centro coronario | La Mónada.      | Voluntad o Poder.        |
+| 2. El centro cardíaco  | El Ego          | Amor y Sabiduría         |
+| 3. El centro laríngeo  | La Personalidad | Actividad o Inteligencia |
+
+Los otros dos centros están relacionados principalmente con el cuerpo etérico y con el plano astral. El centro laríngeo sintetiza toda la vida de la personalidad y está definidamente vinculado con el plano mental -los tres planos y los dos planos superiores, y los tres centros conjuntamente con los otros dos centros, el cardíaco y el coronario. Sin embargo, debemos recordar que el centro situado en la base de la columna vertebral es también sintetizador, si se tiene en cuenta que el plano más inferior de toda manifestación <pin lang="es">159</pin> es el punto donde todo se refleja con mayor intensidad. En este centro se sintetiza el fuego kundalínico con los fuegos pránicos, mezclándose y fusionándose oportunamente con el fuego de la mente y luego con el fuego del Espíritu, produciéndose así la consumación.
+
+Debemos desechar de nuestra mente la idea de que tales centros son cosas físicas. Constituyen remolinos de fuerza que hacen girar la materia etérica astral y mental para que desarrollen cualquier clase de actividad. Debido a que la actividad es giratoria, el resultado producido en la materia es un efecto circular que el clarividente puede verlo como ruedas de fuego situadas:
+
+1. En las región de la columna vertebral, la parte inferior.
+2. Entre las costillas, justamente debajo del diafragma. <pin lang="en">168</pin>
+3. En la zona que abarca la tetilla derecha.
+4. En el centro de la laringe.
+5. En la cabeza, justamente encima de su cúspide.
+
+Quisiera describir estos centros más detalladamente, tal como se ven en materia etérica, basando lo que voy a decir en las afirmaciones similares hechas por C. W. Leadbeater en Vida Interna, T. I, 407-460. Los colores y el número de pétalos son los siguientes:
+
+1. Base de la columna vertebral. Cuatro pétalos. Estos pétalos están colocados en forma de cruz e irradian fuego anaranjado.
+2. Sacro, seis pétalos con varios colores, dominando el rojo, el verde y el rosa.
+3. Plexo solar, diez pétalos de color rosado, mezclado con verde.
+4. Centro cardíaco, doce pétalos de color dorado resplandeciente.
+5. Centro laríngeo, dieciséis pétalos de color azul plateado, predominando el azul.
+6. El centro coronario con sus dos divisiones:
+   1. Entre las cejas, noventa y seis pétalos; la mitad del loto es de color rosa y amarillo y la otra mitad de color azul y púrpura.
+   2. En la cúspide de la cabeza, un centro principal de doce pétalos de color blanco y oro y novecientos sesenta pétalos secundarios dispuestos alrededor de los doce centrales. Esto hace un total de mil sesenta y ocho pétalos entre ambos (formando un solo centro) o sea trescientas cincuenta y seis triplicidades. Estas cifras tienen un significado oculto.
+
+Así como la Mónada es la suma total de los tres aspectos y de los siete principios del hombre, el centro coronario es una réplica de ello, y contiene dentro de su esfera de influencia otros siete centros, de los cuales es la síntesis. Estos siete centros se dividen además en tres mayores y cuatro menores, y su unión e integración se ve como resplandeciente centro que los corona y envuelve. Hay también tres centros físicos denominados <pin lang="es">160</pin><pin lang="en">169</pin>
+
+1. el centro alta mayor,
+2. la glándula pineal,
+3. el cuerpo pituitario,
+
+con cuatro centros menores. Estos cuatro centros están fusionados en ese centro que llamamos alta mayor, del cual no nos ocuparemos. Quisiera indicar además que existe una íntima relación entre
+
+1. el centro alta mayor y el laríngeo,
+2. el centro cardíaco y el cuerpo pituitario,
+3. el centro coronario y la glándula pineal.
+
+Sería conveniente que el estudiante observara la interesante sucesión de triángulos que existen y la forma en que se han de vincular mediante la progresión del fuego antes que éste pueda vivificarlos completamente y luego pasar a otras transmutaciones. Podemos enumerar algunos de estos triángulos, recordando siempre que de acuerdo al Rayo ascenderá geométricamente el fuego, y así será la secuencia correlativa de los puntos que ha de tocar. Aquí reside uno de los secretos de la Iniciación y también algunos de los peligros que implica la publicación prematura de informes respecto a los Rayos.
+
+1. El triángulo pránico.
+   1. El centro entre los hombros.
+   2. El centro cerca del diafragma.
+   3. El bazo.
+2. El hombre regido desde el plano astral.
+   1. La base de la columna vertebral.
+   2. El plexo solar.
+   3. El corazón.
+3. El hombre regido desde el plano mental.
+   1. La base de la columna vertebral.
+   2. El corazón.
+   3. La garganta. <pin lang="en">170</pin>
+
+#### el hombre avanzado.
+
+4. El hombre parcialmente regido por el Ego,
+   1. El corazón.
+   2. La garganta.
+   3. La cabeza, es decir, los cuatro centros menores y su síntesis, el centro alta mayor.
+5. El hombre espiritual hasta la tercera Iniciación.
+   1. El corazón.
+   2. La garganta.
+   3. Los siete centros de la cabeza.
+6. El hombre espiritual hasta la quinta Iniciación.
+   1. El corazón.
+   2. Los siete centros de la cabeza.
+   3. Los dos lotos de múltiples pétalos.
+
+<p>
+<pin lang="es">161</pin> Estos distintos períodos demuestran las diferentes radiaciones triangulares. No podemos deducir de lo antedicho que si el fuego está centrado en un triángulo no se manifieste en otros. Cuando el fuego pasa libremente por cualquier triángulo arde continuamente, pero hay siempre un triángulo más radiante y luminoso que los otros. Al observar estos resplandecientes triángulos de luz, que surgen de ruedas y vórtices de fuego, los clarividentes y los Instructores de la raza pueden apreciar el lugar que ocupa el hombre en el esquema de las cosas y juzgar sus progresos. En la culminación de la experiencia de la vida, cuando el hombre ha alcanzado su meta, cada triángulo es una senda radiante de fuego, cada centro una rueda de fuerza ígnea viviente girando a velocidad vertiginosa; en esta etapa el centro no sólo gira en dirección específica, sino que literalmente gira sobre sí mismo, formando un globo iridiscente, llameante y viviente, de fuego puro, manteniendo en su interior cierto perfil geométrico, y vibrando al mismo tiempo tan rápidamente que el ojo humano apenas puede seguirlo. Sobre todo, en la cúspide de la cabeza se ve un despliegue ígneo que torna insignificantes a los demás centros; del corazón de este loto de muchos pétalos surge una llama de fuego con el matiz básico del rayo a que pertenece el hombre. Esta llama <pin lang="en">171</pin>se eleva y parece hacer descender una masa de luz eléctrica, cuyo descenso proviene del Espíritu desde el plano más superior. Esto indica la fusión de los fuegos y la liberación del hombre de las ligaduras de la materia.
+</p>
+
+Ahora observaremos que la evolución de estos centros de fuerza no sólo pueden ser representados por palabras sino por los mismos cinco símbolos que tienen frecuentemente una interpretación cósmica.
+
+1. **El círculo.** En esta etapa el centro se ve simplemente como una concavidad parecida a un platillo (según lo describe C. W. Leadbeater) de fuego que fulgura débilmente, compenetrándolo todo, pero de poca intensidad. La rueda gira lentamente, tanto que el movimiento es casi imperceptible. Esto corresponde a la etapa de aquellos que están poco evolucionados, a la primitiva raza raíz lemuriana y a ese período en que el hombre era simplemente un animal; en aquél entonces ya se estaba formando un campo para que apareciera la chispa de la mente.
+2. **El circulo con el punto en el centro.** El centro tiene aquí un punto de fuego resplandeciente, en el medio de la concavidad parecida a un platillo, que acelera la rotación. Esto corresponde a la etapa en que la mente empieza a hacerse sentir, como ocurrió a fines de la época lemuriana.
+3. **El círculo dividido en dos.** En esta etapa se activa el punto de luz en el centro del vórtice de fuego; el movimiento de <pin lang="es">162</pin> rotación hace que arda con mayor luminosidad y lance rayos de fuego en dos direcciones, dividiendo aparentemente el vórtice en dos; al acelerarse el movimiento la llama divisoria del vórtice oscila hacia atrás y hacia adelante, avivando la luminosidad del centro hasta alcanzar un punto de mayor luminosidad. Esto corresponde a la época atlante.
+4. **El centro dividido en cuatro.** Llegamos ahora a la etapa en que el centro está extraordinariamente activo, con la cruz dentro de su periferia girando al igual que la rueda y produciendo un efecto de gran belleza y actividad, lo cual indica que el hombre ha alcanzado un alto grado de desarrollo <pin lang="en">172</pin> mental correspondiente a la quinta raza raíz o a la quinta ronda del ciclo mayor; el hombre es consciente de dos actividades internas, simbolizadas por la rueda y la cruz interna giratorias. El hombre presiente lo espiritual, aunque actúa activamente en la vida personal, y por el desarrollo alcanzado se halla cerca del Sendero de Probación.
+5. **La Swastica.** En esta etapa, el centro llega a ser cuatridimensional; la cruz interna giratoria comienza a girar sobre su eje y a impulsar la periferia llameante en todas direcciones, de manera que el centro podría describirse mejor como una esfera de fuego en vez de una rueda. Marca las dos divisiones del Sendero, porque el proceso que produce el efecto descrito abarca todo el periodo del Sendero. Al final de este período los centros se ven como globos de fuego radiante, y los rayos de la rueda (o la evolución de la cruz desde el punto central) se fusionan y mezclan en un “fuego que todo lo consume”.
+
+Podría intercalarse un breve párrafo relacionado con este tema, y otro que será de mucho valor si se lo medita, pues producirá un efecto definido sobre uno de los centros, lo cual deberá descubrir el estudiante. Dichos párrafos son los siguientes:
+
+> El secreto del Fuego se halla oculto en la segunda letra de la Palabra Sagrada. El misterio de la vida se halla oculto en el corazón. Cuando vibra el punto inferior, cuando el triángulo sagrado resplandece, cuando el punto, el centro medio y el ápice arden, entonces los dos triángulos -el mayor y el menor- se fusionan en una sola llama que todo lo consume.
+>
+> El fuego dentro del fuego menor es fuertemente impelido en su progreso cuando el círculo de lo móvil y lo inmóvil, de la rueda menor dentro de la mayor, inmóvil en el tiempo, encuentra su doble salida, entonces brilla con la gloria del doble Uno y de Su séxtuple Hermano. Fohat se precipita a través del espacio. Busca su complemento. <pin lang="en">173</pin> El aliento de lo inmóvil y el fuego del Uno que ve el conjunto desde el principio, se <pin lang="es">163</pin> apresuran a unirse, y lo inmóvil se trasforma en una esfera de actividad.
+
+Ahora nos ocuparemos del segundo punto, el tema de los centros:
+
+### 2. Los Centro y los Rayos.
+
+
+
+
+
+
 
 
 [^1]: Hemos visto que en uno de los seis subplanos no atómicos de los planos mental y astral, la Esencia elemental está formada de conglomerados de materia -que no sirven como formas para ser habitadas por cualquier ente, sino que son el material con el cual se construyen las formas.
@@ -246,3 +442,7 @@ Consideramos únicamente la materia, el calor latente y el resultado producido p
 [^7]: "La Luna (nuestro satélite) precipitando toda su vida, energía y poderes dentro del globo más inferior de nuestra cadena planetaria (Globo D., "Tierra") y habiéndolos transferido a un nuevo centro, se convirtió virtualmente en un planeta muerto, en el cual, desde el nacimiento de nuestro globo, ha cesado toda rotación." D. S. i, 189.
 
 [^8]: D. S. I, 188.
+
+[^9]: La Biblia, Cor., I, XV, 53.
+
+[^10]: La Biblia, Deut., IV, 24; Heb., XII, 29.
