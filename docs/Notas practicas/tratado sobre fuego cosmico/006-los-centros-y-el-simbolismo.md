@@ -5,7 +5,6 @@ title: Los centros y el simbolismo
 # Los centros y el simbolismo
 
 > [Tratado sobre fuego cósmico](/tratado-sobre-fuego-cosmico/el-movinmiento-de-los-planos-fisico-y-astral#en171)
-> 
 
 Ahora observaremos que la evolución de estos centros de fuerza no sólo pueden ser representados por palabras sino por los mismos cinco símbolos que tienen frecuentemente una interpretación cósmica.
 

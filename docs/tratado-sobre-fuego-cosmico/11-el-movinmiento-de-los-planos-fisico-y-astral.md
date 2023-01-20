@@ -420,6 +420,127 @@ Ahora nos ocuparemos del segundo punto, el tema de los centros:
 
 ### 2. Los Centro y los Rayos.
 
+El tema, susceptible de gran amplitud, nos dará la base para profundas reflexiones, deducciones e inteligentes conjeturas. El único objetivo de lo que se expone aquí es proporcionar hechos fundamentales, sobre los cuales, empleando la imaginación, podrá erigirse una estructura basada en conjeturas y razonamiento lógico que permitirá dos cosas:
+
+Desarrollar la capacidad de ampliar los conceptos mentales y construir el antakarana -puente que deben construir entre la mente superior y la inferior quienes aspiren a actuar en el vehículo búdico. De allí la necesidad de utilizar la imaginación (equivalente astral de la discriminación mental) y de transmutarla en intuición.
+
+:::note Recuerda
+
+la imaginación (equivalente astral de la discriminación mental)
+
+:::
+
+Todos los instructores que aceptan discípulos para ser entrenados y tratan de utilizarlos en el servicio mundial, emplean el mismo método: exponen un hecho (muchas veces velado en palabras u oculto en un símbolo) dejando luego que el discípulo haga sus propias deducciones. De esta manera se desarrolla la facultad de discriminar, método esencial que libera al Espíritu de las ligaduras de la materia y le enseña a discernir entre la ilusión y lo que ella vela.
+
+Muy poco puede decirse sobre este tema, pues si se tratara extensamente daría demasiada información a aquellos que están propensos a aplicarla erróneamente. Como sabemos, la evolución de los centros es un proceso gradual y lento que avanza en ciclos ordenados, los cuales varían según el rayo de la Mónada del hombre.
+
+<p><pin lang="en">174</pin>A los fines de esta exposición podemos dividir la vida del Peregrino en tres períodos principales, a saber:</p>
+
+1. El período en que está influenciada por el rayo de la personalidad.
+2. El período en que está influenciada por el rayo del ego.
+3. El período en que está regida por el rayo monádico.
+
+El *primer período* es mucho más prolongado que los otros dos; y abarca la vasta progresión de los siglos durante los cuales se desarrolla el aspecto actividad del triple yo. Las vidas transcurren una tras otra, durante las cuales se forja lentamente el aspecto manas o mente, y el ser humano es controlado cada vez más por su intelecto, actuando por medio de su cerebro físico. Podría decirse que esto corresponde al período del primer sistema solar, donde el tercer aspecto del Logos: Brahma, Mente, Inteligencia, estaba <pin lang="es">164</pin>alcanzando su total culminación [^11]. Luego, en el actual sistema solar, <pin lang="en">175</pin> el segundo aspecto comenzó a fusionarse y a forjarse por su intermedio. Los siglos pasan y el hombre va siendo cada vez más inteligente; el campo de acción de su vida es cada vez más apropiado para la entrada de este segundo aspecto. La analogía reside en la similitud y no en los detalles observados en tiempo y espacio. Abarca el período de los tres primeros triángulos de los cuales ya nos hemos ocupado anteriormente Para mayor claridad no debemos olvidar que establecemos diferencias entre los diversos aspectos, y consideramos su desarrollo separadamente, lo cual sólo es permitido en tiempo y espacio o durante el proceso evolutivo, pero no desde el punto de vista del Eterno Ahora o de la Unidad del <pin lang="es">165</pin> Omni-Yo. El aspecto Vishnu o Amor-Sabiduría, se halla latente en el Yo y es parte del contenido monádico, pero el aspecto Brahma o Actividad-Inteligente precede a su manifestación en el tiempo. El Tabernáculo en el Desierto precedió a la construcción del Templo de Salomón; el grano de trigo ha de permanecer en la oscuridad de la madre Tierra antes de que aparezcan las doradas espigas; el Loto ha de hundir sus raíces en el lodo antes de que manifieste la belleza de su capullo.
+
+El *segundo periodo*, en que domina el rayo egoico, no es comparativamente tan prolongado; comprende el período en que los triángulos cuarto y quinto son vivificados; caracteriza a esas vidas del hombre en que pone sus fuerzas del lado de la evolución, se somete a disciplina, entra en el Sendero de Probación y va ascendiendo hasta la tercera Iniciación. Bajo la égida del Rayo de la Personalidad, el hombre recorre los cinco rayos (del tercero al séptimo) a fin de trabajar conscientemente con la mente, el sexto sentido, pasando primero por los cuatro rayos menores y con el tiempo por el tercero. Trabaja <pin lang="en">176</pin> con el tercer Rayo, el de Inteligencia activa, y de allí continúa con uno de los subrayos de los dos rayos mayores, si el tercero no es su rayo egoico.
+
+Lógicamente, cabría preguntarse si el rayo egoico debe ser necesariamente uno de los tres rayos mayores , y si hay Maestros e Iniciados en alguno de los rayos menores o de la mente.
+
+La respuesta sería que el rayo egoico puede ser uno de los siete; pero se ha de recordar que en este sistema solar astral-búdico, donde el amor y la sabiduría vienen a la objetividad, la mayoría de las mónadas están en el Rayo de Amor-Sabiduría. El hecho de que éste constituya el rayo sintético tiene vasto significado. Es el sistema del HIJO, cuyo nombre es Amor, la divina encarnación de Vishnu. El Dragón de la sabiduría se halla en manifestación y trae a la encarnación esas Entidades cósmicas que en esencia son idénticas a ÉL. Después de la tercera Iniciación todo ser humano encuentra que su rayo monádico pertenece a uno de los tres rayos mayores. El hecho de que Maestros e Iniciados pertenezcan a todos los rayos se debe a los dos factores siguientes:
+
+Primero: Cada rayo mayor tiene sus subrayos que corresponden a los siete rayos.
+
+Segundo: Muchos de los guías de la raza pasan de un rayo a otro a medida que se los necesita y de acuerdo a las exigencias del trabajo. Cuando es transferido un Maestro o un Iniciado, tiene lugar un total reajuste.
+
+Similarmente, cuando un Maestro deja de pertenecer a la Jerarquía de nuestro planeta para trabajar en otra parte, con frecuencia es necesario efectuar una completa reorganización y la <pin lang="es">166</pin> consiguiente admisión de nuevos miembros en la gran Logia Blanca. Estos hechos son poco comprendidos. Aquí podríamos, aprovechando la oportunidad, advertir que al considerar los Rayos no nos referimos a las condiciones que prevalecen en la tierra ni exclusivamente a la evolución de las Mónadas en la misma, sino que también tratamos del sistema <pin lang="en">177</pin> solar en el cual nuestra Tierra tiene un lugar necesario pero no supremo. La Tierra es un organismo dentro de otro mayor, hecho que es necesario reconocer ampliamente. Los hijos de los hombres, moradores de este planeta, con frecuencia creen que la Tierra ocupa en el sistema el lugar del sol, centro del organismo solar.
+
+Bajo la égida del Ego, predomina el rayo en el cual el ego se encuentra. Este rayo es meramente un reflejo directo de la mónada y depende del aspecto de la tríada espiritual que, en un momento dado, constituye para el hombre la línea de menor resistencia. Por lo antedicho se ha de comprender que a veces el rayo tendrá por centro de fuerza el aspecto átmico, otras el búdico y otras veces el manásico. Aunque la tríada es triple, sin embargo las vanguardias egoicas (si así puede expresarse) serán definidamente átmicas o predominantemente búdicas o manásicas. Nuevamente llamaré la atención sobre el hecho de que esta triple demostración puede ser percibida en tres formas, totalizando nueve rayos para la selección del Ego:
+
+1. Aspecto átmico
+   1. Atmico-átmico
+   2. Átmico-búdico.
+   3. Atmico-manásico
+2. Aspecto búdico
+   1. Búdico-atmico
+   2. Búdico-búdico
+   3. Búdico-manásico
+3. Aspecto manásico
+   1. Manásico-átmico
+   2. Manásico-búdico
+   3. Manásico-manásico
+
+Esto significa literalmente que cada uno de los tres rayos mayores (respecto al Ego) tienen tres subdivisiones. Este hecho es también poco comprendido.
+
+<p>
+<pin lang="en">178</pin> El tercer período, durante el cual el Rayo monádico se hace sentir en el plano físico, es el más corto y abarca el período de predominio del sexto triángulo. Señala el período de realización, <pin lang="es">167</pin> de liberación, y aunque es el más corto visto desde abajo, es de relativa permanencia visto desde el plano de la Mónada. Comprende todo el tiempo que resta de los cien años de Brahma, o lo que resta del proceso de manifestación.
+</p>
+
+Por lo tanto, al estudiar la serie de triángulos ya mencionados y los períodos en que predominan los rayos, tendremos mucho material para reflexionar. Sin embargo, quisiera advertir que los seis grupos de triángulos son cinco si se elimina al triángulo pránico, el cual no es tenido en cuenta por estar relacionado con la materia, así como tampoco se tiene en cuenta, como principio, al físico denso. En consecuencia tenemos:
+
+1. Dos triángulos vivificados por el rayo de la personalidad.
+2. Dos triángulos vivificados por el rayo egoico.
+3. El triángulo sintetizador de la Mónada.
+
+No obstante, debemos recordar que la complejidad aumenta porque los triángulos de la personalidad alcanzarán plena actividad de acuerdo al rayo de la Mónada o Espíritu. En consecuencia, no se puede establecer una regla fija para su desarrollo. Los triángulos egoicos dependen en gran parte del reflejo de la fuerza vital espiritual ejercida sobre la personalidad. Constituyen el punto intermedio, así como el cuerpo causal o egoico es el punto transmisor (cuando está construido y suficientemente dotado) entre lo superior y lo inferior.
+
+Los átomos permanentes están encerrados dentro de la periferia del cuerpo causal; sin embargo este cuerpo relativamente permanente, es construido, ensanchado, expandido y transformado en un <pin lang="en">179</pin> receptor central y en una estación transmisora (usando palabras inadecuadas para expresar una idea esotérica) por la acción directa de los centros, sobre todo de los centros. Del mismo modo que la fuerza espiritual o aspecto voluntad construyó el sistema solar, así se construye en el hombre el cuerpo causal. Al ponerse en contacto Espíritu y materia (Padre-Madre) en el macrocosmos y al unirse por un acto de voluntad, vino a la existencia el Hijo, el sistema solar objetivo: ese Hijo del deseo, cuya característica es Amor y cuya naturaleza es budi o sabiduría espiritual. Por la unión (en el microcosmos) del Espíritu y la materia y su coherencia por medio de la fuerza o la voluntad espiritual, se produce ese sistema objetivo, el cuerpo causal, producto del deseo transmutado, cuya característica (una vez manifestada plenamente) será el amor, que con el tiempo expresará a budi en el plano físico. El cuerpo causal es sólo la envoltura del Ego. El sistema solar es la envoltura del Hijo. En los sistemas mayor y menor existen centros de fuerza que producen la objetividad. Los centros del Ser humano son el reflejo, en los tres mundos, de esos centros superiores de fuerza.
+
+<pin lang="es">168</pin>Antes de ocuparnos del kundalini y de los centros sería conveniente ampliar lo antedicho, comenzando desde la especial significación que tiene para el hombre, y aquello que le concierne, hasta el sistema solar, el macrocosmos y el cosmos. Lo que se afirma respecto al microcosmos es aplicable también al macrocosmos y al cosmos. No será posible decir cuáles son los triángulos que pertenecen al sistema, pues dicha información deberá darse en forma tan velada que, a excepción de aquellos que tienen conocimientos ocultos y desarrollada la intuición, intelectualmente no tendría utilidad práctica, pero podrían indicarse algunas cosas interesantes.
+
+El Sistema solar. Podemos considerarlo brevemente desde <pin lang="en">180</pin> el punto de vista de los Hombres celestiales y del gran Hombre de los Cielos, el Logos.
+
+1. Los Hombres celestiales. Poseen centros lo mismo que el ser humano; dichos centros de fuerza se hallan en Su propio plano. Nuevamente ha de recordarse que tales centros de fuerza en los niveles cósmicos y en la manifestación del sistema objetivo, se demuestran como grandes centros de fuerza, de los cuales son un exponente cualquier grupo de adeptos y sus discípulos. Cada grupo de Maestros y los seres humanos, encarnados o desencarnados -que se hallan dentro de la periferia de Su conciencia-, constituyen un centro de fuerza de tipo o cualidad especial. Este hecho generalmente se acepta, pero se debería urgir a los estudiantes a vincularlo con la información dada sobre los centros del ser humano, con lo cual aprenderán mucho. Dichos centros de fuerza se manifiestan en los niveles etéricos y en los planos sutiles tal como se manifiestan en el hombre, y serán vivificados igual que los centros humanos, mediante el kundalini planetario circulando por los triángulos deseados.
+
+    Dos indicaciones podrían darse aquí para una concienzuda consideración. En relación con uno de los Hombres celestiales (cuyo nombre no puede ser revelado) existe un triángulo de fuerza formado por los tres centros siguientes:
+
+       1. El centro de fuerza del que el Manu y Su grupo son la expresión.
+       2. El centro de fuerza del que el Bodhisattva o Cristo, y Sus adherentes son el punto focal.
+       3. El centro de fuerza del que el Mahachohan y Sus seguidores son los exponentes.
+    
+    Estos tres grupos constituyen los centros de un gran triángulo -el cual no ha sido vivificado totalmente en esta etapa del desarrollo evolutivo. <pin lang="es">169</pin><pin lang="en">181</pin>
+
+    Otro triángulo, en relación con nuestro Logos planetario, es el formado por los siete Kumaras -los cuatro Kumaras exotéricos corresponden a los cuatro centros menores de la cabeza, y los tres Kumaras esotéricos corresponden a los tres centros mayores de la cabeza.[^12] [^13]
+
+    La otra indicación se refiere al triángulo formado por la Tierra, Marte y Mercurio. La analogía de este triángulo reside en el hecho de que Mercurio y el centro de la base de la columna vertebral del ser humano están estrechamente vinculados. Mercurio expresa al kundalini como actividad inteligente, mientras Marte expresa al kundalini latente. La verdad se halla oculta en sus símbolos astrológicos. Mediante la transmutación y la geometrización planetaria se revelará el secreto.
+
+2. El Gran Hombre de los Cielos. Los siete Hombres celestiales constituyen los siete centros del cuerpo del Logos, y guardan con este idéntica relación que la de los Maestros y sus grupos afiliados respecto a un Logos planetario. El kundalini del sistema vivifica dichos centros, y en esta etapa de desarrollo ciertos centros están más estrechamente vinculados que otros. Así como en relación con nuestro Logos planetario, los tres planetas etéricos de nuestra cadena -Tierra, Mercurio y Marte- [^14] forman un triángulo de excepcional importancia, además puede decirse que en el actual grado de evolución los centros logoicos Venus, Tierra y Saturno forman también un triángulo muy interesante. Este es un triángulo que en la actualidad está siendo vivificado <pin lang="en">182</pin>debido a la acción del kundalini; en consecuencia hace que aumente la capacidad vibratoria de los centros, que lentamente se van transformando en cuatridimensionales. No es posible decir nada respecto a los otros grandes triángulos, pero referente a los centros podemos dar aquí dos indicaciones:
+
+    Primero. Venus corresponde al centro cardíaco del cuerpo logoico: por consiguiente se interrelaciona con los demás <pin lang="es">170</pin>centros del sistema solar, donde el aspecto corazón predomina.
+
+    Segundo. Saturno corresponde al centro laríngeo, o actividad creadora del tercer aspecto.
+
+    A medida que la evolución avanza, los centros vibran en forma más pronunciada y el fuego (circulando triangularmente) los llevará a una mayor prominencia; sin embargo los dos ya mencionados son de primordial importancia en la actualidad. Con el triángulo menor de nuestra cadena ambos constituyen el punto focal de energía desde nuestro punto de vista planetario.
+
+Además de estas indicaciones acerca de los centros micro y macrocósmicos, únicamente pueden darse aquellas analogías cósmicas que es posible exponer.
+
+**El Cosmos**. Nuestro sistema solar con las Pléyades y una de las estrellas de la Osa Mayor forman un triángulo cósmico o conjunto de tres centros en el Cuerpo de AQUEL SOBRE QUIEN NADA PUEDE DECIRSE. La siete estrellas de la constelación de la Osa Mayor constituyen las analogías de los siete centros de la cabeza en el cuerpo de dicho Ser, más grande que nuestro Logos. Asimismo otros dos sistemas, al vincularse con el sistema solar y las Pléyades, constituyen un cuaternario inferior, que con el tiempo se sintetizan en los siete centros de la cabeza, como ocurre similarmente con el ser humano después de la cuarta Iniciación. <pin lang="en">183</pin>
+
+1. Base de la columna vertebral.
+2. El plexo solar.
+3. El corazón.
+4. La garganta.
+
+El séptuple centro de la cabeza alcanza a su vez la expresión final en el resplandeciente doble centro que circunda la cabeza y se halla ubicado en la parte superior de la misma. Análogamente, hay otro centro cósmico más allá de las constelaciones citadas. El nombre de dicho centro constituye uno de los secretos de la última iniciación, la séptima. Estas son las únicas analogías que pueden darse por ahora. Lo que está más allá del “círculo no se pasa” podrá ser de interés intelectual [^15], pero, para el propósito de la evolución microcósmica no tiene mayor importancia.
+
+### 3. Los Centros y el Kundalini.
+
+Como ya se ha expresado, no es posible decir mucho acerca del kundalini, el fuego serpentino. Sin embargo, será de utilidad enumerar brevemente lo que se ha dicho: <pin lang="es">171</pin>
+
+1. El kundalini se halla concentrado en la base de la columna vertebral y su función principal, respecto al hombre medio y normal, consiste en vitalizar el cuerpo.
+2. El kundalini durante el período de la evolución efectúa tres unificaciones:
+   1. Con los fuegos irradiantes del cuerpo o prana, en un punto entre los omóplatos.
+   2. Con los fuegos de la mente, en un punto situado en la misma cúspide de la columna vertebral, el centro que se halla detrás de la laringe.
+   3. Con el fuego del Espíritu, en este punto en que los fuegos de la materia y de la mente irrumpen de la parte superior de la cabeza.
+3. Cada uno de los tres canales, dentro de la columna vertebral, tienen el fin específico de fusionar los tres fuegos. Debe tenerse en cuenta que los <pin lang="en">184</pin> fuegos circulan y que, en el momento de la realización, cada triángulo del cuerpo se vivifica y cada centro se halla en plena actividad, pudiendo percibirse una triple senda de fuego que se extiende por toda la columna vertebral.
+4. Cuando el kundalini se ha mezclado con el fuego pránico, los centros se transforman en tridimensionales. Una vez que se ha mezclado con la mente o fuego solar. y ambos fuegos están perfectamente unidos, los centros se tornan cuatridimensionales. Al fusionarse con el fuego eléctrico del Espíritu puro, después de la tercera Iniciación, los centros adquieren dos dimensiones más.
+5. Al ser despertado el kundalini acrecienta constantemente la actividad vibratoria, no sólo de los centros sino también de todos los átomos de materia de los cuerpos etérico, astral y mental. Esta aceleración de la actividad produce un doble efecto muy interesante:
+   1. Elimina toda materia grosera e inadecuada y la expele, de la misma manera que una rueda que gira rápidamente expele o rechaza lo que haya en su superficie.
+   2. Atrae a su esfera de influencia materia sintonizada con su propia vibración y la agrega a su contenido vibratorio. Esto simplemente es el reflejo de la actividad del Logos al atraer y diferenciar la materia del sistema solar. El kundalini es igualmente el fuego o fuerza de la materia, por consiguiente, la vida del tercer Logos. <pin lang="es">172</pin>
+6. El kundalini produce dos efectos en la denominada trama etérica:
+   1. Mediante su acrecentada y gradual actividad purifica esa forma etérica; la limpia de “escorias”, como dicen los cristianos.
+   2. Con el tiempo, después que los fuegos de la materia y de la mente han empezado a fusionarse (proceso gradual y lento), la trama se destruye, <pin lang="en">185</pin>de manera que al llegar a la tercera Iniciación; el hombre ha de poseer continuidad de conciencia. Esto es así, excepto cuando el hombre, debido a cierto trabajo que ha de realizar para fines específicos, renuncia voluntariamente a quemar la trama, lo cual se logra por acción consciente de la voluntad.
+
+
 
 
 
@@ -446,3 +567,19 @@ Ahora nos ocuparemos del segundo punto, el tema de los centros:
 [^9]: La Biblia, Cor., I, XV, 53.
 
 [^10]: La Biblia, Deut., IV, 24; Heb., XII, 29.
+
+[^11]: Cuando la última tierra fecunda haya terminado su ciclo de gestar hombres y la humanidad en masa haya alcanzado el estado de Buda, salido de la existencia objetiva y penetrado en el misterio del Nirvana, entonces "la hora habrá llegado"; lo visible se convertirá en invisible, y lo concreto reasumirá su estado pre-cíclico de distribución atómica.
+
+    Pero los mundos muertos que quedaron rezagados detrás del arrollador impulso, no permanecerán muertos. Movimiento es el orden eterno de las cosas y su sierva es la afinidad y atracción. La emoción de la vida volverá nuevamente a reunir al átomo, y nuevamente se agitará la vida en el planeta inerte cuando llegue el momento designado. Aunque sus fuerzas han permanecido pasivas y están aletargadas, poco a poco - cuando llegue la hora- se recuperará para emprender un nuevo ciclo de maternidad procreadora de hombres, y dará a luz tipos físicos con una moral mucho más elevada que los del manvantara anterior. Sus "átomos cósmicos que ya se hallan en un estado diferenciado" (que difiere -en el sentido mecánico del movimiento- y su efecto al producir la fuerza) permanecen pasivos como los globos y todo aquello que está en proceso de formación. Tal es "la hipótesis que está plenamente de acuerdo con mi nota y la suya". Debido a que el desarrollo planetario va paralelo a la evolución humana o racial, al llegar el momento praláyico, la serie de mundos se encuentra en sucesivas etapas de evolución; por ejemplo, cada uno ha llegado a la realización en algún período del progreso evolutivo - cada uno se detiene allí, hasta que el impulso externo del siguiente manvantara lo pone en movimiento desde ese punto-, así como a un reloj detenido que se le da cuerda. Por lo tanto, he empleado la palabra "diferenciado".
+
+    Cuando llegue el pralaya, ningún ser humano, animal ni ente vegetal estará vivo para poder verlo, sin embargo existirán tierras o globos con sus reinos minerales; estos planetas serán desintegrados físicamente en el pralaya, pero no serán destruídos, pues tienen su lugar en la secuencia de la evolución, y sus "privaciones" surgirán nuevamente de lo subjetivo, hallando el punto exacto en el cual han de moverse alrededor de la cadena de "formas manifestadas". Esto, como se sabe, se repite infinitamente durante la Eternidad. Cada uno de nosotros ha pasado por esta interesante ronda, y lo repetirá eternamente. La desviación del curso trazado y el grado de progreso de un Nirvana a otro están regidos por las causas que el hombre ha creado, debido a las obligaciones que ha de enfrentar. Extraído de Mahatma Letters to A. P. Sinnett, pág. 67.
+
+[^12]: Existen siete Kumaras vinculados con nuestra evolución planetaria, cuatro de Ellos son exotéricos y poseen vehículos de materia etérica; tres Kumaras son esotéricos y poseen vehículos de materia aún más sutil.
+
+    Sanat Kumara , el Señor del Mundo, representa en la tierra la fuerza especializada del Logos planetario; los otros seis Kumaras trasmiten energía de otros seis esquemas planetarios.
+
+[^13]: D. S. I, 194, 197-198.
+
+[^14]: A las cadenas de cualquier esquema planetario frecuentemente se les aplica los nombres de los siete planetas sagrados, lo cual facilita el estudio de la Ley de Correspondencia; análogamente, a los globos de cualquier cadena se les aplica los nombres planetarios, como sucede aquí. Existen esquemas planetarios que se denominan Marte y Mercurio.
+
+[^15]: D.S. II, 201, 354; IV, 118-119, 183.
