@@ -977,6 +977,56 @@ Para mayor claridad, vamos a clasificar los cinco aspectos diferentes de los cin
  <pin lang="en">201</pin> Toca o siente la vibración de la forma o no-yo en sus diversos grados; reconoce su identidad con ella en tiempo y espacio y para el propósito de existir o de ser y, mediante las Leyes de Economía, Atracción y Síntesis, utiliza, fusiona y oportunamente se disocia. Ve el triple proceso evolutivo, y mediante el desarrollo de la visión interna ve, dentro del corazón del sistema macro y microcósmico, al YO UNO en muchas formas; finalmente se identifica con ese Yo por el deliberado rechazo del no-yo, después de haberlo subyugado y utilizado totalmente.
  </p>
 
+4. **Gusto**. Finalmente gusta y discrimina, porque el gusto es el gran sentido que comienza a regir durante el proceso discriminador que tiene lugar cuando la naturaleza ilusoria de la materia esté en proceso de realización El discernimiento es el proceso educativo al cual se somete el Yo durante el proceso en que desarrolla la intuición -esa facultad por la cual el Yo reconoce su propia <pin lang="es">185</pin> esencia en y bajo todas las formas. La discriminación concierne a la dualidad de la naturaleza, el Yo y el no-yo, siendo el medio por el cual se diferencian en el proceso de abstracción. La intuición concierne a la unidad; es la capacidad del Yo para ponerse en contacto con otros yoes, no la facultad por la cual hace contacto con el no-yo. De allí su rareza en estos días de intenso individualismo del Ego y su identificación con la forma -identificación necesaria en estos tiempos. A medida que se desarrolla el sentido del gusto en los planos superiores, se hacen distinciones más sutiles, hasta que finalmente se llega, a través de la forma, al corazón de nuestra propia naturaleza.
+5. **Olfato**. Facultad de aguda percepción que oportunamente conduce al hombre a su fuente de origen, el plano arquetípico, hogar donde tiene su verdadera morada. Cultiva la facultad de percibir las diferencias, las cuales causan el divino descontento en el <pin lang="en">202</pin> corazón del Peregrino, en el lejano país. El hijo pródigo hace comparaciones, pues ha desarrollado ya los otros cuatro sentidos y los utiliza. Entonces adquiere la facultad del reconocimiento vibratorio, de la vibración de su hogar -si así puedo expresarlo. Es la equivalencia espiritual del sentido que, en el animal, en la paloma mensajera y en otras aves, permite que vuelvan inequívocamente al punto de partida. Es la aprehensión de la vibración del Yo, y el rápido retorno por medio de ese instinto, a la fuente de origen.
+
+Al considerar este tema, se comprenderá la vasta región que abarcan las ideas involucradas, pues comprende el completo desarrollo evolutivo del ser humano. No obstante, todo lo que se puede hacer aquí, o en cualquier otra parte, es dar ideas para ser reflexionadas cuidadosamente, y recalcar ciertos conceptos que podrán servir como pensamientos fundamentales para la futura actividad mental de la generación inmediata. Al estudiar el tema deben tenerse en cuenta los hechos siguientes:
+
+1. Que en esta parte del tratado nos hemos ocupado de los sentidos porque atañen a la forma material. Estrictamente hablando, los cinco sentidos, tal como los conocemos, son los medios de contacto establecidos por el Pensador (polarizado en su cuerpo etérico), que se expresan en la forma física mediante los centros nerviosos, células cerebrales, ganglios y plexos, que la ciencia exotérica reconoce.
+2. Que dichos sentidos, para los propósitos de la actual manifestación, tienen su punto focal en el plano astral y, por consiguiente, son estimulados en gran parte por el plexo solar -ese gran punto focal situado en el centro del cuerpo, agente que estimula a la mayoría de la familia humana en la actualidad.
+3. Que a medida que el triángulo superior entra en acción y <pin lang="es">186</pin> la polarización se eleva a los centros superiores, comienzan los sentidos a hacerse sentir en el plano mental y <pin lang="en">203</pin> el hombre llega a ser consciente en dicho plano. Cuando se transfiere la polarización de la Personalidad al Ego o al cuerpo causal, tenemos en el cuerpo humano un interesante reflejo en la división existente entre el plano mental superior y el inferior y en la línea divisoria del diafragma que separa la parte superior del cuerpo, de la inferior. Debajo del diafragma tenemos los cuatro centros inferiores:
+   1. El plexo solar.
+   2. El bazo.
+   3. Los órganos de procreación.
+   4. La base de la columna vertebral.
+ Arriba del diafragma tenemos cuatro superiores:
+   1. El cardíaco.
+   2. El laríngeo.
+   3. El ajna.
+   4. El coronario.
+
+En el microcosmos tenemos el cuaternario inferior separado de la Tríada en forma similar. Esta analogía es digna de estudio. Reflexionando detenidamente dilucidaremos la acción refleja de los centros y de los sentidos desde los diversos planos, teniendo en cuenta que a medida que los centros van despertando el proceso será triple:
+
+Primero. El despertar en el plano físico, y la actividad gradualmente creciente de los centros, hasta alcanzar el Sendero de Probación Esto ocurre paralelamente con el acrecentado uso de los sentidos y su constante utilización para identificar al Yo y sus envolturas.
+
+Segundo. El despertar en el plano astral y la actividad gradualmente acrecentada de los centros, hasta alcanzar la primera Iniciación. Esto va acompañado de la aplicación extraordinariamente aguda de los sentidos a fin de discriminar entre el Yo y el no-yo. <pin lang="en">204</pin>
+
+Tercero. El despertar en el plano mental y la actividad gradualmente acrecentada de los centros y de los sentidos. El efecto en ambos casos tiende a identificar al Yo con su propia esencia en todos los grupos y a rechazar las envolturas y las formas.
+
+Este desarrollo es paralelo y simultáneo tanto en los dos planos superiores como en los inferiores, y a medida que los sentidos astrales entran en perfecta actividad, los correspondientes centros de fuerza del plano búdico comienzan a funcionar hasta culminar en una mutua interacción vibratoria, y la fuerza de la <pin lang="es">187</pin> Triada se hace sentir definidamente sobre la personalidad por medio del astral.
+
+Simultáneamente, los correspondientes vórtices del plano átmico inician una vibración activa a medida que los centros mentales se trasforman en cuatridimensionales, hasta que una maravillosa actividad ígnea se manifiesta en los tres planos.
+
+Desde el punto de vista del fuego [^23], sin tener en cuenta por el momento el aura y <pin lang="en">205</pin>sus colores, el desarrollo evolutivo marca un proceso igualmente definido:
+
+1. La vivificación del calor interno de las envolturas o del diminuto punto de fuego latente en cada átomo individual de la materia. Este proceso continúa en los tres cuerpos; al principio despacio, luego más rápido y finalmente en forma simultánea y sintética. <pin lang="es">188</pin>
+2. La iniciación de esa actividad latente en los siete centros de todos los planos, comenzando de abajo hacia arriba, hasta que los centros (de acuerdo al Rayo y al tipo) se interrelacionan y coordinan. En el adepto perfecto se manifiestan treinta y cinco vórtices de fuego -todos en radiante actividad e interactivos.
+3. Los vórtices o ruedas de llama ondulante se entrelazan por medio de triángulos de fuego que pasan y circulan entre sí, hasta formar una trama de hebras ígneas, que unen los centros de fuego viviente y corroboran la afirmación de que los Hijos de la Mente son LLAMAS.
+4. Estos centros llegan a la perfección a medida que el aspecto Espíritu o Voluntad, asume mayor control. Los triángulos unificadores son producidos por la acción del fuego de la mente, mientras que el fuego de la materia mantiene la forma unida en orden correlativo. Se observará así la interdependencia de materia, mente y Espíritu, que se manifiesta al ojo del clarividente como la coordinación de los tres fuegos.
+5. En el Hombre celestial y Sus cuerpos, podemos observar igualmente una cadena de globos [^24], y a este respecto debe <pin lang="es">189</pin> recordarse <pin lang="en">206</pin> que las siete cadenas de un esquema son la expresión de un Logos planetario. Los Hombres celestiales se expresan mediante un esquema de siete cadenas, pero quizás se le ha dado indebida importancia al planeta físico denso de cualquier cadena. Esto ha restado importancia a la cadena entera. Podría considerarse a cada una de las siete cadenas como la representación de los siete centros que corresponde a uno de los Hombres celestiales. Sin embargo es correcto el concepto de que existen grupos de Egos que forman los centros del Hombre celestial, pero en este caso se refiere a los centros de fuerza de los planos búdico y monádico. [^25]
+
+<p>
+<pin lang="en">207</pin>A este respecto existe un punto fundamental que nunca debe olvidarse, y es que los siete Hombres celestiales han encarnado físicamente, por medio de un planeta físico; aquí reside el misterio de la evolución planetaria y también el enigma de nuestro planeta, el más misterioso de todos. Así como difiere el karma en los individuos, lo mismo ocurre con los diversos Logos; el karma de nuestro Logos planetario ha sido muy pesado y actualmente está velado en el misterio de la personalidad.
+</p>
+
+Insisto nuevamente que de acuerdo a la actividad o inactividad de los centros así difiere la manifestación, y el campo de estudio que ofrece es extenso, abstruso y de gran interés en relación con el sistema solar.
+
+### 5. Los Centros y la Iniciación.
+
+
+
+
+
 [^1]: Hemos visto que en uno de los seis subplanos no atómicos de los planos mental y astral, la Esencia elemental está formada de conglomerados de materia -que no sirven como formas para ser habitadas por cualquier ente, sino que son el material con el cual se construyen las formas.
 
 [^2]: "Los hindúes ubican a sus siete primitivos Rishis en la Osa Mayor. Consideran a las siete Existencias que funcionan a través de los astros de la Osa Mayor, como los prototipos o fuentes animadoras de los siete Hombres celestiales." D. S. IV, 195.
@@ -1076,3 +1126,86 @@ Para mayor claridad, vamos a clasificar los cinco aspectos diferentes de los cin
 [^21]: Las Iniciaciones aludidas en este tratado son las que producen esas mayores expansiones de conciencia que conducen a la liberación. Dichas iniciaciones tienen lugar en el cuerpo causal y de allí se reflejan en el físico; el Iniciado nunca proclama su iniciación.
 
 [^22]: Manasaputras son los Hijos de la Mente, el principio individual en el hombre, el Ego, el Ángel solar, en su propio cuerpo o en la región abstracta del plano mental.
+
+[^23]: El Fuego del cosmos manifestado es Septenario.
+    
+    El Triple Dios se manifiesta por medio de los siete Fuegos:
+
+    |     |                    |                                                                                                              |
+    | --- | ------------------ | ------------------------------------------------------------------------------------------------------------ |
+    | 1.  | Fuego eléctrico    | Los siete Hombres celestiales.                                                                               |
+    | 2.  | Fuego solar        | La evolución de las siete Entidades por medio de sus vehículos, los cuales desarrollan los siete principios. |
+    | 3.  | Fuego por fricción | Las siete cadenas.                                                                                           |
+
+    Constituyen los siete centros del Logos.
+
+    Un Hombre celestial se manifiesta por medio de una cadena, y es
+
+    |     |                    |                                                                                              |
+    | --- | ------------------ | -------------------------------------------------------------------------------------------- |
+    | 1.  | Fuego eléctrico    | Las siete entidades solares que dan forma a cada globo                                       |
+    | 2.  | Fuego solar        | La evolución de la vida por medio de las formas, las cuales desarrollan los siete principios |
+    | 3.  | Fuego por fricción | Los siete globos                                                                             |
+
+    Cada Hombre celestial tiene siete principios.
+
+    |     |                    |                                                                                                                                                                            |
+    | --- | ------------------ | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+    | 1.  | Fuego eléctrico    | La mónada, entidad solar.                                                                                                                                                  |
+    | 2.  | Fuego solar        | La evolución de la vida a través de sus vehículos, los cuales desarrollan los siete principios.                                                                            |
+    | 3.  | Fuego por fricción | Las siete envolturas <br /><ol><li>Átmica</li><li>Búdica</li><li>Causal</li><li>Cuerpo mental</li><li>Cuerpo astral</li><li>Cuerpo etérico</li><li>Cuerpo físico</li></ol> |
+
+    El hombre, que pertenece al plano físico, se manifiesta en los tres mundos como:
+
+    |     |                    |                   |
+    | --- | ------------------ | ----------------- |
+    | 1.  | Fuego eléctrico    | El Yo superior    |
+    | 2.  | Fuego solar        | Los siete centros |
+    | 3.  | Fuego por fricción | Las envolturas    |
+
+[^24]: Las Cadenas Planetarias:
+
+    Los siete Hombres celestiales. La forma, el sol y los siete planetas sagrados. D.S. I, 123, 167. Algunos de sus nombres y cualidades son las siguientes:
+
+    |     |                                                                  |                                 |
+    | --- | ---------------------------------------------------------------- | ------------------------------- |
+    | a.  | Los siete Logos planetarios, o los siete Espíritus ante el trono |                                 |
+    | b.  | Los siete Kumaras                                                | D. S. V, 67, 294                |
+    | c.  | Las siete deidades solares                                       | D. S. I, 134, 230; III, 96, 241 |
+    | d.  | Los siete primordiales                                           | D. S. I, 135                    |
+    | e.  | Los siete Constructores                                          | D. S. I, 166-167                |
+    | f.  | Siete Alientos intelectuales                                     | D. S. III, 307, llamada         |
+    | g.  | Los siete Manu                                                   | D. S. II, 153-154               |
+    | h.  | Las Llamas                                                       | D. S. III, 102.                 |
+
+    Provienen de kalpas anteriores D. S. III, 102.
+
+    Su naturaleza es conocimiento y amor D.S. III, 257; IV, 152.
+
+    Los siete planetas sagrados son:
+
+    1. Saturno
+    2. Júpiter
+    3. Marte
+    4. Sol (sustituye a otro planeta)
+    5. Venus
+    6. Mercurio
+    7. La Luna (sustituye a otro planeta)
+    
+    Neptuno y Urano no se enumeran aquí ni tampoco Vulcano.
+
+    Aparentemente la órbita de Neptuno incluye la totalidad del "círculo no se pasa".
+
+    Vulcano se halla dentro de la órbita de Mercurio.
+
+    Cada Hombre celestial se manifiesta por medio de una cadena compuesta de siete globos.
+
+    Los siete Logos ejercen influencia sobre una cadena, pero sólo uno de Ellos es la Entidad encarnante. Influencian a:
+
+    |                          |                  |                   |
+    | ------------------------ | ---------------- | ----------------- |
+    | a. Un globo de la cadena | b. Un plano      | c. Una ronda      |
+    | d. Un período mundial    | e. Una raza raíz | f. Una subraza    |
+    | g. Una raza rama         | h. Un grupo      | i. Un ente humano |
+
+[^25]: En La Doctrina Secreta se los denomina Llamas a los Hijos de la Mente. En la Estanza VII, 4, dice: "Estos son las llamas de tres lenguas de los cuatro pabilos. Los pabilos son las chispas que parten de la llama de tres lenguas, proyectada por las siete Llamas. La chispa pende de la llama por el hilo más fino de Fohat."
