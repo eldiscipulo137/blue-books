@@ -540,13 +540,442 @@ Como ya se ha expresado, no es posible decir mucho acerca del kundalini, el fueg
    1. Mediante su acrecentada y gradual actividad purifica esa forma etérica; la limpia de “escorias”, como dicen los cristianos.
    2. Con el tiempo, después que los fuegos de la materia y de la mente han empezado a fusionarse (proceso gradual y lento), la trama se destruye, <pin lang="en">185</pin>de manera que al llegar a la tercera Iniciación; el hombre ha de poseer continuidad de conciencia. Esto es así, excepto cuando el hombre, debido a cierto trabajo que ha de realizar para fines específicos, renuncia voluntariamente a quemar la trama, lo cual se logra por acción consciente de la voluntad.
 
+### 4. Los Centros y los Sentidos Normales y Supra normales.
 
+Antes de entrar a considerar los centros y su relación con los sentidos, Será necesario indicar ciertos hechos interesantes respecto a tales sentidos [^16], y preparar el terreno para una mayor información.
 
+<p>
+<pin lang="es">173</pin><pin lang="en">186</pin> ¿Qué son los sentidos? ¿Cuántos hay? ¿Cuál es su relación con el Hombre inmanente, el Pensador, el Divino Manasaputra? Éstos son interrogantes de vital importancia, y por su inteligente comprensión se obtiene la capacidad de seguir sabiamente el sendero del conocimiento.
+</p>
 
+Los sentidos pueden ser definidos como los órganos por medio de los cuales el hombre se da cuenta de cuanto lo rodea. Quizás no debiéramos llamarlos órganos (porque todo órgano es una forma material que existe para un propósito) sino medios de los que el Pensador se vale para ponerse en contacto con su ambiente. Medios de que se vale para investigar, por ejemplo, el plano de la materia densa; medios para adquirir experiencia, con los cuales descubre lo que necesita saber, y percibe y expande su conciencia. Consideramos los cinco sentidos tal como los emplea el ser humano. Estos sentidos existen también en el animal; pero debido a que carece de la facultad pensante correlacionadora, y la “relación entre” el yo y el no-yo está poco desarrollada, no nos ocuparemos de ellos. Los sentidos del reino animal constituyen una facultad grupal que se manifiesta como instinto racial. Los sentidos del hombre son su acervo individual y se manifiestan como
 
+1. realización individual de su propia conciencia,
+2. capacidad para afirmar ese individualismo,
+3. medio valioso para la evolución de su propia conciencia,
+4. fuente de conocimiento, y
+5. facultad transmutadora cuando finaliza la vida en los tres mundos.
 
+Enumerados por orden de desarrollo, como ya sabemos, los sentidos son cinco:
 
+1. Oído.
+2. Tacto.
+3. Vista.
+4. Gusto.
+5. Olfato.
 
+<p>
+<pin lang="es">174</pin><pin lang="en">187</pin> Cada uno de estos cinco sentidos se relaciona definidamente con uno de los planos, teniendo además su analogía en todos los planos.
+</p>
+
+Consideraremos cada uno de estos sentidos, señalaremos algunos hechos interesantes respecto a los mismos e indicaremos sus analogías en los correspondientes subplanos.
+
+|     |        |                        |
+| --- | ------ | ---------------------- |
+| 1.  | Físico | Oído                   |
+| 2.  | Astral | Tacto o sentido táctil |
+| 3.  | Mental | Vista                  |
+| 4.  | Búdico | Gusto                  |
+| 5.  | Atmico | Olfato                 |
+
+En los dos planos inferiores de los tres mundos, el astral y el físico, los cinco subplanos del esfuerzo humano constituyen los cinco superiores. Los dos subplanos inferiores, el sexto y el séptimo, se dice que están “debajo del umbral”, y conciernen a las formas de vida inferiores a la humana. Tenemos una analogía que corrobora el hecho de que las dos primeras razas raíces de esta ronda no son definidamente humanas; la tercera raza raíz, es en realidad la primera que se puede considerar humana. Por lo tanto, contando de abajo arriba, únicamente el tercer subplano de los planos físico y astral marca el comienzo del esfuerzo humano, quedando por someter cinco subplanos. En el plano mental, los cinco subplanos inferiores han de ser subyugados durante la evolución estrictamente humana. Cuando la conciencia se halla centrada en el quinto subplano (contando de abajo arriba), los planos de abstracción (desde el punto de vista del hombre en los tres mundos) suceden a los dos subplanos de síntesis, demostrándose a través de la síntesis de los cinco sentidos. En la evolución del Hombre celestial tenemos exactamente lo mismo: los cinco planos de esfuerzo, los cinco planos inferiores del sistema solar y los dos planos superiores de abstracción, el espiritual o monádico y el divino o logoico. <pin lang="en">188</pin>
+
+#### EVOLUCIÓN SENSORIA DEL MICROCOSMOS
+
+<table>
+<tr>
+<td rowspan="5">Plano Físico</td>
+<td>1.</td>
+<td>Oído</td>
+<td>5to</td>
+<td>Gaseoso</td>
+</tr>
+<tr>
+<td>2.</td>
+<td>Tacto o sensación táctil</td>
+<td>4to</td>
+<td>primer etérico</td>
+</tr>
+<tr>
+<td>3.</td>
+<td>Vista</td>
+<td>3ro</td>
+<td>super etérico</td>
+</tr>
+<tr>
+<td>4.</td>
+<td>Gusto</td>
+<td>2do</td>
+<td>Subatómico</td>
+</tr>
+<tr>
+<td>5.</td>
+<td>Olfato</td>
+<td>1ero</td>
+<td>atómico</td>
+</tr>
+
+<tr>
+<td rowspan="5">Plano Astral</td>
+<td>1.</td>
+<td>Clariaudiencia</td>
+<td>5to</td>
+<td></td>
+</tr>
+<tr>
+<td>2.</td>
+<td>Sicometría</td>
+<td>4to</td>
+<td></td>
+</tr>
+<tr>
+<td>3.</td>
+<td>Clarividencia</td>
+<td>3ro</td>
+<td></td>
+</tr>
+<tr>
+<td>4.</td>
+<td>Imaginación</td>
+<td>2do</td>
+<td></td>
+</tr>
+<tr>
+<td>5.</td>
+<td>Idealismo emotivo</td>
+<td>1ero</td>
+<td></td>
+</tr>
+
+<tr>
+<td rowspan="7">Plano Mental</td>
+<td>1.</td>
+<td>Clariaudiencia Superior</td>
+<td>7mo</td>
+<td rowspan="4">FORMA</td>
+</tr>
+<tr>
+<td>2.</td>
+<td>Sicometría planetaria</td>
+<td>6to</td>
+</tr>
+<tr>
+<td>3.</td>
+<td>Clarividencia superior</td>
+<td>5ro</td>
+</tr>
+<tr>
+<td>4.</td>
+<td>Discriminación</td>
+<td>4to</td>
+</tr>
+<tr>
+<td>5.</td>
+<td>Discernimiento Espiritual</td>
+<td>3ero</td>
+<td rowspan="3">AMORFO</td>
+</tr>
+<tr>
+<td>6.</td>
+<td>Respuesta a la vibración grupal</td>
+<td>2do</td>
+</tr>
+<tr>
+<td>7.</td>
+<td>Telepatía espiritual</td>
+<td>1ero</td>
+</tr>
+
+<tr>
+<td rowspan="5">Plano Búdico</td>
+<td>1.</td>
+<td>Captación</td>
+<td>7mo</td>
+<td></td>
+</tr>
+<tr>
+<td>2.</td>
+<td>Curación</td>
+<td>6to</td>
+<td></td>
+</tr>
+<tr>
+<td>3.</td>
+<td>Visión divina</td>
+<td>5to</td>
+<td></td>
+</tr>
+<tr>
+<td>4.</td>
+<td>Intuición</td>
+<td>4to</td>
+<td></td>
+</tr>
+<tr>
+<td>5.</td>
+<td>Idealismo</td>
+<td>3ero</td>
+<td></td>
+</tr>
+
+<tr>
+<td rowspan="5">Plano Átmico</td>
+<td>1.</td>
+<td>Beatitud</td>
+<td>7mo</td>
+<td></td>
+</tr>
+<tr>
+<td>2.</td>
+<td>Servicio activo</td>
+<td>6to</td>
+<td></td>
+</tr>
+<tr>
+<td>3.</td>
+<td>Realización</td>
+<td>5to</td>
+<td></td>
+</tr>
+<tr>
+<td>4.</td>
+<td>Perfección</td>
+<td>4to</td>
+<td></td>
+</tr>
+<tr>
+<td>5.</td>
+<td>Conocimiento total</td>
+<td>3ero</td>
+<td></td>
+</tr>
+
+</table>
+
+Se observará que no hemos hecho un compendio de los dos planos de abstracción que se hallan sobre los planos átmico y búdico; la razón se debe a que señalan un grado de realización que corresponde a iniciados de grado más elevado <pin lang="en">189</pin> que el de adepto, y está más allá de la concepción del ente humano evolucionante, para el cual se ha escrito este tratado.
+
+Para mayor claridad, vamos a clasificar los cinco aspectos diferentes de los cinco sentidos en los cinco planos, a fin de que puedan ser visualizadas sus analogías, utilizando como base la clasificación que antecede:
+
+<table>
+<tr>
+<td rowspan="5">a. Primer sentido</td>
+<td>1. Oído físico.</td>
+<td rowspan="5">Oído</td>
+</tr>
+<tr>
+<td>2. Clariaudiencia</td>
+</tr>
+<tr>
+<td>3. Clariaudiencia superior</td>
+</tr>
+<tr>
+<td>4. Captación (de cuatro sonidos).</td>
+</tr>
+<tr>
+<td>5. Beatitud</td>
+</tr>
+
+<tr>
+<td rowspan="5">b. Segundo sentido</td>
+<td>1. Tacto físico.</td>
+<td rowspan="5">Tacto o sensación táctil</td>
+</tr>
+<tr>
+<td>2. Sicometría</td>
+</tr>
+<tr>
+<td>3. Sicometría planetaria</td>
+</tr>
+<tr>
+<td>4. Curación.</td>
+</tr>
+<tr>
+<td>5. Servicio activo</td>
+</tr>
+
+<tr>
+<td rowspan="5">c. Tercer sentido</td>
+<td>1. Vista física.</td>
+<td rowspan="5">Vista</td>
+</tr>
+<tr>
+<td>2. Clarividencia</td>
+</tr>
+<tr>
+<td>3. Clarividencia superior.</td>
+</tr>
+<tr>
+<td>4. Visión divina.</td>
+</tr>
+<tr>
+<td>5. Realización</td>
+</tr>
+
+<tr>
+<td rowspan="5">d. Cuarto sentido</td>
+<td>1. Gusto físico.</td>
+<td rowspan="5">Gusto</td>
+</tr>
+<tr>
+<td>2. Imaginación</td>
+</tr>
+<tr>
+<td>3. Discriminación.</td>
+</tr>
+<tr>
+<td>4. Intuición.</td>
+</tr>
+<tr>
+<td>5. Perfección</td>
+</tr>
+
+<tr>
+<td rowspan="5">e. Quinto sentido</td>
+<td>1. Olfato físico.</td>
+<td rowspan="5">Olfato</td>
+</tr>
+<tr>
+<td>2. Idealismo emotivo</td>
+</tr>
+<tr>
+<td>3. Discernimiento espiritual.</td>
+</tr>
+<tr>
+<td>4. Idealismo.</td>
+</tr>
+<tr>
+<td>5. Conocimiento total.</td>
+</tr>
+
+</table>
+
+<p>
+<pin lang="en">190</pin> Consideraremos por separado cada uno de los cinco sentidos:
+</p>
+
+1. **Oído**. Éste es lógicamente, el primer sentido que se manifiesta. El primer aspecto de la manifestación es el sonido, por lo tanto, es de esperar que el sonido sea lo primero que el hombre percibe en el plano físico, plano más denso de manifestación y donde los efectos del sonido, considerándolo como factor creador, son más marcados. El físico es preeminentemente el plano del oído y por lo tanto es el sentido atribuible al plano más inferior de la evolución y al de cada uno de los cinco planos. En el séptimo o plano inferior, el hombre debe llegar a conocer plenamente el efecto que produce la Palabra sagrada durante su pronunciación. A medida que repercute por todo el sistema, impulsa a la materia a que ocupe su lugar asignado, encontrando en el plano físico el grado más denso de materialización y su manifestación más concreta. La llave que el hombre ha de encontrar y hacer girar, se relaciona con el misterio de
+   1. su propio sonido,
+   2. el sonido de su hermano,
+   3. el sonido de su grupo,
+   4. el sonido del Hombre celestial con el cual se halla vinculado,
+   5. el sonido del Logos o de la naturaleza, el del sistema solar y el del gran Hombre de los Cielos.
+
+ Por lo tanto, observamos que en el plano físico el hombre ha de encontrar su propia nota a pesar de la densidad de la forma:
+   1. En el plano físico descubre su propia nota.
+   2. En el astral encuentra la nota de su hermano; mediante la similitud de emoción llega a conocer la identidad de su hermano. <pin lang="en">191</pin>
+   3. En el plano mental empieza a descubrir la nota de su grupo. <pin lang="es">177</pin>
+   4. En el plano búdico, el plano de la sabiduría, comienza a descubrir la nota de su Logos planetario.
+   5. En el átmico o plano espiritual, la nota logoica comienza a resonar dentro de su conciencia.
+
+ Establezco estas diferencias para mayor claridad. Durante la evolución, debido al paralelismo existente en la naturaleza, las diferenciaciones no son tan marcadas, y el rayo al que el hombre pertenece, su grado de desarrollo, el trabajo que ha realizado anteriormente, sus limitaciones temporarias y otras causas, crean una aparente confusión; pero al observar desde arriba el gran esquema, la tarea avanza tal como se ha descrito.
+
+ La facultad de oír en el plano astral comúnmente se denomina clariaudiencia, y significa la capacidad de oír los sonidos de dicho plano. Esta facultad se manifiesta en todo el cuerpo astral, y el hombre oye a través de todo su vehículo, no sólo por medio del órgano especial, el oído, producto de la acción y la reacción en el plano físico. Esto se debe a la naturaleza fluídica del cuerpo astral. El hombre en el plano físico oye simultáneamente una escala de sonidos, y sólo una pequeña y particular gama de vibraciones hace impacto en sus oídos. La mayoría de los tonos menores de la naturaleza no los oye, ni establece ninguna diferencia con los tonos mayores; a medida que avance la evolución y se agudice el sentido interno del oído, esos otros sonidos del plano físico estarán dentro de su alcance y el hombre será agudamente consciente de todos los sonidos en los planos astral y físico -algo que si se hiciera ahora desintegraría el cuerpo. Por ejemplo, si la nota de la naturaleza, totalidad de las vibraciones producidas por todas las formas materiales densas, llegara una sola vez al oído del hombre, su cuerpo físico se desintegraría totalmente. <pin lang="en">192</pin>El hombre no está todavía preparado para tal acontecimiento; el oído interno no se halla aún debidamente desarrollado. Sólo cuando el triple oído alcance su consumación, se le permitirá “oír” plenamente en el plano físico.
+
+ La facultad de oír en el plano mental es simplemente una extensión de la facultad de diferenciar los sonidos. La audición a que hacemos referencia en todos estos planos es la que tiene que ver con la forma, concierne a la vibración de la materia y se relaciona con el no-yo. Nada tiene que ver con la psiquis o comunicación telepática de una mente a otra, sino con el sonido de la forma, o el poder por el cual una unidad aislada de conciencia se da cuenta de otra unidad que no es ella misma. Téngase esto muy en cuenta. Cuando el desarrollo del oído llega a tal grado que concierne a la psiquis, entonces lo denominamos telepatía, o esa comunicación sin palabras, síntesis de la audición en los tres planos inferiores, <pin lang="es">178</pin>conocida por el Ego en el cuerpo causal, o sea en los niveles amorfos del plano mental.
+
+ En el plano búdico, el oído (que ya posee la cualidad sintética denominada telepatía) se manifiesta como absoluta captación; porque involucra dos cosas:
+   
+   1. Conocimiento y reconocimiento del sonido individual
+   2. Conocimiento similar del Sonido del grupo
+
+ y su completa unificación. Esto trae una perfecta captación y constituye el secreto del poder del Maestro.
+
+ En el plano átmico la perfección auditiva se percibe como beatitud. Sonido, es la base de la existencia; sonido, es el método del ser; sonido, es el unificador final; sonido, es comprendido como la razón de ser, el método de la evolución y, por lo tanto, como beatitud.[^17] <pin lang="en">193</pin>
+
+2. **Tacto**. El abocarnos al tema del segundo sentido, el tacto, debemos observar que es, preeminentemente, un sentido de gran importancia en este segundo sistema solar -sistema de conciencia astral búdica.[^18] Cada uno de los sentidos, después de haber llegado a cierto punto de desarrollo, comienza a sintetizarse con los otros en tal forma que es casi imposible saber dónde comienza uno y termina el otro. Tacto es el innato reconocimiento del contacto aplicado por manas o la mente de tres maneras: <pin lang="es">179</pin>
+
+   1. Como conocimiento.
+   2. Como memoria.
+   3. Como anticipación.
+
+ Cada uno de los cinco sentidos, al vincularse con la mente, desarrolla en el sujeto el concepto que personifica el pasado, el presente y el futuro. En consecuencia, cuando el individuo se halla muy evolucionado, trasciende el tiempo. (tal como se lo conoce en los tres mundos) y, por lo tanto, puede observar los tres planos inferiores desde el punto de vista del Eterno Ahora; de esta manera los sentidos han sido reemplazados por la plena conciencia activa. Sabe, y no necesita ya de los sentidos para conducirlo al conocimiento. Pero en el tiempo y en los tres mundos, cada sentido en cada plano, es empleado para impartir al Pensador algún aspecto del no-yo y, con ayuda <pin lang="en">194</pin>de la mente, el Pensador puede ajustar su relación con ese aspecto.
+
+   1. El oído le da idea de dirección relativa y permite al hombre fijar su posición y ubicarse en el esquema.
+   2. El tacto le da idea de cantidad relativa y le permite fijar su valor relativo respecto a otros cuerpos extraños a sí mismo.
+   3. La vista le da idea de proporción y le permite ajustar sus movimientos a los de los demás.
+   4. El gusto le da idea de los valores y le permite determinar lo que le parece mejor.
+   5. El olfato le da idea de la cualidad innata y le permite encontrar lo que le atrae, porque es de la misma cualidad o esencia.
+
+ Es necesario que en todas estas definiciones se tenga en cuenta que la finalidad de los sentidos es revelar el no-yo y permitir al Yo diferenciar entre lo real y lo irreal. [^19]
+
+ <p>
+ <pin lang="es">180</pin><pin lang="en">195</pin> En la evolución de los sentidos, el oído, es ese algo ambiguo que primeramente atrae la atención del yo, aparentemente ciego, hacia
+ </p>
+
+   1. otra vibración,
+   2. algo que se origina fuera del yo,
+   3. lo que le proporciona el concepto de exteriorización. Cuando se oye el sonido por primera vez, la conciencia se da cuenta también por primera vez de aquello que es externo.
+
+ Pero todo lo que la aletargada conciencia capta (por el oído) es lo foráneo con respecto a sí misma y la dirección en que ese algo se encuentra. Esta captación, en el transcurso del tiempo, trae a la existencia otro sentido, el del tacto. La Ley de Atracción actúa; la conciencia se mueve lenta y externamente hacia aquello que ha oído; el contacto hecho con el no-yo es denominado tacto. Éste imparte otras ideas a la conciencia incipiente: ideas de dimensión, de contextura externa y de superficie. De este modo el concepto del Pensador se amplia gradualmente, puede oír y palpar pero todavía no sabe lo suficiente como para correlacionar y denominar. Una vez que ha conseguido nombrar las cosas, ha dado un gran paso adelante. Por consiguiente, podemos observar aquí que los primitivos símbolos cósmicos son aplicables a los sentidos, lo mismo que a otros aspectos:
+
+   1. El punto en el centro -la conciencia y el no-yo, en una etapa en que sólo por el sonido es posible descubrirla.
+   2. El círculo dividido -la conciencia consciente del no-yo adquirida por un reconocimiento dual.
+
+ <p>
+ <pin lang="en">196</pin>A esto le sigue la vista, el tercer sentido, el que marca definidamente la correlación de las ideas o su relación entre sí; su desarrollo va paralelo, en tiempo y función, al de la Mente. Tenemos así <pin lang="es">181</pin>oído, tacto o sensibilidad táctil y vista. Referente a la analogía debe observarse que la vista apareció con la tercera raza raíz en esta ronda y que en la tercera raza raíz hizo su aparición la Mente. Se correlacionaron y coordinaron inmediatamente el Yo y el no-yo. Su íntima asociación fue un hecho realizado, y la evolución se aceleró con renovado ímpetu.
+ </p>
+
+ Estos tres sentidos mayores (si puedo describirlos así) están definidamente aliados con uno de los tres Logos:
+
+   1. **Oído**. Reconocimiento de la cuádruple palabra; la actividad de la materia, el tercer Logos.
+   2. **Tacto**. Reconocimiento del séptuple Constructor de Formas; el agrupamiento de las formas, su aproximación e interrelación, el segundo Logos. La Ley de Atracción empieza a actuar entre el Yo y el no-yo.
+   3. **Vista**. Reconocimiento de la totalidad, la síntesis de todo, la consumación del Uno en los muchos. La Ley de Síntesis actuando en todas las formas que el yo ocupa, y el reconocimiento de la unidad esencial en toda la manifestación.
+
+ Los sentidos del gusto y del olfato, por estar ambos íntimamente vinculados al importante sentido del tacto, los podemos llamar sentidos menores. Prácticamente son subsidiarios del tacto. Este segundo sentido y su relación con el actual segundo sistema solar, merece una detenida reflexión. Dicho sentido se halla íntimamente relacionado con el segundo Logos. Aquí hay un indicio de mucho valor si se analiza debidamente. Será útil estudiar los alcances del tacto en el plano físico y en otros planos y ver adónde conduce. Esta es la facultad que nos permite llegar <pin lang="en">197</pin>a la esencia mediante el debido reconocimiento de la envoltura que la oculta. También permite al Pensador, que utiliza plenamente dicha facultad, armonizarse con la esencia de todos los yoes, en todas las etapas y, por consiguiente, ayudar a la debida evolución de la envoltura y a servir activamente. Señor de Compasión es aquel que -por medio del tacto- siente, capta plenamente y comprende la manera de remediar y corregir lo inadecuado del no-yo, sirviendo así activamente al plan de la evolución. A este respecto deberíamos estudiar análogamente el valor del tacto, como lo demuestran los sanadores de la raza (aquellos que siguen la línea de los Bodhisattvas)[^20],y el modo de manipular el efecto de la Ley de Atracción y Repulsión. Los que estudian etimología habrán observado que el origen de la palabra tacto es un tanto oscuro; probablemente significa “extraer <pin lang="es">182</pin>con movimiento rápido”. He aquí todo el secreto de nuestro sistema solar objetivo; con ello se demostrará el aceleramiento de la vibración por medio del tacto. Inercia, movilidad y ritmo, son cualidades manifestadas por el no-yo. Ritmo, equilibrio y vibración estable se alcanzan por medio de la facultad del tacto o sentido táctil. A fin de esclarecer el tema permítaseme dar un ejemplo breve. ¿Qué ocurre en la meditación? Gracias al decidido empeño y a la atención que presta a las reglas establecidas, el aspirante consigue ponerse en contacto con materia más sutil que aquella con que lo hace comúnmente. Hace contacto con su cuerpo causal, y con el tiempo hará contacto con la materia del plano búdico. Debido a este contacto su propia vibración se acelera momentánea y brevemente. Esto nos lleva de nuevo al tema que se elucida en este tratado. El fuego latente de la materia atrae hacia sí a ese fuego que está latente en otras formas. Éstos se tocan, reconocen y son conscientes de sí mismos. El fuego de manas arde continuamente y se nutre por lo que es atraído y rechazado. Cuando ambos <pin lang="en">198</pin>se fusionan aumenta extraordinariamente el estímulo y la capacidad de hacer contacto se intensifica. La Ley de Atracción continúa su obra hasta que atrae a otro fuego y hace contacto con él, completando así la triple fusión. Recuerden que esto se relaciona con el misterio del Cetro de la Iniciación [^21]. Más adelante, al tratar el tema de los centros y la iniciación, debemos recordar que estamos estudiando precisamente un aspecto de la misteriosa facultad del tacto, facultad del segundo Logos, quien aplica la Ley de Atracción.
+
+ :::note Recuerda
+ 
+  Inercia, movilidad y ritmo, son cualidades manifestadas por el no-yo. Ritmo, equilibrio y vibración estable se alcanzan por medio de la facultad del tacto o sentido táctil. A fin de esclarecer el tema permítaseme dar un ejemplo breve. ¿Qué ocurre en la meditación? Gracias al decidido empeño y a la atención que presta a las reglas establecidas, el aspirante consigue ponerse en contacto con materia más sutil que aquella con que lo hace comúnmente. Hace contacto con su cuerpo causal, y con el tiempo hará contacto con la materia del plano búdico. 
+  
+  Debido a este contacto su propia vibración se acelera momentánea y brevemente. Esto nos lleva de nuevo al tema que se elucida en este tratado. El fuego latente de la materia atrae hacia sí a ese fuego que está latente en otras formas. Éstos se tocan, reconocen y son conscientes de sí mismos. El fuego de manas arde continuamente y se nutre por lo que es atraído y rechazado. Cuando ambos <pin lang="en">198</pin>se fusionan aumenta extraordinariamente el estímulo y la capacidad de hacer contacto se intensifica. La Ley de Atracción continúa su obra hasta que atrae a otro fuego y hace contacto con él, completando así la triple fusión.
+ 
+ :::
+
+ Retomaremos ahora, lo que hemos estado impartiendo respecto a los otros tres sentidos restantes: vista, gusto y olfato, y luego resumiremos brevemente su relación con los centros y su acción e interacción. De esta manera quedarán dos puntos pendientes en esta primera parte del Tratado sobre Fuego Cósmico, además del resumen. Entonces estaremos en condiciones de abocarnos a estudiar esa parte del tratado referente al fuego de Manas y al desarrollo de los Manasaputras [^22], tanto en su totalidad como individualmente. Este tema es de máxima importancia porque trata exclusivamente del hombre, el Ego, el Pensador, y demuestra la fusión cósmica de los fuegos de la materia y de la mente y cómo los utiliza la Llama inmanente. <pin lang="es">183</pin>
+
+3. **Vista**. Este sentido, como ya se ha indicado, es el principal correlacionador del sistema solar.
+
+ De acuerdo a la Ley de Economía el hombre oye. El sonido impregna la materia y construye la base de su consiguiente heterogeneidad.
+
+ De acuerdo a la Ley de Atracción el hombre toca y hace contacto con aquello que su atención <pin lang="en">199</pin> percibe mediante ondas sonoras producidas por la actividad. Esto conduce a un estado de mutua repulsión y atracción entre quien capta y lo captado.
+
+ Después de haber captado y establecido contacto sus ojos se abren, y de acuerdo a la Ley de Síntesis reconoce el lugar que le corresponde en el orden de las cosas.
+
+   1. Oído - Unidad
+   2. Tacto - Dualidad
+   3. Vista - Triplicidad
+
+ En estos tres sentidos está compendiado el presente. La tarea de la evolución consiste en reconocer, utilizar, coordinar y dominar todo, hasta que el Yo, por medio de estos tres, se de cuenta de la existencia de todas las formas, de toda vibración y de toda pulsación del no-yo. Entonces el objetivo del Yo, valiéndose del poder ordenador de la mente, consistirá en hallar la verdad o ese centro en el círculo de manifestación que, para el Yo, constituye el centro de equilibrio y el punto donde la coordinación es perfecta; sólo entonces el Yo podrá desprenderse de todos los velos, contactos y sentidos. Ello conduce en cada manifestación a tres tipos de separación:
+
+   1. Involución. La separación de la materia o el Uno convirtiéndose en los muchos. Los sentidos se desarrollan y el Yo perfecciona el mecanismo para utilización de la materia. Esto está regido por la Ley de Economía.
+   2. Evolución, hasta llegar al Sendero de Probación. La fusión del Espíritu y la materia, la utilización de los sentidos en una identificación progresiva del Yo con todas las formas, desde la más inferior hasta aquellas relativamente refinadas. Esto se verifica bajo la Ley de Atracción.
+   3. Evolución en el Sendero. Nuevamente la separación del Espíritu y la materia; su identificación con el Uno, y finalmente el rechazo de la forma. Los sentidos entonces se sintetizan en una facultad adquirida, y el Yo puede <pin lang="en">200</pin> prescindir del no-yo. Se fusiona con el Omni-Yo. Esto ocurre bajo la Ley de Síntesis.
+
+ :::note Recuerda
+
+ En estos tres sentidos está compendiado el presente. La tarea de la evolución consiste en reconocer, utilizar, coordinar y dominar todo, hasta que el Yo, por medio de estos tres, se de cuenta de la existencia de todas las formas, de toda vibración y de toda pulsación del no-yo. Entonces el objetivo del Yo, valiéndose del poder ordenador de la mente, consistirá en hallar la verdad o ese centro en el círculo de manifestación que, para el Yo, constituye el centro de equilibrio y el punto donde la coordinación es perfecta; sólo entonces el Yo podrá desprenderse de todos los velos, contactos y sentidos. 
+
+ :::
+
+ Si se lo tiene en cuenta, conducirá a comprender que la <pin lang="es">184</pin>separación entre el Espíritu y el vehículo material, implica dos aspectos del Único gran Todo; aquí se observa el trabajo del Creador, del Preservador y del Destructor
+
+ En la perfección final del tercer sentido, la vista, el término comprensión es totalmente inadecuado. Conviene que el estudiante analice cuidadosamente la manifestación más inferior y la más elevada de los sentidos, de acuerdo a la clasificación dada anteriormente, y observe el significado esotérico de las expresiones empleadas en el resumen siguiente:
+
+ |        |                       |                                                                                                                   |
+ | ------ | --------------------- | ----------------------------------------------------------------------------------------------------------------- |
+ | Oído   | Beatitud              | Se logra por medio del no-yo                                                                                      |
+ | Tacto  | Servicio              | La suma del trabajo realizado por el Yo para el no-yo                                                             |
+ | Vista  | Comprensión           | Reconocimiento de la necesaria triplicidad para la manifestación, o la acción refleja del Yo y del no-yo          |
+ | Gusto  | Perfección            | Evolución que se completa utilizando al no-yo y su lograda suficiencia                                            |
+ | Olfato | Conocimiento perfecto | El principio manas (mente) en su actividad discriminadora, perfeccionando la interrelación entre el Yo y el no-yo |
+
+ Esto concierne a la perfecta y realizada personalidad.
+
+ En todas estas perfecciones se ve la percepción del Yo y el graduado progreso de identificación utilización, manipulación y rechazo final del no-yo por el Yo, que ahora ha adquirido la percepción consciente. Oye la nota de la naturaleza y la de su mónada; reconoce la identidad de ambas; utiliza sus vibraciones y pasa rápidamente por las tres etapas de Creador, Preservador y Destructor.
+
+ <p>
+ <pin lang="en">201</pin> Toca o siente la vibración de la forma o no-yo en sus diversos grados; reconoce su identidad con ella en tiempo y espacio y para el propósito de existir o de ser y, mediante las Leyes de Economía, Atracción y Síntesis, utiliza, fusiona y oportunamente se disocia. Ve el triple proceso evolutivo, y mediante el desarrollo de la visión interna ve, dentro del corazón del sistema macro y microcósmico, al YO UNO en muchas formas; finalmente se identifica con ese Yo por el deliberado rechazo del no-yo, después de haberlo subyugado y utilizado totalmente.
+ </p>
 
 [^1]: Hemos visto que en uno de los seis subplanos no atómicos de los planos mental y astral, la Esencia elemental está formada de conglomerados de materia -que no sirven como formas para ser habitadas por cualquier ente, sino que son el material con el cual se construyen las formas.
 
@@ -583,3 +1012,67 @@ Como ya se ha expresado, no es posible decir mucho acerca del kundalini, el fueg
 [^14]: A las cadenas de cualquier esquema planetario frecuentemente se les aplica los nombres de los siete planetas sagrados, lo cual facilita el estudio de la Ley de Correspondencia; análogamente, a los globos de cualquier cadena se les aplica los nombres planetarios, como sucede aquí. Existen esquemas planetarios que se denominan Marte y Mercurio.
 
 [^15]: D.S. II, 201, 354; IV, 118-119, 183.
+
+[^16]: Los siete sentidos o avenidas de percepción. D. S. II, 154-155. La tercera o Creación Indriya. D. S. VI, 200.
+
+    Indriya -el control de los sentidos es una práctica de la yoga. Dichos sentidos constituyen diez agentes externos; los cinco sentidos empleados en la percepción se denominan "janana-indriya" y los cinco sentidos empleados para la actividad "karma-indriya" . Glosario Teosófico.
+
+    "Janana-indriyas" -literalmente significa los sentidos del conocimiento.... mediante los cuales se obtiene el conocimiento..... las avenidas que van hacia adentro.
+
+    "Karma-indriyas" -literalmente significa sentidos de acción..... los cuales producen actividad. Constituyen las avenidas que van hacia afuera. Estudio sobre la Conciencia, pags. 166-167, por A. Besant.
+
+    1. La sensación está latente en todo átomo de sustancia. D. S. IV, 232-233.
+    2. El Sol es el corazón del sistema y de allí emana la sensación. Se debe a la radiación solar. D.S. II, 239, 299.
+    3. El conocimiento constituye la finalidad de los sentidos. D. S. I, 291.
+    4. Existe un doble juego de sentidos, espiritual y material. D. S. II, 236; III, 286-287. Esto tiene su reflejo en el doble juego de los sentidos físicos, que se observan al definir los indriyas.
+    5. Se podrían enumerar los sentidos de la manera siguiente: D. S. II, 237 y llamada D. S. I, 141.
+   
+    |     |        |        |                                     |              |
+    | --- | ------ | ------ | ----------------------------------- | ------------ |
+    | a.  | Éter   | Oído   | Sonido                              | Plano átmico |
+    | b.  | Aire   | Tacto  | Sonido,  tacto                      | Plano búdico |
+    | c.  | Fuego  | Vista  | Sonido, tacto, vista                | Plano mental |
+    | d.  | Agua   | Gusto  | Sonido, tacto, vista, gusto         | Plano astral |
+    | e.  | Tierra | Olfato | Sonido, tacto, vista, gusto, olfato | Plan físico  |
+
+    6. Los elementos son los progenitores de los sentidos..... D. S. III, 113-114.
+    7. Cada sentido compenetra a los demás... D. S. VI, 201, 202. No existe un orden unversal. Todos se encuentran en todos los planos. D. S. VI, 184.
+    8. Los sentidos corresponden a todos los demás septenarios de la naturaleza. Véase D. S. VI, 90-91. Compárese D. S. VI, 134. Lectura práctica. D. S. I. 146.
+
+[^17]: "...El medio principal por el cual la rueda de la Naturaleza se mueve en una dirección fenoménica es el sonido. El sonido es el primer aspecto del pentágono manifestado ya que es una propiedad del éter llamado Akas y como ya dije la recitación védica es el Yagnam más elevado que contiene en sí mismo todos los Yagnams menores y tiende a conservar el pentágono manifestado en el orden debido. En la opinión de nuestros antiguos filósofos, el sonido o el habla es, junto al pensamiento, el agente kármico más elevado utilizado por el hombre
+
+    De las diversas agencias kármicas ejercidas por el hombre en la forma de moldearse a sí mismo y a su entorno, el sonido o el habla es el más importante, porque hablar es trabajar en el éter que, por supuesto, rige el cuaternario inferior de elementos, aire, fuego, agua y tierra
+
+    El sonido humano o lenguaje contiene por consiguiente todos los elementos necesarios para mover las diferentes clases de Devas y esos elementos son, por supuesto, las vocales, las consonantes. Los detalles de la filosofía del sonido en su relación con los devas que presiden el munto sutil pertenecen al dominio del verdadero mantra sastra que, por supuesto, esta en manos de los conocedores.". Some Thougts on the Gita, . p 72
+
+[^18]: Conciencia astral-búdica es el término aplicado a la conciencia básica de nuestro sistema solar. Se caracteriza por la emoción, por el sentimiento, la sensación, que eventualmente tiene que ser transmutada en intuición, percepción espiritual y unidad
+
+[^19]: Las sensaciones despertadas por los objetos sensorios se experimentan por medio de los Instrumentos externos o sentidos (Indriya) del Señor del Cuerpo, senderos por los cuales el Jiva recibe la experiencia mundana. Son diez, y de dos tipos:
+
+    | a.  | Los cinco órganos de sensación | Jnanindriya         |
+    | --- | ------------------------------ | ------------------- |
+    | 1.  | Oído                           | Oído                |
+    | 2.  | Piel                           | Sensibilidad táctil |
+    | 3.  | Ojo                            | Vista               |
+    | 4   | Lengua                         | Gusto               |
+    | 5.  | Nariz                          | Olfato              |
+
+    | b.  | Los cinco órganos de acción | Karmindriya |
+    | --- | --------------------------- | ----------- |
+    | 1.  | Boca                        | Hablar      |
+    | 2.  | Manos                       | Aferrar     |
+    | 3.  | Piernas                     | Andar       |
+    | 4.  | Ano                         | Evacuar     |
+    | 5.  | Órganos genitales           | Procrear    |
+
+    Los órganos de sensación son la respuesta reactiva del Yo a la sensación. El órgano de acción es aquel por el cual los deseos del Jiva se realizan.
+
+    "El sentido (Indriya) no es el órgano físico, sino la facultad de la mente que se vale de tal órgano como instrumento. Los órganos sensorios externos son los medios comunes por los cuales se ralizan en el plano físico las funciones de oir, etc. Pero debido a que son meros instrumentos y su poder deriva de la mente, el Yogui puede realizar con la Mente sólo lo que puede hacerse por medio de dichos órganos físicos...
+
+    Las tres funciones de : atención, elección y síntesis, discreta complejidad de los sentidos, pertenecen al aspecto del cuerpo mental, al agente interno llamado Manas. Así como manas es necesario a los sentidos, éstos son necesarios para manas. ...Manas constituye así el indriya principal, del cual los sentidos son poderes..." Serpent Power, por Arthur Avalon.
+
+[^20]: La línea del Bodhisattva es Amor-Sabiduría y la detallada ciencia del Alma; la línea de enseñanza y el sendero en el cual todos entraremos con el tiempo.
+
+[^21]: Las Iniciaciones aludidas en este tratado son las que producen esas mayores expansiones de conciencia que conducen a la liberación. Dichas iniciaciones tienen lugar en el cuerpo causal y de allí se reflejan en el físico; el Iniciado nunca proclama su iniciación.
+
+[^22]: Manasaputras son los Hijos de la Mente, el principio individual en el hombre, el Ego, el Ángel solar, en su propio cuerpo o en la región abstracta del plano mental.
