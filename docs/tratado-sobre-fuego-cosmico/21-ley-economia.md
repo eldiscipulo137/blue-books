@@ -1,0 +1,104 @@
+---
+title: La ley de economía
+---
+
+# PRIMERA PARTE
+
+# SECCIÓN F
+
+# LA LEY DE ECONOMIA
+
+1. I. Sus efectos sobre la materia.
+   1. Disociación de los átomos.
+   2. Distribución de los átomos.
+   3. Ritmo vibratorio.
+   4. Heterogeneidad.
+   5. Actividad giratoria innata.
+2. II. Sus leyes subsidiarias.
+   1. La ley de vibración.
+   2. La ley de adaptación.
+   3. La ley de repulsión.
+   4. La ley de fricción.
+
+## I. SUS EFECTOS SOBRE LA MATERIA
+
+<p>
+<pin lang="es">195</pin> <pin lang="en">214</pin> Esta ley rige el aspecto materia de la manifestación, y es la ley que caracteriza la tarea del tercer Logos y de los entes que personifican Su voluntad, quienes son a la vez agentes de Sus propósitos. Cada una de las grandes Entidades cósmicas que toman la forma de los tres Logos, están caracterizadas por distintos métodos de actividad, que podrían describirse de la manera siguiente:
+</p>
+
+El tercer Aspecto o aspecto Brahma de las actividades que realizan esas Entidades que constituyen Su expresión; se caracteriza por el método empleado en la distribución de la materia, denominado Ley de Economía. Dicha ley rige la dispersión de los átomos de materia, su disociación, amplia distribución, vibración rítmica, <pin lang="en">215</pin> heterogeneidad, cualidad e inherente acción giratoria. La Ley de Economía hace que la materia siga siempre la línea de menor resistencia, y es la base de la acción separativa de la materia cósmica. Rige también a la materia, polo opuesto del espíritu.
+
+El segundo Aspecto, el aspecto constructor o Vishnu, está regido por la Ley de Atracción; la actividad de los entes que personifican este aspecto consiste en atraer materia al Espíritu y en <pin lang="es">196</pin> aproximar gradualmente los dos polos. Da por resultado cohesión, al producirse los conglomerados de átomos en diversas formaciones, y esta atracción se lleva a cabo por el poder atractivo del Espíritu. Se manifiesta como
+
+1. asociación,
+2. construcción de formas,
+3. adaptación de la forma a la vibración,
+4. relativa homogeneidad de la unidad grupal,
+5. movimiento cíclico en espiral.
+
+La línea de menor resistencia no es la ley que rige este aspecto. En el poder de atracción del Espíritu para construir formas y en la adaptación de la forma a la necesidad, reside el secreto del dolor y de la resistencia del mundo; el dolor es causado sólo por la resistencia, fase necesaria en el proceso evolutivo. La Ley de Atracción rige al Espíritu, polo opuesto de la materia.
+
+El primer Aspecto, o aspecto voluntad de existir, está regido por la Ley de Síntesis; la actividad de las Entidades que lo personifican está regida por la ley de unidad forzosa y de homogeneidad esencial. Es la ley que oportunamente actúa después que el Espíritu y la materia se fusionan y se adaptan entre sí; rige la síntesis final del yo con el Yo, y finalmente con el Omni-Yo; también sintetiza a la esencia con la esencia, lo opuesto a la síntesis materia y Espíritu. Se manifiesta como <pin lang="en">216</pin>
+
+1. abstracción,
+2. liberación espiritual,
+3. destrucción de la forma, al retirarse el Espíritu (el Aspecto Destructor),
+4. homogeneidad y la unidad esencial absolutas,
+5. movimiento de avance progresivo.
+
+Podemos ver así la síntesis maravillosa producida por la acción evolutiva de estas tres leyes cósmicas, personificando cada una el modo de trabajar de ciertas Entidades o Existencias cósmicas. Más adelante, cuando corresponda, nos ocuparemos de las dos últimas. Ahora trataremos brevemente la Ley de la materia o de Economía. Esta ley fundamenta lo que erróneamente ha sido denominado por los escritores religiosos “La Caída”, pero en realidad define el proceso involutivo cósmicamente considerado. Produjo la séptuple diferenciación de la materia del sistema, de la misma manera que la Ley de Atracción trajo la séptuple diferenciación síquica de los Hijos de la Mente; la Ley de Síntesis da por resultado la séptuple <pin lang="es">197</pin> perfección de los mismos Manasaputras; tenemos así una interesante conexión entre
+
+los siete planos o los siete grados de la materia,
+
+los siete Hombres celestiales, los siete Manasaputras divinos, o los siete tipos de amor-sabiduría,
+
+las siete cualidades de la sabiduría que las Entidades cósmicas, los Kumaras, han introducido con la ayuda del conocimiento adquirido por medio de la materia.
+
+La Ley de Economía tiene varias leyes subsidiarias que gobiernan el efecto producido sobre los diferentes grados de materia. Como ya se dijo, esta Ley entra en acción debido a los sonidos emitidos por el Logos. La Palabra Sagrada o el Sonido emitido por el Creador, tiene diferentes formas, aunque en realidad es una sola palabra que posee varias sílabas. Juntas forman una frase <pin lang="en">217</pin> solar; separadas forman ciertas palabras de poder, y producen diferentes efectos. [^1]
+
+<p>
+<pin lang="es">198</pin> La gran PALABRA que resuena durante los cien años de Brahma cuya reverberación persiste durante un sistema solar, es el sonido sagrado AUM. Diferenciadas y tal como se oyen en tiempo y espacio, cada una de estas tres letras místicas representa la inicial de una frase subsidiaria que consiste de varios sonidos. Una letra, con cuatro sonidos consecutivos, constituye la vibración o nota de Brahma, aspecto inteligente que domina la materia. He aquí el misterio que oculta <pin lang="en">218</pin> el pentágono en el quinto principio de la mente y en los cinco planos de la evolución humana. Estas cinco letras, entonadas en una nota correcta, dan la clave de la naturaleza interna de la materia y también de su control -dicho control se adquiere por la correcta interpretación de la Ley de Economía.
+</p>
+
+Otra frase, esta vez de siete letras, una letra por cada Uno de los siete Hombres celestiales, personifica el sonido o nota del aspecto Vishnu, el segundo aspecto logoico, el constructor de formas. Las formas se construyen y adaptan por la entonación correcta o parcial, su reverberación completa o incompleta. La Ley de Atracción se expresa manipulando la materia y forjándola en formas para uso del Espíritu.
+
+Luego se añade a las otras dos una tercera Palabra o frase, completando así toda la Palabra logoica y produciendo la consumación. Contiene nueve letras, que completan los veintiún sonidos (5 + 7 + 9) de nuestro sistema solar. Los nueve sonidos finales producen la síntesis espiritual y la disociación del Espíritu de la forma. Tenemos una correspondencia en las nueve iniciaciones, cada una de las cuales significa una unión más perfecta del Yo con el Omni-Yo y una mayor liberación de las ligaduras de la materia.
+
+Cuando se haya perfeccionado el sentido del oído en todos los planos (lo cual se logrará cuando se comprenda correctamente la Ley de Economía) serán conocidas estas tres grandes Palabras o frases. El Conocedor las pronunciará en su propia y verdadera clave, fusionando su propio sonido con todas las vibraciones, logrando así la repentina comprensión de su Identidad esencial con Aquellos que emiten las palabras. A medida que el sonido de la materia o de Brahma, hace impacto en sus oídos y en todos los <pin lang="es">199</pin> planos, verá que todas las formas son ilusiones y se liberará de ellas, sabiendo que él es omnipresente. Cuando el sonido de Vishnu reverbera dentro de sí mismo, sabe que es sabiduría perfecta y distingue <pin lang="en">219</pin> la nota de su ser (o la del Hombre celestial en cuyo cuerpo se encuentra) de las notas grupales, y se sabe omnisciente. Cuando la nota del primer aspecto o Mahadeva, sigue a las otras dos, se reconoce a sí mismo como Espíritu puro, y en la consumación del acorde se fusiona con el Yo o fuente de donde originó. No existe la mente ni la materia, sólo queda el Yo fusionado en el océano del Yo. En cada etapa de relativa realización, entra a regir una de las leyes, primero la ley de la materia, luego la ley de los grupos, seguida por la Ley del Espíritu y de la liberación.
+
+## II. SUS LEYES SUBSIDIARIAS
+
+Las leyes subsidiarias de la Ley de Economía son cuatro y se relacionan con el cuaternario inferior:
+
+1. La Ley de Vibración, rige la nota clave o ritmo de la materia de cada plano. Por el conocimiento de esta ley se puede controlar la materia de cualquier plano en sus siete divisiones.
+2. La Ley de Adaptación, rige el movimiento giratorio de cualquier átomo, en todos los planos y subplanos.
+3. La Ley de Repulsión, rige las relaciones entre los átomos, evitando que se adhieran y permitiendo que actúen libremente; los mantiene también girando a distancias fijas del globo o esfera de polaridad opuesta.
+4. La Ley de Fricción, rige el aspecto calor de cualquier átomo, su radiación y el efecto de tal radiación sobre cualquier otro átomo.
+
+Todo átomo de materia puede ser estudiado en cuatro aspectos y está regido por alguna o por todas las leyes mencionadas.
+
+1. Un átomo vibra a cierto ritmo.
+2. Gira a cierta velocidad. <pin lang="en">220</pin>
+3. Acciona y reacciona sobre los átomos que lo rodean.
+4. Contribuye con su cuota de calor al calor general del sistema atómico, cualquiera sea éste.
+
+Estas reglas generales, relacionadas con los cuerpos atómicos, pueden extenderse no sólo a los átomos del plano físico, sino también a todos los cuerpos esféricos dentro del sistema, incluyendo el sistema mismo, considerado como un átomo cósmico.
+
+<p>
+<pin lang="es">200</pin> Un diminuto átomo del plano físico, un plano, un planeta y un sistema solar evolucionan todos bajo dichas reglas y están regidos por la Ley de Economía en alguno de sus cuatro aspectos.
+</p>
+
+Para finalizar podría agregarse que es una de las leyes que el iniciado ha de dominar antes de alcanzar la liberación. Debe aprender a manipular la materia y a trabajar con la energía o fuerza de la materia aplicando dicha ley; debe utilizar la materia y la energía a fin de lograr la liberación del Espíritu y llevar a la fructificación los propósitos del Logos en el proceso evolutivo.
+
+:::note Recuerda
+
+Para finalizar podría agregarse que es una de las leyes que el iniciado ha de dominar antes de alcanzar la liberación. Debe aprender a manipular la materia y a trabajar con la energía o fuerza de la materia aplicando dicha ley; debe utilizar la materia y la energía a fin de lograr la liberación del Espíritu y llevar a la fructificación los propósitos del Logos en el proceso evolutivo.
+
+:::
+
+
+[^1]: "... el Veda, el canto del mundo en sonido humano, fue dado al hombre para que lo empleara metafísicamente, desde el punto de vista de su significado, y mágicamente, desde el ángulo de una adecuada emisión. El canto del mundo que obedece a ciertas leyes de proporción o de aritmética pitagórica, imparte su estremecedor efecto sobre el dominio de la sustancia cósmica, que ha sido inducida a entrar en proceso de cristalización, y el filósofo Platón denominó geometría del Cosmos. Las diversas formas que se observan en la molécula de un cristal de sal, hasta el maravilloso y complejo organismo humano, constituyen las estructuras creadas por el gran Geómetra cósmico conocido como Viswakarma, el Deva carpintero de nuestros escritos puránicos. El Veda revelado, cuya función consiste en proyectar el cosmos sobre una sola sustancia del sonido básico simbolizado por el Om, necesariamente se divide en tres primarios, en las consiguientes siete vocales, luego en siete notas y después en las siete combinaciones de las siete notas, en tres básicas y finalmente en himnos. Descendiendo todas al campo material de las consonantes, produjeron gradualmente las formas cristalizadas manifestadas, y colectivamente son consideradas como el Universo. El mundo, para el pensador, es el movimiento mágico producido por el cantor órfico o por el Saraswati hindú..."
+
+     "En el Vishnu Purana, segunda parte, se observará que el poder que reside en el Sol representa el poder védico triangular; que el poder como Rik crea, como Yajus preserva y como Sama destruye. Por consiguiente, Rik es el canto creador de los Devas del Sol; Yajus es el Canto preservador y Sama el canto de la destrucción de los Devas del Sol y de la construcción de los Devas de la Luna. Rik es el canto de los Devas, Sama el canto de los Pitris y Yajus el canto intermedio. Las funciones de los Vedas deben variar, naturalmente, de acuerdo al punto de vista. Si se toma a los Pitris, Sama es su canto constructivo y Rik su nota destructiva. Los tres Vedas corresponden a toda trinidad de la Naturaleza; les pido que busquen más informaciones en los muy vapuleados Puranas..."
+
+     "De los distintos agentes kármicos empleados por el hombre para amoldarse a sí mismo y a su medio ambiente, el sonido o la palabra es el más importante, porque hablar es trabajar con éter, el cual lógicamente rige al cuaternario inferior o elementos: aire, fuego, agua y tierra. El sonido o lenguaje humano contiene, en consecuencia, todos los elementos requeridos para mover a distintos tipos de Devas; estos elementos constituyen las vocales y las consonantes. Los detalles de la filosofía del sonido en relación con los Devas que presiden el mundo sutil, pertenecen al dominio del verdadero Mantra Sastra, el cual, como es natural, está en manos de los conocedores" Some Thoughts on the Gita.
