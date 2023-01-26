@@ -162,7 +162,7 @@ La tercera pregunta involucra uno de los más difíciles problemas de la metafí
 El problema de la dualidad es el problema de la existencia misma, y no puede resolverlo quien se niegue a reconocer la posibilidad de dos hechos esotéricos:
 
 1. Que el sistema solar personifica la conciencia de una Entidad, cuyo origen está fuera del "círculo no se pasa" solar.
-2. Que la manifestación es periódica y la Ley de Renacimiento el método evolutivo del hombre, del Logos planetario y del Logos solar. De allí el énfasis puesto en el proemio de La Doctrina Secreta sobre los tres fundamentos siguientes:
+2. Que la manifestación es periódica y la Ley de Renacimiento el método evolutivo del hombre, del Logos planetario y del Logos solar. De allí el énfasis puesto en el proemio de La Doctrina Secreta sobre los tres fundamentos [^5] siguientes:
    1. El Principio Inmutable e Ilimitado.
    2. La Periodicidad del Universo.
    3. La Identificación de todas las Almas con la SuperAlma.
@@ -179,6 +179,53 @@ Es correcta la suposición de que esta teoría admite una poderosa Inteligencia 
 Esta Entidad denominada Logos solar, de ninguna manera es el mismo Dios personal de los cristianos, quien no es más ni menos que el hombre mismo que se ha expandido hasta transformarse en un ser de enorme poder, sujeto a las virtudes y vicios propios de aquél. El Logos solar es mucho más que el hombre, pues es la suma de todas las evoluciones dentro del sistema solar, incluyendo la humana, que se encuentra en el punto medio respecto a las demás evoluciones. Por un lado se alinean las huestes de seres que son más que humanos, quienes en <pin lang="en">240</pin> kalpas pasados alcanzaron y traspusieron la etapa en la que se encuentra ahora el hombre; por otro lado se encuentran las huestes de las evoluciones subhumanas, quienes alcanzarán en kalpas futuros la etapa de la humanidad actual. El hombre se encuentra en medio de ambas y en el punto de equilibrio; aquí reside su problema. No participa totalmente del aspecto material de la evolución, ni es la presión total del tercer Logos, el aspecto Brahma de la Deidad, esa expresión de la energía pura o inteligencia que anima ese algo tenue denominado sustancia. El hombre no es totalmente Espíritu, la expresión del primer Logos, el aspecto Mahadeva, una expresión de la voluntad pura o necesario deseo que impele a la manifestación. Constituye el móvil fundamental mismo o la gran voluntad de ser. Es el producto de la unión de ambos y también el lugar de reunión de la materia o sustancia inteligente activa con el Espíritu o voluntad fundamental. Es el hijo nacido en este matrimonio o unificación. Entra a la objetividad a fin de expresar aquello que se halla en los dos opuestos, más el resultado de la fusión de ambos dentro de sí mismo.
 
 ### 2. Su Naturaleza y Dualidad.
+
+En términos de cualidad ¿Qué tenemos?; tenemos la Inteligencia activa que unificada con la voluntad o poder produce el "Hijo de la necesidad" [^6] (como lo expresa H. P. B.), que personifica inteligencia, voluntad o deseo y la conjunta demostración latente, amor-sabiduría.
+
+<p>
+<pin lang="es">217</pin> En términos de Fuego ¿Cómo podríamos expresar un pensamiento análogo? El fuego latente en la materia -efecto de una manifestación anterior de la misma Entidad cósmica, o la cualidad relativamente perfeccionada que ha desarrollado en una encarnación cósmica anterior- es puesto nuevamente en actividad por el deseo de dicha Entidad de volver a girar en la rueda de renacimiento. Dicho "fuego por fricción" produce calor e irradiación y evoca una reacción de su <pin lang="en">241</pin> opuesto, "el fuego eléctrico" o espíritu. Esto nos da la idea del rayo atravesando la materia, pues la acción del fuego eléctrico se dirige siempre hacia adelante como ya se sugirió anteriormente. El Rayo uno, "fuego eléctrico", penetra en la materia. En el sistema esto constituye el matrimonio del Padre y de la Madre, dando por resultado la fusión de ambos fuegos y la producción conjunta de esa expresión del fuego que llamamos "fuego solar". Así se produce el Hijo. La Inteligencia Activa y la Voluntad se han unido y darán por resultado Amor-Sabiduría cuando se ha perfeccionado mediante la evolución.
+</p>
+
+El Fuego eléctrico o Espíritu, unido al fuego por fricción, calor, produce fuego solar o luz.
+
+De allí que, cuando la Entidad cósmica toma forma, se agrega a la inteligencia activa, producto de Su encarnación anterior, una nueva cualidad que es inherente o potencial, amor-sabiduría. Es primeramente la capacidad de amar lo objetivo, el no-yo, y finalmente de utilizar la forma con sabiduría. La voluntad pura es todavía una abstracción y será llevada a su pleno desarrollo en otra encarnación del Logos. La Mente o Inteligencia no es una abstracción, sino algo que ES. Tampoco Amor-Sabiduría es una abstracción, sino que está en proceso de desarrollo o de manifestarse, y constituye el aspecto del Hijo.
+
+:::note Recuerda
+
+ Amor-Sabiduría es primeramente la capacidad de amar lo objetivo, el no-yo, y finalmente de utilizar la forma con sabiduría.
+
+:::
+
+Lo que se ha expuesto no es nada nuevo, pero se han reunido estos conceptos sobre la dualidad esencial a fin de inculcar en nuestras mentes la necesidad de ver estas cosas desde el punto de vista del lugar que ocupan en el esquema cósmico, y no desde el punto de vista de nuestra propia evolución planetaria y del hombre mismo. La evolución humana es esa evolución por la cual el aspecto Hijo ha de expresarse con la máxima perfección en esta encarnación cósmica. El hombre fusiona los pares de opuestos; los tres fuegos se unen en él; es la mejor expresión del principio manásico y, considerado desde un punto de vista <pin lang="en">242</pin> muy interesante, dirige la obra de Brahma; es la envoltura para la vida de Dios y la conciencia individualizada del Logos, manifestándose en los siete Manasaputras divinos u Hombres celestiales, en Cuyos cuerpos cada unidad de la familia humana tiene su lugar. El hombre es el aspecto Vishnu en proceso de desarrollo por medio de la <pin lang="es">218</pin> inteligencia de Brahma, impulsado por la voluntad del Mahadeva. Por lo tanto, en modo peculiar, el hombre es muy importante, porque constituye el punto de unificación de los tres aspectos, pero no lo es puesto que no constituye el ápice del triángulo sino simplemente el punto medio, si miramos el triángulo de esta manera:
+
+1. Espíritu-Padre.
+2. El Hijo u hombre.
+3. Materia-Madre.
+
+:::note Recuerda
+
+La evolución humana es esa evolución por la cual el aspecto Hijo ha de expresarse con la máxima perfección en esta encarnación cósmica. El hombre fusiona los pares de opuestos; los tres fuegos se unen en él; es la mejor expresión del principio manásico y, considerado desde un punto de vista muy interesante, dirige la obra de Brahma; es la envoltura para la vida de Dios y la conciencia individualizada del Logos, manifestándose en los siete Manasaputras divinos u Hombres celestiales, en Cuyos cuerpos cada unidad de la familia humana tiene su lugar. El hombre es el aspecto Vishnu en proceso de desarrollo por medio de la inteligencia de Brahma, impulsado por la voluntad del Mahadeva.
+
+:::
+
+La evolución del Hijo, la encarnación cósmica del Cristo, es de gran importancia para los planes del Ser más grande que el Logos solar, AQUEL SOBRE QUIEN NADA PUEDE DECIRSE. Los principios animadores de las constelaciones y sistemas afines observan, con aguda atención, el progreso de la evolución del Hijo.
+
+Así como el planeta llamado Tierra es el punto decisivo o campo de batalla entre el Espíritu y la materia y, debido a ello, de gran importancia, así nuestro sistema solar ocupa un lugar análogo en el esquema cósmico. El hombre cósmico, el Arjuna solar, está luchando por obtener Su autoconciencia individualizada perfecta y por liberarse e independizarse de la forma y del no-yo. También en este planeta el hombre trabaja para lograr, en su pequeña esfera, ideales similares; de la misma manera luchan en el cielo Miguel y Sus ángeles o los divinos Hombres celestiales, cuyo problema es el mismo en más elevada escala.
+
+La dualidad y la interacción entre ambos producen: <pin lang="en">243</pin>
+
+1. La objetividad, el Hijo o Sol manifestado.
+2. La evolución misma.
+3. El desarrollo de la cualidad.
+4. El tiempo y el espacio.
+
+Las preguntas que estamos respondiendo encierran ciertos aspectos fundamentales de la manifestación, contemplados principalmente desde el punto de vista subjetivo o síquico.
+
+## IV. ¿QUE ES LA CONCIENCIA? ¿QUE LUGAR OCUPA EN EL ACTUAL ESQUEMA DE LAS COSAS?
+
+
+
+
 
 
 
@@ -226,3 +273,7 @@ Esta Entidad denominada Logos solar, de ninguna manera es el mismo Dios personal
 [^3]: La serpiente mordiéndose la cola. D. S. II, 335; III, 287.
 
 [^4]: Los estudiantes podrían comparar las siguientes referencias y luego llegar a sus propias conclusiones. D. S. II, llamada, 342, 201, 112; IV, 323, 183, 339-340, 118-119; III, 391, 415-416, 342.
+
+[^5]: D. S. I, 78-81.
+
+[^6]: D.S. I, 101.
