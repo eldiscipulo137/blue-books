@@ -151,6 +151,35 @@ La misma clasificación podría aplicarse para demostrar la similitud del proces
 
 Si preguntamos, como es lógico, qué unidad cósmica constituye nuestro opuesto solar, se nos respondería <pin lang="en">237</pin> que por ahora es un enigma, aunque se halla insinuado en La Doctrina Secreta y en otros libros sagrados. Una insinuación velada se encuentra en la relación que existe con las Pléyades de nuestra tierra; pero cuando avance más la precesión de los equinoccios se verá claramente cuál es la relación exacta implicada. [^4]
 
+## III. ¿POR QUE EL SISTEMA SOLAR EVOLUCIONA COMO DUALIDAD?
+
+### 1. El Problema de la Existencia.
+
+La tercera pregunta involucra uno de los más difíciles problemas de la metafísica, y su consideración abarca todo el desconcertante misterio de la razón de por qué existe la objetividad.
+
+"¿Por qué razón creó Dios? ¿Por qué se nos impone la existencia?", son preguntas formuladas en distintas oportunidades por los hombres de todas las escuelas de pensamiento, por los religiosos, por los científicos en su búsqueda por hallar la verdad final y en su esfuerzo por descubrir el motivo de todo lo visible y obtener la explicación de la vida sensoria; por los filósofos, al buscar activamente aquello que anima a la subjetividad, y ha sido expresado en toda civilización y en todo tipo de personas por medio de las ciencias morales y la ética; por el biólogo, en su persistente empeño por descubrir la fuente de la vida y en su ansioso esfuerzo por explicar el principio vida, que siempre elude sus investigaciones; por el matemático, quien al considerar el aspecto forma de la manifestación en las distintas ramas de las matemáticas, llega a la conclusión de que Dios geometriza, que la ley y la medida rigen todo el universo y que el uno existe por medio de los muchos, pero a pesar de todo es incapaz de resolver el problema respecto a quién puede ser esa entidad <pin lang="en">238</pin> geometrizadora. El problema persiste, y todas las vías de acercamiento (para hallar una solución) terminan en el callejón sin salida de las hipótesis y en el reconocimiento de un algo terminante, tan evadible que los hombres se ven forzados aparentemente a reconocer que existe una fuente de energía, de vida, de inteligencia, a la que dan distintos <pin lang="es">215</pin> nombres, de acuerdo a la tendencia de sus mentes (religiosas, científicas o filosóficas), Dios, Mente Universal, Energía, Fuerza, lo Absoluto, lo Desconocido. Estos y muchos otros términos son los pronunciados por aquellos que, por medio del aspecto forma, buscan al Morador de la forma que no han podido hallar aún. Este fracaso se debe a las limitaciones del cerebro físico y a la falta de desarrollo del mecanismo por el cual se puede conocer lo espiritual y oportunamente establecer contacto con el Morador.
+
+El problema de la dualidad es el problema de la existencia misma, y no puede resolverlo quien se niegue a reconocer la posibilidad de dos hechos esotéricos:
+
+1. Que el sistema solar personifica la conciencia de una Entidad, cuyo origen está fuera del "círculo no se pasa" solar.
+2. Que la manifestación es periódica y la Ley de Renacimiento el método evolutivo del hombre, del Logos planetario y del Logos solar. De allí el énfasis puesto en el proemio de La Doctrina Secreta sobre los tres fundamentos siguientes:
+   1. El Principio Inmutable e Ilimitado.
+   2. La Periodicidad del Universo.
+   3. La Identificación de todas las Almas con la SuperAlma.
+
+Una vez que los científicos reconozcan los dos hechos mencionados, sus explicaciones tendrán un sentido diferente y la verdad, tal cual es, empezará a iluminar su razón. Pocos hombres están preparados para recibir la iluminación, que simplemente es la luz de la <pin lang="en">239</pin> intuición que derriba las barreras erigidas por la facultad de razonar. Con el tiempo se reconocerá que la dualidad del sistema solar depende de los siguientes factores:
+
+1. De la existencia misma.
+2. Del tiempo y el espacio.
+3. De la cualidad deseo o necesidad.
+4. De la facultad adquisitiva inherente a la vida misma. Esta facultad, por medio del movimiento, reúne en sí el material con que satisface su deseo, construyendo la forma mediante la cual trata de expresarse, confinándose ella misma dentro de la prisión de la envoltura, a fin de adquirir experiencia.
+
+Es correcta la suposición de que esta teoría admite una poderosa Inteligencia que actúa de acuerdo a un plan ordenado; <pin lang="es">216</pin> conscientemente toma forma y encarna a fin de cumplir su propio propósito específico. Esta hipótesis constituye por sí sola el hecho fundamental que subyace en las enseñanzas orientales y generalmente es aceptada por los pensadores de todas las escuelas de pensamiento del mundo, aunque lo expresen y perciban de distintas maneras. Incluso este concepto, es sólo una presentación parcial de la Idea real, pero debido a las limitaciones que tiene el hombre en la actual etapa de evolución, es suficiente como base práctica sobre la que se puede erigir el templo de la verdad.
+
+Esta Entidad denominada Logos solar, de ninguna manera es el mismo Dios personal de los cristianos, quien no es más ni menos que el hombre mismo que se ha expandido hasta transformarse en un ser de enorme poder, sujeto a las virtudes y vicios propios de aquél. El Logos solar es mucho más que el hombre, pues es la suma de todas las evoluciones dentro del sistema solar, incluyendo la humana, que se encuentra en el punto medio respecto a las demás evoluciones. Por un lado se alinean las huestes de seres que son más que humanos, quienes en <pin lang="en">240</pin> kalpas pasados alcanzaron y traspusieron la etapa en la que se encuentra ahora el hombre; por otro lado se encuentran las huestes de las evoluciones subhumanas, quienes alcanzarán en kalpas futuros la etapa de la humanidad actual. El hombre se encuentra en medio de ambas y en el punto de equilibrio; aquí reside su problema. No participa totalmente del aspecto material de la evolución, ni es la presión total del tercer Logos, el aspecto Brahma de la Deidad, esa expresión de la energía pura o inteligencia que anima ese algo tenue denominado sustancia. El hombre no es totalmente Espíritu, la expresión del primer Logos, el aspecto Mahadeva, una expresión de la voluntad pura o necesario deseo que impele a la manifestación. Constituye el móvil fundamental mismo o la gran voluntad de ser. Es el producto de la unión de ambos y también el lugar de reunión de la materia o sustancia inteligente activa con el Espíritu o voluntad fundamental. Es el hijo nacido en este matrimonio o unificación. Entra a la objetividad a fin de expresar aquello que se halla en los dos opuestos, más el resultado de la fusión de ambos dentro de sí mismo.
+
+### 2. Su Naturaleza y Dualidad.
+
 
 
 
