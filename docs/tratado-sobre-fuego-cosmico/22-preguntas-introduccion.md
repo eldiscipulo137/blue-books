@@ -223,6 +223,44 @@ Las preguntas que estamos respondiendo encierran ciertos aspectos fundamentales 
 
 ## IV. ¿QUE ES LA CONCIENCIA? ¿QUE LUGAR OCUPA EN EL ACTUAL ESQUEMA DE LAS COSAS?
 
+Podemos definir la conciencia como la facultad de captar; concierne principalmente a la relación que existe entre el Yo y el no-yo, el Conocedor y lo conocido, el Pensador y lo pensado. Estas definiciones involucran la aceptación de la idea de la dualidad, de lo objetivo y de lo que está detrás de la objetividad. [^7]
+
+<p>
+<pin lang="es">219</pin> La conciencia expresa lo que puede ser considerado como el punto medio de la manifestación. No atañe totalmente al polo del Espíritu; se produce por la unión de los dos polos y por el proceso de interacción y adaptación que necesariamente resulta. A fin de facilitar su aclaración podría clasificarse de la manera siguiente:<pin lang="en">244</pin>
+</p>
+
+|              |                   |              |
+| ------------ | ----------------- | ------------ |
+| Primer Polo  | Punto de Unión    | Segundo Polo |
+| Primer Logos | Segundo Logos     | Tercer Logos |
+| Mahadeva     | Vishnu            | Brahma       |
+| Voluntad     | Amor-Sabiduría    | Inteligencia |
+| Espíritu     | Conciencia        | Materia      |
+| Padre        | Hijo              | Madre        |
+| Mónada       | Ego               | Personalidad |
+| El Yo        | La Relación entre | El No-Yo     |
+| El Conocedor | El Conocimiento   | Lo Conocido  |
+| Vida         | Realización       | Forma        |
+
+Podríamos ir acumulando términos, pero los mencionados bastan para demostrar la relación que existe entre los tres aspectos del Logos, durante la manifestación. Se ha de recalcar lo antedicho: El sistema solar personifica, durante la objetividad evolutiva, la relación logoica mencionada, y toda la finalidad del desarrollo progresivo es llevar al Hijo del Padre y de la Madre, a un punto de plena realización, de total autoconciencia y de completo conocimiento activo. Este Hijo es objetivamente el sistema solar, inherentemente voluntad o poder y subjetivamente amor-sabiduría. Esta última cualidad se está desarrollando mediante el empleo de la inteligencia activa.
+
+Las tres Personas manifestadas de la Tríada logoica procuran obtener un pleno desarrollo, dependiendo una de la otra. La voluntad de ser del aspecto Mahadeva, con la ayuda de la inteligencia <pin lang="es">220</pin> de Brahma, trata de desarrollar amor-sabiduría, el aspecto Vishnu o hijo. En el sistema microcósmico, reflejo del triple Logos, el hombre procura, valiéndose de los tres vehículos, alcanzar el mismo desarrollo en su propio plano. En los planos superiores, los Hombres celestiales, por medio de atma-budi-manas, tratan de lograr una progresión similar. Los Hombres celestiales además de los entes de Sus cuerpos, compuestos de mónadas dévicas y humanas, forman en conjunto el gran Hombre celestial. Cuando el hombre realiza, los Hombres celestiales también realizan; cuando Ellos alcanzan Su pleno desarrollo y conocimiento <pin lang="en">245</pin> y son autoconscientes en todos los planos, entonces el Hijo realiza y el sistema solar (Su cuerpo de manifestación y de experiencia) ha servido su propósito. El Hijo se libera. Extendiendo la idea del triple desenvolvimiento de la conciencia al Logos, en un ciclo aún más amplio (los tres sistemas solares de los cuales el nuestro es el punto medio) se repetirá en los niveles cósmicos, en conexión también con el Logos, el proceso del desarrollo del hombre en los tres mundos.
+
+### EL MACROCOSMOS
+
+1. El primer sistema solar personificó el principio "Yo soy".
+2. El segundo sistema solar personifica el principio "Yo soy ese"
+3. El tercer sistema solar personificará el principio "Yo soy ese yo soy".
+
+### EL MICROCOSMOS
+
+1. La primera manifestación, la Personalidad, personifica el principio "Yo soy".
+2. La segunda manifestación, el Ego, personifica el principio "Yo soy Ese".
+3. La tercera manifestación, la Mónada, personificará el principio "Yo soy Ese yo soy".
+
+De esta manera los distintos factores desempeñan su parte en el orden general de las cosas; todos están interrelacionados, siendo partes interesadas y miembros unos de los otros.
+
+## V. ¿EXISTE UNA ANALOGIA DIRECTA ENTRE UN SISTEMA, UN PLANETA, UN HOMBRE Y UN ÁTOMO?
 
 
 
@@ -277,3 +315,28 @@ Las preguntas que estamos respondiendo encierran ciertos aspectos fundamentales 
 [^5]: D. S. I, 78-81.
 
 [^6]: D.S. I, 101.
+
+[^7]: "Conciencia, simiente cósmica de la omnisciencia super cósmica. Posee la potencialidad de florecer como conciencia divina." D. S. VI, 189. El universo es el conjunto de estados de conciencia. D. S. III, 164.
+
+     En general puede clasificarse la conciencia de la manera siguiente:
+
+     |     |                                        |                     |                                                         |
+     | --- | -------------------------------------- | ------------------- | ------------------------------------------------------- |
+     | 1.  | Conciencia Absoluta o de Dios          | "Yo soy Ese Yo soy" | Logos inmanifestado                                     |
+     | 2.  | Conciencia Universal o Grupal          | "Yo soy Ese"        | Logos manifestado <br/> Conciencia del Logos planetario |
+     | 3.  | Conciencia Individual o Autoconciencia | "Yo soy"            | Conciencia humana                                       |
+     | 4.  | Conciencia o conciencia atómica        |                     | Conciencia subhumana                                    |
+
+     Conciencia que deberá lograr:
+
+     |     |                     |                     |
+     | --- | ------------------- | ------------------- |
+     | 1.  | Un Logos planetario | Conciencia absoluta |
+     | 2.  | El hombre           | Conciencia grupal   |
+     | 3.  | El átomo            | Autoconciencia      |
+
+     El Logos constituye el Macrocosmos para el hombre. D. S. I, 280,287
+
+     El hombre constituye el Macrocosmos del átomo.
+
+     Resumiendo: La Vida y las Vidas. D. S. I, 275-276
