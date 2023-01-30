@@ -420,6 +420,189 @@ Hemos delineado muy brevemente algunas de las analogías que existen entre los c
 
 ## VI. ¿QUE ES EL ASPECTO MENTE? ¿POR QUE EL PRINCIPIO MANASICO ES TAN IMPORTANTE? ¿QUIENES SON LOS MANASAPUTRAS?
 
+Nos ocuparemos ahora del misterio más profundo de todo el sistema solar manifestado, **el misterio de la Electricidad** [^12], al cual H. P. B. se refiere. Está estrechamente vinculado con la vida de Dios, tal como se manifiesta por medio de Sus siete Centros, los siete Hombres celestiales, los divinos Manasaputras. Todavía es imposible resolver este problema exotéricamente y muy poco puede ser revelado al público; ello se debe a tres razones:
+
+Primero, el grado de evolución alcanzado por el hombre no le permite captar correctamente estas abstracciones.
+
+Segundo, gran parte de lo que puede ser explicado sólo se revela a los iniciados que han pasado la tercera Iniciación, y aún a ellos en forma muy reservada.
+
+Tercero, **la revelación del estrecho vínculo que existe entre la mente y fohat o energía, o entre el poder del pensamiento y el fenómeno eléctrico -efecto del impulso fohático sobre la materia- encierra muchos peligros**; el eslabón que falta (si es posible denominarlo así) en la cadena del razonamiento, partiendo de los fenómenos al impulso que los origina, sólo puede impartirse sin riesgo, cuando se ha construido debidamente el puente entre la mente superior y la inferior. Cuando lo inferior está siendo controlado por lo superior, o cuando el cuaternario se está fusionando con la Tríada, entonces se le puede confiar al hombre los <pin lang="en">260</pin> cuatro fundamentos restantes. Tres fundamentos ya se han expresado en el proemio de La Doctrina Secreta [^13], y conjuntamente con el Concepto evolutivo de la psicología forman los tres conceptos <pin lang="es">232</pin> revelados y el cuarto que está apareciendo. Los otros tres son esotéricos y se mantendrán así hasta que cada hombre haya realizado por sí mismo su desarrollo espiritual, construido el puente entre la mente inferior y la superior, preparado el santuario para la Luz de Dios en el templo de Salomón y dedicado sus actividades a colaborar abnegadamente en los planes del Logos.
+
+Cuando dichas cualidades asuman un lugar prominente y el hombre haya dedicado toda su voluntad al servicio, entonces se pondrá en sus manos la clave que le permitirá encontrar el método mediante el cual el **impulso eléctrico, manifestándose como calor, luz y movimiento**, puede ser dominado y utilizado; descubrirá la fuente del impulso inicial que proviene de centros de fuera del sistema, y el ritmo básico. Sólo entonces podrá ser un verdadero colaborador inteligente, y (eludiendo ser controlado por la Ley que rige en los tres mundos) manejará él mismo la ley en las esferas inferiores.
+
+::note Recuerda
+
+impulso eléctrico, manifestándose como calor, luz y movimiento
+
+:::
+
+### 1. Naturaleza de la Manifestación.
+
+Tenemos aquí tres preguntas importantes y las consideraremos como una, pues todas ellas se refieren al mismo tema y conciernen a la objetividad inteligente. Quizás si parafraseamos este triple interrogante y lo reducimos a la objetividad microcósmica, el problema no parecerá tan complejo. Podríamos expresarlo de la manera siguiente:
+
+¿Qué es el aspecto pensante del ser humano? ¿Por qué su mente y sus procesos mentales son tan importantes? ¿Quién es el pensador?
+
+El hombre, en su esencia fundamental, es la triada superior manifestándose por medio de una forma que evoluciona gradualmente, el cuerpo egoico o causal, y utiliza la triple personalidad inferior <pin lang="en">261</pin> como medio de contacto con los tres planos inferiores. Todo esto tiene por finalidad el desenvolvimiento de la autoconciencia perfecta. Por encima de la tríada está la Mónada o Padre en el Cielo -un punto de abstracción cuando el hombre lo contempla desde el plano físico, para quien la Mónada ocupa la posición del Absoluto, en el mismo sentido que el Logos indiferenciado se encuentra respecto a la Trinidad, las tres Personas de la manifestación logoica. El paralelo es exacto.
+
+1. La Mónada.
+2. La Tríada, Atma-Budi-Manas, o voluntad espiritual, intuición y mente superior.
+3. El cuerpo egoico o casual, santuario del principio búdico. Este cuerpo se construye con el poder de la mente, siendo la manifestación de los tres. <pin lang="es">233</pin>
+4. La triple naturaleza inferior, los puntos de objetividad más densa.
+5. La triple naturaleza inferior es, en esencia, un cuaternario: **vehículo etérico, vida animante o prana, kama-manas [^15] y mente inferior**. Manas o quinto principio constituye el vínculo entre lo inferior y lo superior. [^14]
+
+Tenemos, por consiguiente, cuatro inferiores y tres superiores y la relación que existe entre ellos, el principio mente. He aquí los siete, formados por la unión de los tres y los cuatro, y otro factor que hacen ocho. Los siete finales se percibirán cuando budi y manas se fusionen. En algunos libros ocultistas se han hecho muchas insinuaciones respecto a la octava esfera. Quisiera sugerirles que en este factor vinculador, mente inteligente, tenemos la clave del misterio. Cuando la mente obtiene un desarrollo indebido, cesa de unir lo superior y lo inferior y forma una esfera propia. Éste es el desastre más grande que puede ocurrir al ente humano.
+
+:::note Recuerda
+
+Cuando la mente obtiene un desarrollo indebido, cesa de unir lo superior y lo inferior y forma una esfera propia. Éste es el desastre más grande que puede ocurrir al ente humano.
+
+:::
+
+<p>
+<pin lang="en">262</pin> Por lo tanto, tenemos:
+</p>
+
+<table>
+<tr>
+<td colspan="2" align="center">La Mónada, el Absoluto microcósmico.<br/>Espíritu Puro<br/>El uno y único
+</td>
+</tr>
+<tr>
+<td colspan="2" align="center">|</td>
+</tr>
+<tr>
+<th colspan="2" align="center">La Trinidad Monádica</th>
+</tr>
+<tr>
+<td>Primer aspecto</td>
+<td>	Atma o voluntad espiritual.</td>
+</tr>
+<tr>
+<td>Segundo aspecto</td>
+<td>Budi o principio crístico.</td>
+</tr>
+<tr>
+<td>Tercer aspecto</td>
+<td>Manas o mente superior.</td>
+</tr>
+<tr>
+<td colspan="2" align="center">|</td>
+</tr>
+<tr>
+<td colspan="2" align="center">El aspecto Hijo en la objetividad.<br/>El cuerpo egoico o causal.<br/>
+</td>
+</tr>
+<tr>
+<td colspan="2" align="center">|
+</td>
+</tr>
+<tr>
+<th colspan="2" align="center">El cuaternario inferior</th>
+</tr>
+<tr>
+<td>1. Cuerpo mental</td>
+<td>3. Cuerpo etérico</td>
+</tr>
+<tr>
+<td>2. Cuerpo astral o emocional</td>
+<td>4. Cuerpo físico</td>
+</tr>
+</table>
+
+El microcosmos es la reproducción del sistema solar en miniatura. Lo que antecede se refiere a las formas objetivas, que corresponden al Sol y a los siete planetas sagrados. Pero paralelamente a la forma exotérica se lleva a cabo un desarrollo síquico, denominado <pin lang="es">234</pin> los siete principios. El hombre también desarrolla siete principios, que podrían ser enumerados de la manera siguiente:
+
+#### PRINCIPIOS MICROCÓSMICOS. [^16]
+
+Dos principios superiores:
+
+1. Inteligencia Activa.
+2. Amor-Sabiduría latentes.
+
+<p><pin lang="en">263</pin> (La naturaleza síquica de la Mónada es dual.)</p>
+
+1. El principio atma. Naturaleza espiritual. Voluntad.
+2. El principio budi. Naturaleza amor. Sabiduría.
+3. El principio manas. Naturaleza inteligente. Actividad.
+
+Obsérvese que los tres principios, en términos de la Tríada, con los dos principios sintetizadores del plano de la Mónada, hacen cinco principios y dan la clave de la enumeración empleada por H. P. B. en algunas partes. Podrían expresarse como:
+
+|     |                |                                            |
+| --- | -------------- | ------------------------------------------ |
+| I.  | 1. El Absoluto | La mónada.                                 |
+| II. | 1. Prakriti    | Inteligencia activa.El Divino Manasaputra. |
+|     | 2. Purusha     | Amor-Sabiduría.El aspecto Vishnu.          |
+
+<p><pin lang="es">235</pin> En el plano de la objetividad.</p>
+
+|      |          |            |
+| ---- | -------- | ---------- |
+| III. | 3. Atma  |            |
+|      | 4. Budi  | La Tríada. |
+|      | 5. Manas |            |
+
+Desde el punto de vista de la evolución, consideramos al más elevado y a los dos superiores como la analogía del Absoluto, cuando se manifiesta en la dualidad. Esto es anterior a la objetividad, y requiere la presencia de los tres. Podría considerarse que los principios en la manifestación son: <pin lang="en">264</pin>
+
+|                   |                                              |                             |
+| ----------------- | -------------------------------------------- | --------------------------- |
+| Primer Principio  | La esfera de manifestación el huevo monádico |                             |
+| Segundo Principio | Atma                                         | Voluntad                    |
+| Tercer Principio  | Budi                                         | Razón pura, sabiduría       |
+| Cuarto Principio  | Manas                                        | Mente pura, mente superior. |
+| Quinto Principio  | Manas                                        | Mente inferior.             |
+| Sexto Principio   | Kama-manas                                   |                             |
+| Séptimo Principio | Emoción pura o sentimiento                   |                             |
+
+Estos principios corresponden al microcosmos considerados como que han trascendido totalmente el cuerpo físico, de manera que la enumeración se refiere a la vida subjetiva o al desarrollo de la psiquis o alma.
+
+Esto debe tenerse muy en cuenta, de lo contrario producirá confusión. Las enumeraciones conciernen a la subjetividad, no a la forma. Por lo tanto, hemos considerado:
+
+|     |                            |                        |
+| --- | -------------------------- | ---------------------- |
+| a.  | La séptuple objetividad    | las formas materiales. |
+| b.  | La séptuple subjetividad   | la evolución síquica.  |
+| c.  | La séptuple espiritualidad | la vida de la Entidad. |
+
+Se recordará también que al clasificar la vida espiritual de la Mónada la hemos considerado como quíntuple. Ello fue necesario en esta quíntuple evolución, pero los dos principios que restan podemos considerarlos como:
+
+6. La vida del Hombre celestial, en cuyo cuerpo el hombre tiene un lugar.
+7. La vida del Logos, en cuyo cuerpo el Hombre celestial tiene también un lugar.
+
+Sería útil considerar aquí otra enumeración de los principios del hombre, [^17] a medida que se manifiesta en los <pin lang="en">265</pin> tres mundos, los <pin lang="es">236</pin> planos en que lo subjetivo y lo objetivo se unen. ¿Qué tenemos allí? Empezaremos, donde el hombre comienza, con lo más inferior.
+
+|                      |                                          |
+| -------------------- | ---------------------------------------- |
+| 7. El Cuerpo etérico | 1. Cuerpo vital                          |
+| 6. Prana             | 2. Fuerza vital                          |
+| 5. Kama-Manas        | 3. Deseo-mente                           |
+| 4. Mente inferior    | 4. Mente concreta                        |
+| 3. Manas             | 5. mente superior o abstracta            |
+| 2. Budi              | 6. Sabiduría, fuerza crística, intuición |
+| 1. Atma              | 7. Voluntad espiritual                   |
+
+Esta es la clasificación inferior para el hombre poco evolucionado de la actualidad.
+¿Qué puede verse desde el punto de vista del Ego?
+
+|     |                   |                                |
+| --- | ----------------- | ------------------------------ |
+| I.  | El Absoluto       | Atma Absoluta voluntad de ser. |
+| II  | El Binario        |                                |
+|     | 1. Budi           | Razón pura, sabiduría.         |
+|     | 2. Manas          | Mente pura                     |
+| III | La Tríada         |                                |
+|     | 3. Cuerpo causal. |                                |
+|     | 4. Mente inferior |                                |
+|     | 5. Kama-manas     |                                |
+|     | 6. Prana          |                                |
+|     | 7. Cuerpo etérico |                                |
+
+<p><pin lang="en">266</pin><pin lang="es">237</pin></p>
+
+Al enumerar estos principios, lo hacemos desde diferentes puntos de vista (tal como H. P. B. dice que debe hacerse) [^18], [^19] los cuales dependen de la etapa y la visión alcanzada. Los hemos considerado así al responder a la sexta pregunta, porque se ha procurado poner de relieve y grabar con claridad en nuestras mentes, que deben tenerse en cuenta las tres líneas de desarrollo al considerar la evolución de los Manasaputras.
+
+### 2. Desarrollo Objetivo.
+
+
+
 
 
 
@@ -538,3 +721,84 @@ Hemos delineado muy brevemente algunas de las analogías que existen entre los c
      Un Hombre celestial crea, en forma similar, en Su esquema planetario. Véase D. S. II, 269.
 
 [^11]: D. S. I, 152-153.
+
+[^12]: D. S. II, 128; I, 128, 225.
+
+[^13]: D. S. I, 79-81.
+
+[^14]: D. S. I, 128.
+
+[^15]: Kama-manas-La fusión de los elementos mente y deseo que forman la personalidad o la común inteligencia cerebral del hombre.
+
+    "Energías que se expresan a través de los tipos inferiores de materia mental, transformándose de esta manera en vibraciones lentas a las cuales responde la materia astral, permitiendo que los dos cuerpos vibren continuamente al unísono y se interpenetren estrechamente." Sabiduría Antigua, por A. Besant.
+
+[^16]: En la naturaleza existen dos principios cósmicos principales:
+
+    1. Activo y pasivo, masculino y femenino. D. S. IV, 95-96; I, 82.
+    2. Budi y mahat. Véase también D. S. I, 45; IV, 179; V,247
+
+    La unión de estos principios superiores produce los tres y los siete. D. S. I, 82.
+
+      1. Se los denomina los tres Rayos de Esencia y los cuatro Aspectos. D. S. I, 143-144
+      2. Pueden denominarse los tres Vehículos con sus tres aspectos y Atma. D. S. I, 143-144
+      3. Se los denomina también las llamas trifurcadas de los Siete Pabilos. D. S. I, 254 Esto es verdad, cósmica y humanamente
+
+    Los Principios del Logos: Los siete Logos planetarios. D.S. II, 46,52.
+
+    Los Principios del Logos planetario: Vehículo llamado una cadena. D.S. I, 201, 202,203;IV, 157-158.
+
+    Los Principios del hombre: Los distintos vehículos.
+
+    Véase también D. S. I, 185, 186, 197; IV, 161, 162. Resumen: D. S. VI, 114.
+
+    La ideación cósmica al enfocarse en un principio, produce la conciencia del individuo D. S. II, 40-41
+
+      1. Al apropiarse el individuo de un vehículo produce, en cualquier plano deteminado, un despliegue de energía. Dicha energía poseerá color y cualidad determinados, de acuerdo al plano involucrado
+
+    Los siete principios son manifestaciones de la Llama Una. D. S. I, 81; VI, 26-27
+
+    Véase la función de los Dioses al proporcionar al hombre sus principios. D. S. I, 298.
+
+[^17]: Enumeración de los principios. D. S. IV, 159, 162.
+
+    |                |                      |                                                |                                  |
+    | -------------- | -------------------- | ---------------------------------------------- | -------------------------------- |
+    | 1er. Principio | Cuerpo físico denso. | Sthula Sharira                                 |                                  |
+    | 2do. Principio | Cuerpo etérico.      | Linga Sharira                                  |                                  |
+    | 3er. Principio | Prana.               | Energía vital.                                 |                                  |
+    | 4to. Principio | Kama Rupa.           | Energía del deseo.                             | D. S. I, 152                     |
+    | 5to. Principio | Manas.               | Energía del pensamiento. <br/> Principio medio | D. S. III, 87, 88, 308; IV, 196  |
+    | 6to. Principio | Budi.                | Energía del amor                               | D. S. IV, 192, 202; V, 66-67     |
+    | 7mo. Principio | Atma                 | Principio sintético                            | D. S. II, 45; I, 207-208; V, 137 |
+
+    Véase D. S. V, 186, llamada 10.
+
+    Budi es el vehículo de atma
+
+    Manas es el vehículo de budi
+
+    Kama Rupa es el vehículo de manas. D. S. III, 165-166.
+
+    El cuerpo etérico es el vehículo de prana
+
+    Recuérdese también que:
+
+    El cuerpo físico no es un principio. D. S. IV, 181-182; VI, 87, 186
+
+    Atma no es un principio. D. S. V, 69-71; V, 264.
+
+    (Otras enumeraciones que difieren en ciertos detalles se hallarán en: D. S. I, 187, 191; II, 318-319; IV, 196; VI, 115, 194. Estos últimos son más esotéricos.)
+
+[^18]: H.P. Blavatsky en La Doctrina Secreta en relación con los principios dice lo siguiente:
+
+    Es muy posible que haya errores en la clasificación. D. S. IV, 203-204.
+
+    Debemos buscar el significado oculto. D. S. IV, 181-182. Realmente existen seis y no siete principios.
+
+    Existen varias clasificaciones. D. S. VI, 26, 88.
+
+    La enumeración esotérica no corresponde a la exotérica. D. S. VI, 115.
+
+    La enumeración de los principios es cuestión de progreso espiritual. D. S. VI, 97-101
+
+[^19]: D. S. VI, 97.
