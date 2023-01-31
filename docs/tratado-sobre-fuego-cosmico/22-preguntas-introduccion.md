@@ -601,6 +601,115 @@ Al enumerar estos principios, lo hacemos desde diferentes puntos de vista (tal c
 
 ### 2. Desarrollo Objetivo.
 
+Séptuple en la evolución y en el tiempo, nónuple durante la oscuración y decuple durante la desintegración.
+
+#### Macrocosmos.
+
+1. Los siete planetas sagrados del sistema solar.
+2. Los dos planetas que se hallan ocultos, los planetas sintetizadores
+3. El único planeta sintetizador final, el Sol. Siete más dos y más uno son diez.
+
+El gran Hombre celestial posee diez centros.
+
+#### Un Hombre Celestial.
+
+1. Las siete cadenas de un esquema.
+2. Las dos cadenas sintetizadoras.
+3. La cadena final.
+
+<p><pin lang="en">267</pin> Un Logos planetario posee diez centros.</p>
+
+#### Microcosmos
+
+1. Los siete vehículos empleados son:
+   1. La envoltura átmica.
+   2. El vehículo búdico.
+   3. El cuerpo causal o egoico.
+   4. El cuerpo mental. <pin lang="es">238</pin>
+   5. El cuerpo astral.
+   6. El cuerpo etérico.
+   7. El cuerpo físico denso.
+2. Dos cuerpos sintetizadores:
+   1. El cuerpo causal.
+   2. El cuerpo físico.
+3. Un cuerpo sintetizador:
+   1. La  envoltura monádica.
+
+En el vehículo físico existen siete centros que corresponden a dichos cuerpos con sus centros sintetizadores situados en el corazón y en la garganta; el centro coronario constituye el sintetizador final. Esta clasificación se refiere totalmente al aspecto forma y a los vehículos ocupados por el Logos, los Manasaputras y el Hombre.
+
+### 3. Desarrollo Subjetivo.
+
+Éste también es séptuple:
+
+|                      |                                         |
+| -------------------- | --------------------------------------- |
+| 1. Astral            | deseo, emoción, sentimiento puro.       |
+| 2. Kama-manásico     | deseo-mente.                            |
+| 3. Manásico          | mente inferior concreta.                |
+| 4. Manásico superior | mente abstracta o pura.                 |
+| 5. Búdico            | razón pura, intuición.                  |
+| 6. Átmico            | voluntad pura, realización.             |
+| 7. Monádico          | voluntad, amor-sabiduría, inteligencia. |
+
+Esto se refiere al séptuple desarrollo de inherente amor-sabiduría, con la ayuda de la mente. Se lleva a cabo macro cósmicamente a través de los siete Hombres celestiales, quienes son <pin lang="en">268</pin> inteligentemente activos; Su amor es inherente y se los ve objetivamente por medio de Sus formas, los esquemas planetarios. En su totalidad constituyen el Logos, el gran Hombre de los Cielos. En el caso del Hombre celestial el desarrollo prosigue por medio de los siete grupos de entes humanos, que forman Sus centros síquicos. Dichos grupos, en su propio plano, desarrollan la inteligencia, son inherentemente amor y pueden establecer contacto en forma objetiva con las siete cadenas de un esquema. En el caso del individuo, el desarrollo prosigue por medio de sus siete centros, clave de su evolución síquica. El hombre está también desarrollando la inteligencia; es inherentemente amor y se le ve objetivamente por medio de cualquiera de sus cuerpos.
+
+Aquí trato de hacer resaltar el desenvolvimiento síquico, y también la evolución subjetiva como la principal empresa del Logos, de un Logos planetario y de un hombre. El amor inteligente <pin lang="es">239</pin> activo (que mediante la aplicación inteligente de la facultad mental llevará a la actividad la latente cualidad del amor) será el resultado del proceso evolutivo. Así como la objetividad es dual, vida-forma, de la misma manera lo es la subjetividad, mente-amor, y la fusión produce conciencia. Sólo el Espíritu es una unidad indivisible; el desenvolvimiento del Espíritu (o la obtención de los frutos de la evolución) sólo se realizará cuando la doble evolución de la forma y la psique se haya consumado. Entonces el Espíritu cosechará el fruto de la evolución y reunirá en sí las cualidades cultivadas durante la manifestación: perfecto amor y perfecta inteligencia, manifestándose como amor-sabiduría inteligente y activo.
+
+Podríamos por lo tanto responder a la pregunta: ¿Qué es el aspecto mente y por qué es tan importante?, expresando que el aspecto mente constituye, en realidad, la habilidad o capacidad de la Existencia logoica de pensar, actuar, construir y evolucionar, a fin de desarrollar la facultad del amor activo. Cuando el Logos, que es inteligencia activa, haya recorrido Su <pin lang="en">269</pin> ciclo de vida, será también amor plenamente manifestado en toda la Naturaleza. Esto se puede afirmar respecto a un Hombre celestial en Su esfera, y a un hombre en su diminuto ciclo. De esta manera se podrá apreciar plenamente la importancia de manas. Constituye el medio por el cual la evolución se hace posible, se alcanza la comprensión y se genera y utiliza la actividad.
+
+:::note Recuerda
+
+Manas constituye el medio por el cual la evolución se hace posible, se alcanza la comprensión y se genera y utiliza la actividad.
+
+:::
+
+Veamos cómo se puede considerar esta pregunta en términos de Fuego:
+
+| Objetivamente                       | Subjetivamente                         | Espiritualmente          |
+| ----------------------------------- | -------------------------------------- | ------------------------ |
+| 1. El mar de fuego                  | 1. Nuestro Dios es un fuego consumidor | Voluntad energetizadora. |
+| 2. El akasha                        | 2. La Luz de Dios                      | Aspecto forma.           |
+| 3. El éter                          | 3. El calor de la materia              | Aspecto actividad.       |
+| 4. El aire                          | 4. La iluminación de la intuición.     |                          |
+| 5. El fuego                         | 5. El fuego de la mente.               |                          |
+| 6. La luz astral                    | 6. El calor de las emociones.          |                          |
+| 7. La Electricidad del plano físico | 7. El kundalini y el prana.            |                          |
+
+Esto está envuelto en un triple misterio:
+
+1. El misterio de la electricidad.
+2. El misterio de las siete constelaciones.
+3. El misterio del UNO, POR ENCIMA DEL LOGOS.
+
+### 4. Los Hombres Celestiales y el Hombre.
+
+La parte final de la pregunta sexta es: ¿Quiénes son los Manasaputras?
+
+<p><pin lang="es">240</pin> Se dará una respuesta más detallada, en lo que respecta a nuestro planeta, cuando nos aboquemos al tema de la llegada de los Señores de la Llama. Es conveniente aclarar ahora ciertos hechos que deberán constituir la base de cualquier pensamiento sobre este tema. <pin lang="en">270</pin></p>
+
+Los divinos Manasaputras [^20] [^21], denominados con diversos nombres en La Doctrina Secreta, son los Hijos nacidos de la Mente de Brahma, el tercer aspecto logoico.
+
+Son los siete Logos planetarios, los Señores de los Rayos, los siete Hombres celestiales, que desarrollaron el aspecto mente durante el primer sistema solar, en el que Brahma era el supremo y personificaba en Sí mismo la existencia objetiva, y Lo logró porque al igual que el segundo aspecto (Vishnu o el Dragón de la Sabiduría) es la suma total de la existencia en este segundo sistema.
+
+Las células de Sus cuerpos están constituidas por los entes de las evoluciones humanas y dévica, así como los organismos vivientes (aunque en una vuelta más alta de la espiral) las diversas <pin lang="es">241</pin> y animadas células o vidas menores, constituyen los cuerpos de los seres humanos. Éste es un hecho fundamental en ocultismo, y la relación que existe entre las células de los vehículos humanos y las células de los distintos cuerpos del Hombre <pin lang="en">271</pin> celestial será iluminadora si se la estudia detenidamente.
+
+De la misma manera que el ser humano tiene una fuente de origen, la Mónada, y un vehículo semipermanente, el cuerpo causal, que se manifiesta por medio de sus principios inferiores (de los cuales el físico denso no constituye uno de ellos), así también el Hombre celestial tiene una fuente de origen, su Mónada, un cuerpo semipermanente en los niveles monádicos del sistema solar, pero manifestado por medio de tres envolturas inferiores, nuestros planos átmico, búdico y manásico. Para Él los planos astral y físico no constituyen un principio, así como para el hombre no lo es el físico. El hombre vitaliza el cuerpo físico con su fuerza y su calor, pero no lo considera ocultamente un principio. Así el Hombre celestial es ajeno a los dos planos inferiores de la manifestación, aunque los vitaliza con Su fuerza. El ser humano se da cuenta de su relación (como la célula la tiene con el cuerpo) con el Hombre celestial únicamente cuando desarrolla la conciencia del Ego en su propio plano. Permítaseme expresarlo de la siguiente manera: el cuerpo causal constituye la forma más inferior por la cual se manifiesta un Hombre celestial, así como el cuerpo físico es la forma más inferior a través de la cual se manifiesta el ser humano, y ello en su significado etérico.
+
+Debe recordarse que las Existencias manifestadas personifican ciertos planos y tienen Sus puntos de involución muy profundos en diversos niveles:
+
+1. El hombre tiene su origen en el plano monádico, su principal punto focal en el quinto nivel, el mental: pero trata de obtener un pleno desarrollo consciente en los tres planos inferiores: mental, astral y físico.
+2. El Hombre celestial tiene Su fuente de origen fuera del sistema solar (como el hombre lo tiene fuera de los tres mundos de su esfuerzo) y Su principal punto focal en el segundo plano del sistema, el monádico, pero trata de desarrollar la conciencia en los planos de la Tríada (esto en relación con todas las células de Su cuerpo). Desarrolló la conciencia en los tres <pin lang="en">272</pin> planos inferiores de los tres mundos durante el primer sistema solar, también en relación con las células de Su cuerpo. El hombre repite hasta la quinta Iniciación, el esfuerzo de Aquél, lo cual lo llevará a la etapa de conciencia lograda por el Hombre celestial en un mahamanvantara muy anterior. Ha de recordarse que esto siempre está vinculado con las iniciaciones. <pin lang="es">242</pin>
+3. El Logos solar tiene Su origen en un plano cósmico aún más elevado y Su punto focal principal en el plano mental Cósmico pero se expresa por medio de los tres planos cósmicos inferiores similarmente como el hombre trata de expresarse en los tres mundos. Por consiguiente, los siete planos mayores del sistema solar se encuentran, con respecto al Logos solar, en la misma relación que el plano físico se encuentra con respecto al ser humano. Forman Sus cuerpos etérico y denso. Se puede decir que:
+   1. Los vitaliza con Su vida y calor.
+   2. Los anima.
+   3. Es plenamente consciente a través de ellos.
+   4. El etérico es, respecto al tiempo, Su principio más inferior, pero el físico denso no es tenido en cuenta. El cuerpo físico denso cósmico está compuesto de materia de los tres planos inferiores del sistema solar, el mental, el astral y el físico. Por lo tanto el plano búdico es el cuarto éter cósmico.
+4. Los Hombres celestiales forman los siete centros del cuerpo del Logos. Son las esferas de fuego que animan Su cuerpo, y cada uno de Ellos expresa un tipo de la fuerza que este manifiesta, de acuerdo a Su lugar dentro del cuerpo.
+5. Los seres humanos, cuando están centrados dentro de sus grupos en los planos causales, forman uno u otro de los siete centros en el cuerpo del Hombre celestial.
+6. El Logos solar forma un centro en el cuerpo de una ENTIDAD cósmica aún mayor. En consecuencia los seres humanos <pin lang="en">273</pin> tienen su lugar en uno de los cuarenta y nueve centros (no grupos, porque un centro puede componerse de muchos grupos, que corresponden a diferentes partes) de los siete Hombres celestiales.
+Un Hombre celestial, con sus siete centros, forma un centro en el cuerpo del Logos solar. He de indicar aquí que existe estrecha conexión entre los siete Rishis de la Osa Mayor y los siete Hombres celestiales. Aquéllos son en relación a estos lo que la Mónada es respecto a la unidad evolucionante humana.
+
+## VII ¿ POR QUE LA EVOLUCIÓN SE DESENVUELVE CICLICAMENTE?
 
 
 
@@ -802,3 +911,26 @@ Al enumerar estos principios, lo hacemos desde diferentes puntos de vista (tal c
     La enumeración de los principios es cuestión de progreso espiritual. D. S. VI, 97-101
 
 [^19]: D. S. VI, 97.
+
+[^20]: Se dice en La Doctrina Secreta que los Hombres celestiales son:
+
+    1. Los agentes de la creación. La totalidad de la manifestación. D. S. II, 139.
+    2. Precósmicos. D. S. II, 139
+    3. La suma total de los entes solares y lunares. D. S. II, 139. Compárese III, 344.
+    4. Los siete Arcángeles bíblicos.
+    5. Las siete Fuerzas o Poderes creadores.
+    6. Los siete Espíritus ante el Trono.
+    7. Los siete Espíritus de los Planetas. D. S. II, 140.
+    8. En su totalidad el Impronunciable Nombre Secreto. D. S. II, 141.
+    9. El conjunto de los Dhyan Chohanes. D. S. II, 144-145.
+    10. Los siete Kumaras. Los siete Rishis. D. S. II, 158; III, 182, 292-293
+    11. Los Hijos de la Luz. D. S. II, 180-181
+    12. La Jerarquía de Poderes creadores. D. S. I, 235
+    13. La síntesis velada. D. S. II, 49.
+    14. Nuestras deidades planetarias. D. S. I, 166-167.
+    15. Todos los hombres que se encuentran en todos los mundos. D. S. II, 149-150
+    16. Se hallan íntimamente vinculados con las siete estrellas de la Osa Mayor. D. S. II, 154; III, 308; IV, 116-117, 195-196; V, 182.
+    17. Están simbolizados por círculos. D. S. IV, 119.
+    18. En conjunto constituyen los Ángeles caídos. D. S. III, 265; IV, 81-82.
+
+[^21]: Los Hijos de la Mente: se los conoce por diversos nombres, tales como: Manasaputras, Prajapatis, Kumaras, los Siete Primordiales, Rudras, Hombres celestiales, Rishis, Espíritus ante el Trono.
