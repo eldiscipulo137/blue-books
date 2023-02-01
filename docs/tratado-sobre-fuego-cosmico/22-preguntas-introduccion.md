@@ -709,7 +709,103 @@ Debe recordarse que las Existencias manifestadas personifican ciertos planos y t
 6. El Logos solar forma un centro en el cuerpo de una ENTIDAD cósmica aún mayor. En consecuencia los seres humanos <pin lang="en">273</pin> tienen su lugar en uno de los cuarenta y nueve centros (no grupos, porque un centro puede componerse de muchos grupos, que corresponden a diferentes partes) de los siete Hombres celestiales.
 Un Hombre celestial, con sus siete centros, forma un centro en el cuerpo del Logos solar. He de indicar aquí que existe estrecha conexión entre los siete Rishis de la Osa Mayor y los siete Hombres celestiales. Aquéllos son en relación a estos lo que la Mónada es respecto a la unidad evolucionante humana.
 
-## VII ¿ POR QUE LA EVOLUCIÓN SE DESENVUELVE CICLICAMENTE?
+## VII ¿POR QUE LA EVOLUCIÓN SE DESENVUELVE CICLICAMENTE?
+
+Esta pregunta es desconcertante y nos hace pensar. Vamos a encararla basándonos en lo siguiente: Cuando se piensa en el progreso cíclico surgen ciertos Conceptos que sería conveniente considerar. <pin lang="es">243</pin> 
+
+### 1. El Concepto de Repetición.
+
+Repetición implica los siguientes factores:
+
+1. **Repetición en el tiempo**: El concepto de actividad cíclica comprende períodos de tiempo de diferente duración, ciclos mayores o menores, pero de acuerdo a su duración, uniformes. Un manvantara o Día de Brahma, tiene siempre determinada extensión; lo mismo ocurre con el mahamanvantara. Los ciclos durante los cuales un átomo de cualquier plano gira alrededor de su eje son uniformes en el plano correspondiente.
+2. **Repetición de los hechos**: Da la idea de un ritmo clave o sonido, en cualquier grupo particular de átomos que entran en la composición de una forma determinada. Este agrupamiento de átomos tenderá a crear una serie de circunstancias y repetirá el compás o sonido, cuando un factor animador influye sobre ellos. Si en determinados períodos la fuerza vitalizadora se pone en contacto con una serie de átomos, evocará un sonido específico, el cual se manifestará objetivamente como circunstancias ambientales. En otras palabras, <pin lang="en">274</pin> la interacción del Yo y del no-yo es, invariablemente, de carácter cíclico. La misma calidad de tono será evocada por el Yo cuando more en la forma, pero el ritmo ascenderá gradualmente. Es similar al efecto producido al golpear la misma nota en octavas diferentes, empezando por la más baja.
+3. **Repetición en el espacio**: Este concepto se halla profundamente implicado en un concepto más amplio respecto al karma, ley que realmente rige la materia del sistema solar e inició su acción en sistemas solares anteriores. Tenemos, por lo tanto, ciclos ordenados y repetición en espiral ascendente, regida por una ley precisa.
+
+Las ideas sugeridas podrían también expresarse de la manera siguiente:
+
+1. El sistema solar repite su actividad. Repetición en el espacio.
+2. Una cadena planetaria repite su actividad. Repetición en el tiempo.
+3. La repercusión consecutiva y constante de la nota de un plano, de un subplano y de todo lo que dicha nota trae a la objetividad. Planos de Repetición
+4. La tendencia de los átomos a perpetuar su actividad y a producir circunstancias ambientales y vehículos similares. Repetición de la Forma.
+
+<p><pin lang="es">244</pin> Cuando extendemos estas ideas desde todos los planos del sistema solar hasta abarcar los planos cósmicos, penetramos en lo infinito.</p>
+
+### 2. La Repetición de la Actividad Cíclica está Regida por Dos Leyes:
+
+Quizá sea más exacto decir que está regida por una ley primaria y otra subsidiaria. Esto nos lleva <pin lang="en">275</pin> a dos tipos de ciclos involucrados en la propia y verdadera naturaleza del Yo y del no-yo. Su interacción trae, con la ayuda de la mente, lo que llamamos medio ambiente o circunstancias.
+
+Existe una Ley general que produce efectos cíclicos, la Ley de Atracción y Repulsión, de la cual es subsidiaria la Ley de Periodicidad y de Renacimiento. La evolución cíclica es el resultado de la actividad de la materia y de la Voluntad del Espíritu. Tiene lugar por la interacción de la materia activa y del Espíritu que moldea. Toda forma contiene una Vida. Toda vida tiende a unirse con la vida similar latente en otras formas. Cuando el Espíritu y la materia emitan la misma nota cesará la evolución. Cuando la nota emitida por la forma es más fuerte que la del Espíritu, tenemos atracción entre las formas. Cuando la nota emitida por el Espíritu es más fuerte que la de la materia y de la forma, tenemos al Espíritu que rechaza a la forma. Tenemos así la base del campo de batalla de la vida y sus miríadas de etapas intermedias, lo cual podría expresarse de la manera siguiente:
+
+1. El período en que domina la nota de la forma es el de la involución.
+2. El período en que el Espíritu rechaza a la forma es el de la lucha en el campo de batalla en los tres mundos.
+3. El período en que un Espíritu atrae a otro, y en el que abandona la forma, es cuando se huella el Sendero.
+4. El período en que domina la nota del Espíritu es el de la evolución en los planos superiores.
+
+A la sincronización o ausencia de sincronización de las notas se puede atribuir todo lo que ocurre en los ciclos mundiales. Así se produce la armonía; primero, la nota fundamental de la materia: luego, la nota del Espíritu dominando gradualmente la nota inferior y monopolizando la atención, <pin lang="en">276</pin> hasta que gradualmente la nota del Espíritu predomina sobre las otras. Sin embargo se ha de recordar que la nota de la vida mantiene unida a la forma. La nota del Sol, por ejemplo, ejerce atracción exacta sobre las esferas circundantes, los planetas. Las notas se sincronizan y armonizan hasta alcanzar una etapa adecuada y el consiguiente período de abstracción. La evolución cíclica prosigue. Similarmente un ser humano <pin lang="es">245</pin> (por medio de su nota) mantiene unidos los átomos de los tres cuerpos, representando para ellos, lo que el Sol central representa para los planetas. No obstante se puede afirmar que la Ley de Atracción manifiesta los poderes del Espíritu y que la Ley de Repulsión rige a la forma. El Espíritu atrae al Espíritu durante todo el ciclo mayor. En ciclos menores el Espíritu atrae temporariamente a la materia. La tendencia del Espíritu es unirse y fusionarse con el Espíritu. La forma rechaza a la forma, y así se produce la separación. Pero -durante el gran ciclo de evolución- cuando comienza a actuar el tercer factor, la mente, y el punto de equilibrio constituye la meta, se percibe el despliegue cíclico de la interacción entre el Espíritu y la forma, dando por resultado los ciclos ordenados de los planetas, de un ser humano y de un átomo. Así, por repetición, se desarrolla la conciencia y comienza a adquirirse la facultad de responder. Cuando dicha facultad es de tal naturaleza que constituye parte inherente del haber activo de la Entidad, aquélla debe aplicarse en todos los planos, y aquí rige también la actividad cíclica, de allí que la repetición de los nacimientos constituya el método aplicado. Una vez que la facultad consciente e innata, en toda unidad de conciencia, llegue a coordinarse como parte del equipo del Logos en cada plano del sistema solar, sólo entonces cesará la evolución cíclica; el movimiento giratorio en todos los planos del plano físico cósmico vibrará tan uniformemente que iniciará la acción en el plano cósmico inmediato, el astral. <pin lang="en">277</pin>
+
+### 3. La Tercera Idea Implicada en el Concepto de los Dos Tipos de Ciclos.
+
+1. Rotación sobre el eje. Esto puede observarse ya sea que consideremos un diminuto átomo de sustancia, un planeta girando sobre su eje, la rotación de un cuerpo causal o de un sistema solar.
+   1. En relación con el ser humano puede ser considerada como la rotación de las diversas envolturas alrededor de la conciencia central durante cualquier encarnación.
+   2. En relación con el Hombre celestial, puede ser considerada como la rotación de un globo dentro de una cadena, o el período de una encarnación.
+   3. En relación con un Logos solar, puede ser considerada como una revolución completa del Sol en el espacio, con todo lo incluido dentro del "círculo no se pasa"
+2. Rotación alrededor de una órbita. Constituye la rotación de una esfera de vida, no sólo sobre su eje, sino a lo largo de la senda esferoide de su órbita, alrededor de un punto central. <pin lang="es">246</pin>
+   1. En relación con el hombre, puede ser considerada como la revolución de la rueda de la vida, o el paso de un ente por los tres planos inferiores cuando desciende a la encarnación y asciende en su regreso.
+   2. En relación con el Hombre celestial, puede ser considerada como el ciclo denominado una ronda, durante la cual la vida del Hombre celestial recorre cíclicamente los siete globos.
+   3. En relación con el Logos solar, es la total revolución del sistema solar alrededor de su centro cósmico.
+
+Se ha de observar que las ideas que se han tratado, vinculadas a la evolución cíclica, no se pueden exponer como algo separado del concepto conciencia. Las ideas de <pin lang="en">278</pin> tiempo, espacio y actividad (desde el punto de vista ocultista) sólo se pueden concebir como relativas a una entidad consciente, un Pensador.
+
+Tiempo para el ocultista es ese ciclo mayor o menor en que una vida sigue un curso específico, donde se inicia, continúa y termina un período determinado, vinculado con la percepción de cierta Entidad, y sólo reconocido como tiempo una vez que la vida participante ha alcanzado una etapa considerable de percepción. El tiempo ha sido definido como una sucesión de estados de conciencia [^22]; por lo tanto se lo puede estudiar desde el punto de vista de: <pin lang="en">279</pin>
+
+1. La conciencia logoica, o los estados sucesivos de realización divina dentro de la esfera solar. <pin lang="es">247</pin>
+2. La conciencia planetaria, o la conciencia de un Hombre celestial, a medida que recorre cíclicamente el esquema.
+3. La conciencia causal, o la sucesiva expansión de la percepción inteligente de un ser humano, vida tras vida.
+4. La conciencia humana, o la percepción del hombre en el plano físico y, progresivamente, en los planos emocional y mental.
+5. La conciencia animal, vegetal y minera!, la cual difiere de la conciencia humana en muchos detalles, principalmente, en que no coordina, deduce ni reconoce una entidad separada. Se asemeja a la conciencia humana en que incluye, durante su breve ciclo, la respuesta a los sucesivos contactos de las unidades implicadas.
+6. La conciencia atómica, que se manifiesta en los sucesivos estados de atracción y repulsión. En esta última definición se halla la clave de los otros estados de conciencia.
+
+El átomo gira sobre su eje. Durante sus revoluciones penetra en el campo de actividad de otros átomos. Los atrae y los incorpora a su propio campo de actividad, o los rechaza y los arroja fuera de su campo de actividad, causando la separación. Algo que debe tenerse en cuenta, en el concepto de mutua atracción, es la preservación de la identidad durante la cohesión.
+
+El ser humano, en la manifestación objetiva, gira igualmente alrededor de su eje o punto central, su principal fuente de animación; esto lo lleva al campo de actividad de otros hombres, otros átomos humanos, lo cual análogamente tiende a la cooperación o <pin lang="es">248</pin> cohesión, o a la separación o repulsión. Nuevamente debemos recordar que aún en la cohesión no pierde su identidad.
+
+<pin lang="en">280</pin> El Hombre celestial, por medio de la forma de una cadena planetaria, gira similarmente sobre Su eje, y aquí puede observarse un fenómeno análogo. Un planeta rechaza a otro planeta similar, pues es una ley muy conocida que las partículas similares se rechazan; pero otra ley oculta muy conocida establece que, con el tiempo, se atraerán a medida que la vibración vaya intensificándose. Un planeta negativo será atraído por otro positivo y así ocurrirá con todas las demás formas. Esto constituye la manifestación del SEXO en todo tipo de sustancia, desde el minúsculo átomo del cuerpo hasta las inmensas cadenas planetarias; tal es la base de la actividad. La actividad irradiadora es simplemente la interacción entre lo femenino y lo masculino; esto puede observarse en el átomo físico que estudia el científico, en los hombres y mujeres y en el más vasto átomo de un sistema solar, al vibrar con su opuesto cósmico.
+
+:::note Recuerda
+
+ La actividad irradiadora es simplemente la interacción entre lo femenino y lo masculino
+
+:::
+
+Por lo tanto, podemos considerar que el tiempo es ese proceso de la actividad o ese desarrollo progresivo, en que la Conciencia inmanente busca a su opuesto y va siendo regida por la Ley de Atracción, que conduce al matrimonio atómico, humano, planetario, espiritual, solar y cósmico. Esta idea es relativamente sencilla en lo que se refiere al ser humano, y puede observarse diariamente su manifestación al establecer contacto con otros seres humanos; dichos contactos, por ejemplo, se deben en gran parte a las simpatías y antipatías. Estas atracciones y repulsiones están regidas por la ley, y su causa reside en la forma misma; la sensación de simpatía o antipatía sólo es el reconocimiento, por parte de la entidad consciente, de que ha entrado en su campo magnético una forma atómica, la cual se ve impelida a ser atraída o rechazada por la ley de su propio ser. Únicamente cuando se ha trascendido la forma y el Espíritu busca al Espíritu, cesa el fenómeno de repulsión. Esta será la inevitable cesación final de la evolución solar, produciendo el pralaya. A la duración de la interacción, al período en que el Espíritu busca al Espíritu y <pin lang="en">281</pin> al proceso vibratorio necesario para utilizar la forma, lo llamamos Tiempo, ya sea en relación con el hombre, el Logos planetario o la Deidad.
+
+También el espacio está incluido en la idea de conciencia y su utilización por la materia. Espacio, para el Logos, es literalmente la forma donde se desarrollan Sus propósitos y actividades conscientes, el "círculo no se pasa" solar. El espacio, dentro del cual el Logos planetario realiza Sus planes, es similarmente la parte del espacio solar que el desarrollo de Su conciencia le permite utilizar. El hombre, por su parte, repite el proceso, y su <pin lang="es">249</pin> "círculo no se pasa" está incluido en el campo de su conciencia, el cual puede ser muy restringido, como en el caso de una persona poco evolucionada, o incluir una parte muy extensa del espacio planetario y, en el caso de una persona muy evolucionada, hasta puede comenzar a hacer contacto con la periferia de la esfera de influencia del Logos planetario, de Cuyo cuerpo es una célula.
+
+Espacio, para el átomo (por ejemplo, el átomo del cuerpo físico del hombre), constituye el radio de acción de la forma donde se encuentra el centro mayor de conciencia del cual el átomo es parte, siendo atraído y rechazado -atraído e incorporado a la forma de la Vida mayor, por lo tanto rechazado y en consecuencia impedido de moverse en un determinado punto dentro de esa forma.
+
+Hemos tratado brevemente el tiempo y el espacio y su relación con un centro específico de conciencia; hemos visto que son simplemente formas de ideas para expresar la actividad cíclica de una entidad. El tema es extraordinariamente abstruso, debido al poco desarrollo de la inteligencia humana, la cual está tan preocupada en el aspecto objetivo o material de la manifestación que la atracción entre Espíritu y Espíritu es poco más que un concepto. Si un mayor número de miembros de la familia humana tuvieran su centro de conciencia en el Ego y, por consiguiente, se ocuparan del rechazo de la materia y del abandono de <pin lang="en">282</pin> la forma por parte del Espíritu, se comprendería el proceso transmutador; sólo entonces se trascendería el tiempo (según se lo conceptúa en los tres mundos), y sólo entonces se descubriría que el espacio (como se le manifiesta al hombre por medio de los tres planos inferiores, o los diez y ocho subplanos) constituye una barrera. La misma afirmación puede hacerse respecto a los siete Logos y al Logos solar, extendiendo la idea a otros planos solares y cósmicos. Análogamente se puede aplicar a las vidas subhumanas y a las involutivas, teniendo siempre en cuenta que a medida que la conciencia se va limitando y restringiendo, mayor serán la inercia, la falta de respuesta y la limitación de la irradiación.
+
+:::note Recuerda
+
+Si un mayor número de miembros de la familia humana tuvieran su centro de conciencia en el Ego y, por consiguiente, se ocuparan del rechazo de la materia y del abandono de <pin lang="en">282</pin> la forma por parte del Espíritu, se comprendería el proceso transmutador; sólo entonces se trascendería el tiempo (según se lo conceptúa en los tres mundos), y sólo entonces se descubriría que el espacio (como se le manifiesta al hombre por medio de los tres planos inferiores, o los diez y ocho subplanos) constituye una barrera.
+
+:::
+
+Un detenido estudio del quinto diagrama nos demostrará dónde reside el problema del Logos y dónde se halla la exacta analogía entre Él y Su reflejo, el Hombre.
+
+Primero. Ambos se encuentran en manifestación objetiva en el plano físico.
+
+Segundo. Ambos se encuentran en el punto de mayor involución.
+
+Tercero. Ambos se hallan trabados por la materia y están desarrollando la conciencia (conciencia egoica) en el plano físico -el hombre en el físico solar y el Logos en el físico cósmico. <pin lang="es">250</pin>
+
+Cuarto. El hombre ha de procurar que el Dios interno ejerza el pleno control consciente. Por medio de este control debe dominar las circunstancias hacer de su medio ambiente un instrumento y manipular la materia. El Logos hace lo mismo en los niveles cósmicos. Ambos están muy lejos de la realización.
+
+Quinto. Ambos trabajan en, con, y por medio de la fuerza eléctrica.
+
+Sexto. Ambos están sometidos a las leyes que rigen la forma; por lo tanto, están regidos, en tiempo y espacio, por el KARMA, la Ley de la forma. Ésta tiene que ver con la cualidad, así como la fuerza con la vibración.
+
+
 
 
 
@@ -934,3 +1030,32 @@ Un Hombre celestial, con sus siete centros, forma un centro en el cuerpo del Log
     18. En conjunto constituyen los Ángeles caídos. D. S. III, 265; IV, 81-82.
 
 [^21]: Los Hijos de la Mente: se los conoce por diversos nombres, tales como: Manasaputras, Prajapatis, Kumaras, los Siete Primordiales, Rudras, Hombres celestiales, Rishis, Espíritus ante el Trono.
+
+[^22]: La Doctrina Secreta expone lo siguiente:
+
+    El Universo es en realidad un enorme conglomerado de estados de conciencia. D. S. IV, 164; I, 98;II, 267.
+
+    Espíritu y conciencia son términos sinónimos. D.S. I, 80; 143-144;II, 38-40,240-242
+
+    Cada átomo del universo está dotado de conciencia. D. S. I, 126-127; IV, 231-232, 260-261.
+
+    Existe seis tipos de conciencia incorporados al Reino de la Naturaleza en los cinco planos de la evolución humana. D. S. I, 142; IV, 204.
+
+      1. Reino Mineral 1. Actividad inteligente. Cada átomo demuestra la capacidad de seleccionar, de discriminar inteligentemente por medio de la Ley de Atracción y Repulsión. D. s. i, 287.
+      2. Reino Vegetal 2. Actividad inteligente más sensación o sentimiento en embrión
+      3. Reino Animal 3. Actividad inteligente, sensación más instinto o mentalidad emgrionaria. D. S. VI, 204-209.
+
+    Los tres constituyen la conciencia subhumana.
+
+      4. Conciencia Humana 4. Actividad inteligente, amor o sentimiento perfeccionado, o comprensión y voluntad o propósito inteligente. Los tres aspectos. D. S. I, 219, 232-233; IV, 95; VI, 210-211
+
+    Esto constituye la autoconciencia - el punto medio. D. S. I, 288-289.
+
+      5. Conciencia Espiritual 5. Realización búdica. El ente es consciente de su grupo. El ente separado se identifica con su rayo o tipo. D.S.I, 192-193; II, 266; VI, 204
+      6. Conciencia Átmica 6. Conciencia del ente del sistema solar septenario. D. S. IV, 199-200,260.
+
+    Ambos personifican la superconciencia.
+
+    El séptimo tipo de conciencia abarca a todos y es Conciencia de Dios. D. S. IV, 259, llamada 22.
+
+    Estúdiese también D. S. I, 291-292, 192, 224; IV, 260, 92-93, llamada 21; VI, 205-206, 191-192, 215.
