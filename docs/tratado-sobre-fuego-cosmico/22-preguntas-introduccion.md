@@ -803,7 +803,150 @@ Cuarto. El hombre ha de procurar que el Dios interno ejerza el pleno control con
 
 Quinto. Ambos trabajan en, con, y por medio de la fuerza eléctrica.
 
-Sexto. Ambos están sometidos a las leyes que rigen la forma; por lo tanto, están regidos, en tiempo y espacio, por el KARMA, la Ley de la forma. Ésta tiene que ver con la cualidad, así como la fuerza con la vibración.
+Sexto. Ambos están sometidos a las leyes que rigen la forma; por lo tanto, están regidos, en tiempo y espacio, por el **KARMA, la Ley de la forma**. Ésta tiene que ver con la cualidad, así como la fuerza con la vibración.
+
+Séptimo.Ambos trabajan por medio de formas compuestas, a su vez de:<pin lang="en">283</pin>
+
+1. **Tres tipos principales de formas**: Una forma mental, primer aspecto de la manifestación; una forma astral, segundo aspecto; y una forma física, tercer aspecto. La vibración mental establece la clave del ritmo y trata de utilizar y coordinar el cuerpo físico a Voluntad. Se ocupa de la conciencia o la vincula a las tres formas en una sola dirección: rechaza y causa la separación en otras. La vibración astral concierne a la cualidad, al ritmo atractivo. Es el elemento síquico. El físico constituye el punto de reunión de la conciencia con la forma material. Esta última es el resultado producido por la unión de la clave del ritmo con la cualidad del tono.
+2. **Siete centros de fuerza**, que mantienen a las tres formas en un conjunto coherente y causan su vitalización y coordinación. Ponen a la triple unidad en correlación con su centro principal de conciencia en los planos superiores, ya sea dicho centro el cuerpo causal del hombre, del Logos planetario o del Logos solar.
+3. **Millones de células infinitesimales** cada una de las cuales personifica una vida menor, se halla en constante actividad y rechaza a las otras células a fin de mantener su individualidad o identidad; sin embargo están unidas entre sí por una fuerza central atractiva. Así se producen las formas objetivas de un cristal, un vegetal, un animal, un hombre, un planeta y un sistema.
+
+:::note Recuerda
+
+La vibración mental establece la clave del ritmo y trata de utilizar y coordinar el cuerpo físico a Voluntad. Se ocupa de la conciencia o la vincula a las tres formas en una sola dirección: rechaza y causa la separación en otras. La vibración astral concierne a la cualidad, al ritmo atractivo. Es el elemento síquico. El físico constituye el punto de reunión de la conciencia con la forma material.
+
+:::
+
+Finalmente, ambos actúan en forma dual y cada uno manifiesta atracción y repulsión.
+
+La atracción de la materia por el Espíritu y la construcción de una forma para uso del Espíritu es el resultado de la energía eléctrica del universo, la cual, en cada caso, pone las vidas o esferas menores al alcance de su influencia. Es la fuerza magnética mediante la cual la vida del Logos mantiene unido su cuerpo de manifestación. La fuerza magnética del Hombre celestial, el Logos planetario, extrae del "círculo no se pasa" solar lo que necesita para <pin lang="es">251</pin> cada encarnación. <pin lang="en">284</pin> La fuerza magnética del Ego reúne, en cada nacimiento, materia de la esfera o del esquema particular, dentro del cual el Ego tiene su lugar. Así sucesivamente encontramos en toda la escala descendente que las vidas menores circulan dentro de las vidas mayores.
+
+En consecuencia, tenemos (durante un período de atracción y repulsión, o ciclo de vida) lo que llamamos Tiempo y Espacio; y esto es verdad tanto respecto al ciclo de vida de un Logos como de una hormiga y de un cristal. Existen ciclos de actividad en la materia producidos por alguna Voluntad energetizadora; entonces se conoce el Tiempo y el Espacio. Hay ciclos de no-ser en que tiempo y espacio no existen y la Voluntad energetizadora se retira, pero debemos recordar que esto es relativo y se ha de considerar desde el punto de vista de una vida determinada o ente involucrado y del grado de conciencia alcanzado. Todo debe ser interpretado en términos de conciencia.
+
+El primer tipo de ciclo, o el período transcurrido durante la revolución completa de una esfera alrededor de su propio centro de conciencia, constituye un ciclo menor para la Entidad particular implicada, sea Dios u hombre. Podemos considerar como ciclo mayor al segundo tipo de ciclo, o el período que tarda en recorrer una órbita, o la revolución completa de una esfera que se desplaza alrededor de su centro del cual es parte integrante. El tercer tipo de ciclo no tiene mucha relación con el desplazamiento de la forma a través de determinado lugar del espacio, sino que es un ciclo que incluye al mayor y al menor. Tiene que ver con la respuesta de la ENTIDAD -de Cuyo cuerpo nuestro Logos solar sólo es un centro- a los contactos establecidos con ese centro y su opuesto cósmico. Ambos centros, por ejemplo nuestro sistema solar y su opuesto cósmico, en su interacción, crean un período cíclico que tiene relación con "AQUEL QUE ESTÁ POR ENCIMA DE NUESTRO LOGOS". Esto, naturalmente, está más allá del concepto humano; pero se ha de incluir en nuestra enumeración de los ciclos si se quiere ser exacto.
+
+## VIII. ¿POR QUE EL CONOCIMIENTO [^23] ES A LA VEZ EXOTERICO Y ESOTERICO?
+
+<p><pin lang="en">285</pin> Ahora dilucidaremos la pregunta que sigue: ¿Por qué consideramos que algunos aspectos del conocimiento son esotéricos y otros exotéricos?</p>
+
+<p><pin lang="es">252</pin> Prácticamente la respuesta significa que ya se tiene cierta noción de que el conocimiento esotérico se ocupa del aspecto subjetivo de la vida y el exotérico del aspecto objetivo; que un tipo de conocimiento concierne a la energía y a la fuerza (de allí el peligro de la prematura revelación) y el otro a aquello que está siendo energetizado. Se evidenciará que hasta tanto no se haya logrado la facultad de comprobar la información subjetiva, una larga serie de hechos quedarán fuera del campo de la conciencia de la mayoría.
+</p>
+
+Como ya se ha dicho, la meta de la evolución consiste en ser consciente en todos los planos; debido al poco desarrollo evolutivo de la raza, todavía el plano físico está siendo sometido al control consciente. El conocimiento adquirido sobre dicho plano, <pin lang="en">286</pin> la información concerniente a la objetividad más densa, el conjunto de hechos relacionados con los cinco subplanos inferiores del plano físico (desde el punto de vista ocultista), son considerados exotéricos. En el transcurso de las dos próximas razas, dominaremos los otros dos subplanos; entonces, todo el conocimiento concerniente a la materia física y etérica, a la energía y a la forma, más la experiencia en el plano físico, estarán fácilmente a disposición del hombre, y concernirán únicamente a sus cinco sentido físicos.
+
+La información y el conocimiento de la vida que evoluciona por medio de las formas, serán todavía por largo tiempo considerados <pin lang="es">253</pin> esotéricos, lo mismo que la aprehensión y captación del aspecto materia y de las leyes que rigen la energía en los planos astral y mental. Esto en relación con el hombre medio y la masa. La información objetiva y exotérica es obtenida y corroborada por los hombres, en gran parte, en el Aula del Aprendizaje por medio de los cinco sentidos y del experimento. En el transcurso del tiempo y después de muchas encarnaciones, el experimento se transmuta en experiencia, produciendo con el tiempo lo que llamamos instinto o reacción natural, de algún tipo particular de conciencia, a ciertas circunstancias o medio ambiente. Puede verse la actuación de ambos factores, los sentidos y el contacto experimental, en el reino animal y en el humano; la diferencia entre ambos reinos se halla en que el hombre es capaz de captar, recordar, anticipar y utilizar conscientemente los frutos de la experiencia pasada, y así influenciar el presente y prepararse para el futuro. A este fin, utiliza el cerebro físico. El animal posee también memoria instintiva, la facultad de aprehender y la anticipación embrionaria; pero, por carecer de mente, es incapaz de ajustarlos a las circunstancias en el sentido de correlacionarlos de antemano; tampoco posee la capacidad de utilizarlos conscientemente a fin de beneficiarse de los acontecimientos pasados y aprehender por experiencia como lo hace el hombre. El <pin lang="en">287</pin> animal emplea el plexo solar que constituye el órgano del instinto del mismo modo que el hombre emplea el cerebro.
+
+Todo lo que puede adquirirse por el instinto y por el empleo de la mente concreta, actuando por medio del cerebro físico, puede considerarse dentro de lo que llamamos exotérico. Es evidente, por lo tanto, hasta qué punto los hechos diferirán de acuerdo a:
+
+1. La edad del alma.
+2. La experiencia adquirida y aplicada.
+3. La condición del cerebro y del cuerpo físico.
+4. Las circunstancias y al medio ambiente.
+
+A medida que pasa el tiempo y el hombre alcanza cierto grado de evolución, la mente se desarrolla con más rapidez y entra en actividad un nuevo factor. Poco a poco la intuición o mente trascendental empieza a actuar y con el tiempo, reemplaza a la mente inferior o concreta. La intuición emplea entonces el cerebro físico como placa receptora; pero al mismo tiempo desarrolla ciertos centros en la cabeza, transfiriendo así la zona de su actividad desde el cerebro físico a los centros superiores de la cabeza, existentes en materia etérica. En la masa humana esto se efectuará al abrirse los subplanos etéricos durante las próximas dos razas. Esto sucede análogamente en el reino animal cuando la zona de actividad del <pin lang="es">254</pin> plexo solar es transferida en forma gradual al cerebro rudimentario y se desarrolla paulatinamente con la ayuda de manas.
+
+Al considerar estos puntos se evidencia que esas zonas de conciencia que constituyen realmente los aspectos esotéricos del conocimiento no han sido conquistadas todavía ni traídas dentro del radio de control de la Entidad inmanente.
+
+Se ha de recalcar, que cuando llegue a comprenderse esto, será apreciado el verdadero significado de lo exotérico y de lo oculto, y el esfuerzo de todos los CONOCEDORES consistirá en atraer a su zona de conocimiento a otros <pin lang="en">288</pin> entes que están preparados para obtener una expansión similar de conciencia. En esta idea se halla la clave del trabajo de la Fraternidad. Con Su fuerza atraen hacia cierto campo de realización y esfuerzo, y mediante dicha atracción y la respuesta de esos átomos humanos que están ya preparados, es coordinado el grupo de almas que se halla en el arco ascendente, un determinado centro del Hombre celestial.
+
+Análogamente, el animal es llevado a cierta etapa en la zona de influencia de los hijos menores de la mente -los seres humanos, hermanos mayores de los animales, así como los Maestros de Sabiduría son los Hermanos Mayores de la humanidad. Así prosigue el entrelazamiento y la distribución de la responsabilidad.
+
+## IX. ¿QUE RELACIÓN EXISTE ENTRE:
+
+1. ¿ Los diez sistemas o esquemas planetarios?
+2. ¿Los siete planetas sagrados?
+3. ¿Las siete cadenas de un sistema?
+4. ¿Los siete globos de una cadena?
+5. ¿Las siete rondas de un globo?
+6. ¿Las siete razas raíces y sus siete subrazas?
+
+Tenemos en esta pregunta un vasto tema para ser tratado, con el cual sólo se podrá obtener una idea amplia y general.
+
+El tema es tan vasto y lo que abarcan los puntos interrelacionados es tan grande, que únicamente podremos tratarlos con lucidez si circunscribimos nuestra atención dentro de ciertos conceptos amplios y generales, dejando los puntos secundarios para elucidarlos detalladamente más adelante.
+
+### 1. Partes Interrelacionadas
+
+En primer lugar propongo que estudiemos el tema únicamente en lo que concierne al Hombre celestial, que nos abstengamos de considerar la composición celular de Su cuerpo (las unidades separadas de conciencia que llamamos devas y seres <pin lang="en">289</pin> humanos), <pin lang="es">255</pin> contemplando la cuestión desde el punto de vista de lo que constituye para el ser humano el concepto grupal, no el individual.
+
+La sección intermedia de este tratado sobre los Fuegos se ocupa del desenvolvimiento de la conciencia del Hombre celestial y de la forma que Él aplica (con la ayuda de manas o mente) el conocimiento adquirido en un sistema solar anterior, a fin de obtener sabiduría mediante la objetividad, y de transmutar las facultades, previamente desarrolladas, en Amor aplicado. Su trabajo es similar al de las células de Su cuerpo, el cual consiste en desarrollar el principio mente. Cuando los entes humanos, mediante la experiencia en los tres mundos, lo hayan realizado podrán -por haber recibido las iniciaciones finales- comprender algo acerca del concepto de grupo, o se darán cuenta conscientemente del lugar y de la actividad energetizada dentro del "círculo no se pasa" de su particular Logos planetario. Por lo tanto, podríamos considerar los siguientes puntos:
+
+**Primero**: El trabajo de los entes que componen un Logos planetario determinado. Este trabajo es triple e implica obtener:
+
+1. Conciencia del control adquirido en su propio "círculo no se pasa" individual o en su propia esfera de actividad. Esto abarca el período de evolución hasta la primera Iniciación o la entrada en el Sendero, es decir, en el reino espiritual. Tiene que ver con el despertar de la conciencia en los tres planos inferiores.
+2. Conciencia de ese centro particular, que personifica la actividad grupal de los entes en el cuerpo de un Logos planetario. Esto los conduce a la quinta Iniciación, y abarca el período durante el cual la conciencia despierta en los cinco planos de evolución.
+3. Conciencia de ese centro en el Cuerpo del Logos, del que todo Logos <pin lang="en">290</pin> planetario constituye la suma total. Esto los conduce a la séptima Iniciación, y abarca el período en que la conciencia despierta en los siete planos del sistema solar.
+
+Estas expansiones se obtienen con la ayuda de la mente transmutada a su debido tiempo en amor-sabiduría, e implican el dominio consciente de los siete planos del sistema solar, el plano cósmico inferior.
+
+Segundo: El trabajo de los Hombres celestiales, que en su conjunto constituyen los siete centros del cuerpo del Logos. Este trabajo también es triple e implica obtener:
+
+1. Conciencia individual o plena autoconciencia en los cinco planos; vibrar con actividad consciente dentro de Su propio "circulo no se pasa", un esquema planetario. Esto abarca un período en el esquema de involución y ese período comprendido, durante la etapa evolutiva, dentro de las tres primeras rondas, hasta entrar en la cuarta. <pin lang="es">256</pin>
+2. Conciencia del Logos solar, de Cuyo cuerpo constituyen sus centros. Esto significa que los Hombres celestiales obtienen una conciencia grupal de carácter séptuple, o adquieren la exacta relación vibratoria con los otros Hombres celestiales, quienes forman los otros centros. Encierra en sí la capacidad de ejercer pleno control consciente en los siete planos del sistema solar, y abarca ese período de desarrollo que se lleva a cabo en una cadena planetaria durante la cuarta, quinta y sexta rondas. Téngase en cuenta la necesidad de reconocer que el Logos solar ocupa una posición análoga, en el cuerpo de una Entidad cósmica, a la que ocupa un Hombre celestial en el cuerpo de un Logos solar.
+3. Conciencia de un centro mayor en niveles cósmicos. Esto abarca el periodo de la séptima ronda, y da al Hombre celestial (si consideramos las rondas como la luz del Eterno Ahora, y no desde el punto de vista del tiempo y el espacio) la conciencia <pin lang="en">291</pin> del astral cósmico, el segundo plano inferior de los planos cósmicos. Gran parte del problema se está solucionando lentamente debido a que el control del Hombre celestial -cuyo cuerpo puede ser nuestro esquema- es todavía parcial, y Su experiencia cósmica es aún imperfecta. Esto necesariamente afecta a las células de Su cuerpo, de manera similar a como la falta de control astral, en el caso de un ser humano, afecta a su vehículo. Podría decirse que la evolución de los Hombres celestiales es despareja; nuestro Logos planetario no ha logrado, por ejemplo, el mismo grado de control obtenido por el Hombre celestial de la cadena de Venus. En cada ronda, controla un subplano del plano astral cósmico, y la conciencia del Hombre celestial se expande hasta incluir otro subplano. El Señor planetario de Venus ha dominado y controlado los cinco subplanos y está trabajando en el sexto. Nuestro Logos planetario está dedicado a un trabajo similar en el cuarto y quinto subplanos. El trabajo en todos los ciclos se superpone, pudiendo explicarse de la manera siguiente:
+
+El Hombre celestial está perfeccionando Su control en el cuarto subplano del plano astral cósmico, y casi lo ha completado ya. Ha comenzado a trabajar para adquirir control en el quinto subplano -control que perfeccionará durante la quinta ronda.
+
+Presiente y responde a la vibración del sexto subplano, pero no es plenamente consciente en él.
+
+Tenemos un reflejo de esto en la cuarta y quinta razas raíces de este planeta, donde la conciencia astral del ciclo atlante está perfeccionándose y desarrollando el quinto principio, presintiéndose gradualmente el sexto. Esto merece una detenida consideración.
+
+Tercero: El trabajo de un Logos solar es también de naturaleza análoga, e implica obtener: <pin lang="es">257</pin> <pin lang="en">292</pin>
+
+1. Por conciencia de todo Su "círculo no se pasa", o sea los siete planos del sistema solar. Esto abarca un período durante el cual cinco de los Hombres celestiales o cinco de Sus centros y, por lo tanto, cinco esquemas, alcanzan la etapa en que responden con exactitud al contacto y al estímulo.
+2. Conciencia del Logos cósmico, de Cuyo cuerpo es un centro. Ha de hallar, por la experiencia, Su lugar dentro del grupo cósmico del cual forma parte, de la misma manera que un Logos planetario recorre un curso similar. Esto se obtiene cuando todos los Hombres celestiales o cada uno de los siete centros, están despertando y funcionando consciente y libremente, y su interrelación con el sistema está ajustada y regida por la Ley de Acción y Reacción. Esto pone bajo Su control, no sólo los siete subplanos del plano físico cósmico (nuestros siete planos principales) sino también el plano astral cósmico.
+3. Conciencia del centro en el cuerpo de AQUEL SOBRE QUIEN NADA PUEDE DECIRSE. Dicho centro está formado por la esfera de influencia de un Logos cósmico. Un Logos solar constituye un centro en el cuerpo de un Logos cósmico.
+
+Debe recordarse que esta enumeración se hace teniendo en cuenta el presente y desde el punto de vista (relativamente limitado) del Hombre celestial de nuestro esquema particular, que está en consecuencia restringido por Sus condiciones peculiares, las cuales rigen la inteligencia de las células de Su cuerpo; esta enumeración es dada desde el punto de vista de la diferenciación y no de la síntesis. Oportunamente se produce una absorción sintética en conexión con todas estas Entidades, estando sometida cada una en su respectivo plano a un proceso paralelo al que está sometido el microcosmos: en Su caso el cuerpo causal o cuerpo del Ego, actúa como sintetizador de la energía del cuaternario o yo inferior, y la envoltura <pin lang="en">293</pin> <pin lang="en">294</pin> espiritual o monádica actúa como sintetizadora de los siete principios, formando así el tres, el siete y el diez.
+
+#### CLASIFICACIÓN II - LA EVOLUCIÓN EN EL UNIVERSO
+
+| Entidad             | Vehículo               | Centro              | Espacio            | Tiempo                           |
+| ------------------- | ---------------------- | ------------------- | ------------------ | -------------------------------- |
+| Lo Desconocido      | 7 constelaciones       | Logos cósmico       | 5 planos cósmicos  |                                  |
+| Un Logos cósmico    | 7 sistemas solares     | Logos solar         | 4 planos cósmicos  |                                  |
+| Un Logos solar      | 7 esquemas planetarios | Un Hombre celestial | 3 planos cósmicos  | Período de tres sistemas solares |
+| Un Hombre celestial | 7 cadenas planetarias  | Choanes y grupos    | 2 planos cósmicos. | Período de un sistema solar      |
+| Un Hombre           | 7 centros etéricos     | Un Principio        | 1 plano cósmico.   | Período de un esquema planetario |
+
+Para finalizar, quisiera indicar que ha de evitarse que la mente reduzca todas estas ideas a un concepto groseramente materialista. Se debe tener cuidadosamente en cuenta que estamos tratando con la vida subjetiva no con la forma objetiva, y que estamos considerando, por ejemplo, la síntesis de los principios o energías cualificadoras, y no la síntesis de la forma.
+
+El hombre, por medio de cada centro etérico, hace vibrar a la perfección un principio determinado o cualidad, mediante el cual puede expresar la vida subjetiva. El Hombre celestial por medio de cada cadena de un esquema, procura hacer lo mismo.
+
+Un Logos solar por medio de cada esquema de un sistema trabaja con el mismo fin; la meta es cualidad sintética y no <pin lang="es">258</pin> <pin lang="es">259</pin> principalmente perfección de la forma. La respuesta de la forma energetizada a la vida cualitativa es lógicamente -de acuerdo a la ley- igual a la demanda, pero de importancia secundaria, y no el objetivo que se desea alcanzar.
+
+Hemos visto que el trabajo a realizar, en todos los casos mencionados, es necesariamente triple:
+
+Primero. El desarrollo de la conciencia individual.
+
+Segundo. El desarrollo de la conciencia grupal.
+
+Tercero. El desarrollo de la conciencia divina; esa conciencia que, en cada caso, representa a la Fuente espiritual más elevada, reconocida como de la misma esencia del Dios que existe dentro del individuo, ya sea un hombre o un Logos solar.
+
+Todos los pensadores debieran meditar sobre este concepto y hacer resaltar la síntesis que le es inherente. Es de vital importancia la relación de la célula con el grupo, del grupo con el conjunto de grupos, y de todos éstos con la Entidad inmanente que los mantiene en correlación sintética por medio de la Ley de Atracción y Repulsión. Deben tener siempre en cuenta dos ideas principales:
+
+<p><pin lang="en">295</pin> Que los términos "células, grupos o conjunto de grupos", se relacionan totalmente con la forma del vehículo y, por consiguiente, con el aspecto materia.</p>
+
+Que la idea de Entidad, que sintetiza los grupos y es la vida que anima a la célula, tiene que ver con el aspecto Espíritu.
+
+Ambos conceptos llevan necesariamente a un tercero, el del desarrollo de la conciencia -la gradual expansión del conocimiento respecto a la existencia del Morador de la forma; la captación, por el Yo, de la relación existente entre Él y la forma, y su lenta utilización y control. Esto continua hasta que ese Conocimiento incluya a la célula, al grupo y al conjunto de grupos. Estas ideas son aplicables a los tres grados de conciencia ya mencionados.
+
+Un Hombre, el tipo inferior de conciencia coherente (empleando la palabra "conciencia" en su verdadero significado como "aquel que sabe") sólo es una célula, un diminuto átomo dentro de un grupo.
+
+Un Hombre celestial, representa a un coherente grupo consciente.
+
+Un Logos solar, en Su propio plano, ocupa un lugar análogo al de un Hombre celestial en el sistema solar y, desde un punto de vista más elevado, es similar al del hombre dentro del sistema solar. Una vez que se comprenda el lugar que ocupan definitivamente los planos solares dentro del esquema cósmico, se reconocerá que en los niveles cósmicos de orden superior, el Logos solar es una Inteligencia en el orden de la conciencia cósmica, tan <pin lang="es">260</pin> relativamente inferior como la del hombre en relación con la Conciencia solar. El Logos solar no es más que una célula en el cuerpo de AQUEL SOBRE QUIEN NADA PUEDE DECIRSE; Su trabajo en las esferas cósmicas es paralelo al del hombre en los planos solares. Tiene que someterse en los tres planos inferiores cósmicos, a fin de desarrollar la comprensión de Su medio ambiente, a un proceso de carácter similar a aquél al que está sometido el hombre en los tres mundos. Este hecho debe recordarse cuando se estudie <pin lang="en">296</pin> esta sección central de nuestro tema: se ha de reflexionar especialmente sobre la analogía que existe entre los planos físico cósmico y físico solar pues contiene el cuádruple misterio:
+
+1. El misterio del Akasha.
+2. El secreto de la quinta ronda.
+3. El significado esotérico de Saturno el tercer planeta.
+4. La naturaleza oculta del kundalini cósmico o la fuerza eléctrica del sistema
+
+Podría hacer una indicación sobre el cuarto punto para que se lo reflexione inteligentemente. Cuando se determine mejor la interacción eléctrica de los planetas (quiero significar la interacción negativa y positiva), entonces se revelará cuáles están relacionados o conectadas, y cuáles se acercan al punto de equilibrio. Señalaré aquí brevemente ciertos hechos sin extenderme ni elucidarlos, y haré simplemente algunas afirmaciones que, cuando el hombre haya adquirido mayor conocimiento asumirán el lugar que les corresponde en el esquema ordenado. Serán iluminadoras y revelarán la necesaria secuencia del desarrollo.
+
+### 2. Trabajo de los Entes Atómicos.
+
+
+
 
 
 
@@ -1059,3 +1202,26 @@ Sexto. Ambos están sometidos a las leyes que rigen la forma; por lo tanto, est�
     El séptimo tipo de conciencia abarca a todos y es Conciencia de Dios. D. S. IV, 259, llamada 22.
 
     Estúdiese también D. S. I, 291-292, 192, 224; IV, 260, 92-93, llamada 21; VI, 205-206, 191-192, 215.
+
+[^23]: En La Doctrina Secreta se expresa que existen siete ramas de conocimiento, mencionadas en los Puranas. D. S. I, 200.
+
+    Los siete Rayos, los Señores del Sacrificio, del Amor y del Conocimiento.
+
+    Los siete estados de conciencia.
+
+    Los siete estados de materia o planos.
+
+    Los siete tipos de fuerzas.
+
+    Las siete Iniciaciones y muchos otros septenarios.
+
+    Gnosis, conocimiento oculto, constituye el séptimo principio; las siete escuelas de filosofía hindú constituyen los seis principios. D. S. I, 290. Dichas escuelas son:
+
+    1. Escuela de Lógica. Prueba de correcta percepción.
+    2. Escuela Atómica. Sistema de clasificaciones. Elementos. Alquimia y Química
+    3. Escuela de Sankhya. Sistema de números. Escuela materialista. Teoría de los siete estados de la materia o prakriti.
+    4. Escuela de Yoga. Unión. Regla para la vida diaria Misticismo.
+    5. Escuela de Religión Ceremonial Ritual. Adoración a los Devas o Dioses
+    6. Escuela Vedanta. Tiene que ver con la no-dualidad. Trata de la relación que existe entre el Atma del hombre y el Logos.
+
+    Gnosis o conocimiento oculto es análogo a Atma Vidya o Teosofía, e incluye a los otros seis.
