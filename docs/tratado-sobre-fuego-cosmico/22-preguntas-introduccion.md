@@ -945,17 +945,118 @@ Podría hacer una indicación sobre el cuarto punto para que se lo reflexione in
 
 ### 2. Trabajo de los Entes Atómicos.
 
+1. Los siete Hombres celestiales, considerándolos en relación con la Entidad de Quien el Logos solar es un reflejo, vienen a ser como los siete centros del cuerpo físico del ser humano. Esto se comprenderá a medida que se estudie la analogía que existe entre el plano físico cósmico y el plano físico del sistema.
+2. Tres de estos centros, por lo tanto:
+   1. Conciernen a los tres centros inferiores del Ser cósmico.
+   2. Tienen sus analogías en los planos denso, líquida y gaseoso.
+   3. Son en la actualidad objeto de atención del kundalini cósmico. <pin lang="en">297</pin>
+3. Uno de estos centros corresponde al plexo solar, y sintetiza los tres inferiores, formando así el cuaternario.
+4. El centro análogo al que está situado en la base de la columna vertebral o depósito del kundalini, es más perdurable que <pin lang="es">261</pin> los otros dos centros inferiores. El Hombre celestial que personifica este principio y es fuente generadora de calor para Sus Hermanos, debe ser descubierto con la ayuda de la intuición. De nada servirá la Mente concreta.
+5. Los tres centros superiores u Hombres celestiales, que corresponden al coronario, cardíaco y laríngeo del Logos solar, tienen Sus analogías etéricas en los tres niveles etéricos superiores del plano físico cósmico; de la misma manera que el Hombre celestial que personifica al plexo solar del Logos, tiene Su fuente de manifestación en el cuarto etérico,
+6. Este Hombre celestial, con Su vórtice etérico o rueda de fuerza en el cuarto éter cósmico, en esta cuarta ronda, constituye un factor vital en la evolución planetaria.
+7. Cuando el Hombre celestial, que en la actualidad se manifiesta por medio del esquema de la Tierra, consiga vitalizar Su centro medio o apartar la fuerza del kundalini planetario de los centros inferiores, llevándola al plexo solar, se habrá alcanzado un nuevo ciclo, y cesará gran parte del malestar actual. Su trabajo es todavía embrionario; transcurrirán otros dos ciclos y medio antes de que El pueda realizar el trabajo necesario. Una vez realizados el resultado, en relación con los entes humanos, será triple.
+   1. El estímulo sexual, tal como hoy se entiende, tenderá a manifestarse como creación, no tanto en el plano físico sino más bien en el astral y en el mental, expresándose en creaciones de arte y de belleza y en el trabajo objetivo de los científicos.
+   2. El crimen, tal como hoy lo vemos, originado en gran parte por la pasión sexual, <pin lang="en">298</pin> será cosa del pasado; el libertinaje en el plano físico, las orgías y los horrores consiguientes, se reducirán por lo menos en un setenta y cinco por ciento.
+   3. La interacción, entre los tres planetas físico densos, se perfeccionará y el hombre podrá pasar de uno a otro a voluntad.
 
+ Quisiera advertirles lo inapropiado del método mediante el cual se suceden los nombres de los globos de una cadena, así como los nombres de una cadena del esquema siguen la nomenclatura planetaria. Esto ha dado lugar a confusiones.
 
+ La frase "Venus es el primario de la Tierra" [^24] encierra un indicio a fin de llegar a una correcta comprensión. No puede decirse mucho acerca del misterio de que "Venus es el alter ego de la Tierra", ni tampoco es aconsejable, pero pueden sugerirse ciertas ideas que, si se reflexiona sobre ellas, darán una comprensión más <pin lang="es">262</pin> amplia de la belleza que encierra la síntesis de la naturaleza y la maravillosa correlación de todo cuanto evoluciona
 
+ Quizás se obtendrá una idea a este respecto si recordamos que, en sentido oculto, Venus es para la Tierra, lo que el Yo superior para el hombre.
 
+ La llegada a la Tierra de los Señores de la Llama, acaeció regida por la ley, no como un acontecimiento accidental y afortunado, sino como una cuestión planetaria que tiene su analogía en el vínculo existente entre la unidad mental y el átomo manásico permanente. Repito, así como el hombre individual construye el antakarana entre estos dos puntos, así también, en sentido planetario; el conjunto de hombres de este planeta construye un canal que llega hasta su primario, Venus.
 
+ Con respecto a estos dos planetas debe recordarse que Venus es un planeta sagrado y la Tierra no lo es. Esto significa que ciertos planetas son, con respecto al Logos, lo que los átomos permanentes con respecto al hombre. Personifican los principios. Algunos planetas representan sólo temporariamente <pin lang="en">299</pin> dichos principios, otros permanentemente durante todo el Mahamanvantara. Venus es uno de ellos.
 
+ Se ha de recordar que tres de los planetas sagrados constituyen el hogar de los tres Rayos mayores, las formas personificadas de los tres aspectos o Principios logoicos. Otros planetas personifican los cuatro rayos menores. Desde el punto de vista actual podemos considerar que Venus, Júpiter y Saturno constituyen, en esta época, los vehículos de los tres super principios. Mercurio, Tierra y Marte están estrechamente aliados a estos tres; pero en esto se oculta un misterio. La evolución de la ronda interna tiene estrecha conexión con este problema. Quizás podrá arrojarse alguna luz sobre este oscuro tema si comprendemos que, así como el Logos tiene (en los planetas no sagrados) su analogía en los átomos permanentes del ser humano, así también la evolución intermedia entre ambos (Dios y el Hombre) la constituye el Hombre celestial, cuyo cuerpo está formado por mónadas humanas y dévicas, teniendo igualmente Sus átomos permanentes. Los tres principios superiores siempre pueden distinguirse de acuerdo a su importancia, de los cuatro inferiores.
 
+ La clave se halla oculta en el hecho de que entre el número que le corresponde a un globo de la cadena y su cadena correspondiente, existe un medio de comunicación. Lo mismo sucede respecto a la analogía existente entre una cadena de globos y un esquema que tiene un número análogo. La conexión entre Venus y la Tierra se halla oculta en el número. El magno acontecimiento conocido como la venida de los Señores de la Llama tuvo lugar en <pin lang="es">263</pin> un momento de misterioso alineamiento entre un globo, su cadena correspondiente y el esquema de número similar. Ocurrió durante la tercera raza raíz de la cuarta ronda. Tenemos aquí la analogía entre el cuaternario y la Tríada, llevando la analogía hasta un Hombre celestial. La cadena fue la cuarta y el globo también el cuarto. En este <pin lang="en">300</pin> acontecimiento participaron íntimamente la cuarta cadena del esquema de Venus y el cuarto globo de esa cadena.
 
+8. La progresión en el desarrollo del Hombre celestial no es, en manera alguna, uniforme. Hasta ahora no se ha hecho resaltar suficientemente que cada uno de Ellos enfrenta un problema distinto: por lo tanto, no le es posible al hombre apreciar correctamente el trabajo realizado por Ellos, ni Su punto relativo de realización. Se ha dicho, debido a que Venus está en la quinta ronda, que el Señor venusiano ha progresado más que Sus hermanos, lo cual no es del todo verdad. Así como en el desarrollo humano pueden observarse tres líneas mayores y cuatro menores fusionándose en una de las tres líneas principales, así también, en lo que atañe al Hombre celestial, existen tres líneas principales de las cuales la venusiana no es una de ellas. El Señor de Venus tiene su lugar en el cuaternario logoico, lo mismo que el Señor de la Tierra.
 
+ La idea principal subyacente en la pregunta que hemos tratado de responder se relaciona con los esquemas, cadenas, rondas y razas: se ha de tener en cuenta que estas manifestaciones guardan la misma relación, con respecto al Hombre celestial, que las encarnaciones con el ser humano Esto ofrece la oportunidad para aclarar un poco más el lugar que ocupan los ciclos en la evolución de todas esas Entidades, desde el hombre al Logos cósmico, pasando por el Hombre celestial y el Logos solar. [^25] Como se indica en La Doctrina Secreta, en la evolución de un sistema solar hay ciclos mayores y menores: lo mismo puede decirse de un Hombre celestial, de un ser humano y de un átomo. Esto nos lleva, en consecuencia. a otra afirmación:
 
+9. Los ciclos del proceso evolutivo de estas Entidades, pueden ser divididos en tres grupos principales, aunque dichos grupos podría septuplicarse un sinfín de veces.
 
+ En conexión con un Logos solar los ciclos podrían ser denominados:
+   
+   1. Cien años de Brahma.
+   2. Un año de Brahma
+   3. Un día de Brahma
+
+ <p><pin lang="es">264</pin> Estos períodos han sido computados por los estudiantes hindúes, siendo la suma total del tiempo, tal como lo comprendemos, o la duración de un sistema solar.</p>
+
+ <p><pin lang="en">301</pin> En conexión con un Hombre celestial, tenemos los ciclos correspondientes a los del Logos:</p>
+
+   1. El período de un esquema planetario.
+   2. El período de una cadena planetaria.
+   3. El periodo de una ronda planetaria.
+
+ Dentro de estas tres divisiones o diferenciaciones de los tres grandes ciclos de encarnación de un Logos planetario, hay numerosos ciclos menores o encarnaciones, pero todos entran en cualquiera de las tres divisiones principales. Dichos ciclos menores podrían ser comprendidos más fácilmente si dijéramos que marcan los períodos de:
+
+   1. Manifestación de un globo.
+   2. Duración de una raza raíz.
+   3. Duración de una subraza.
+   4. Duración de una ramificación de la raza.
+
+ A fin de comprender, aunque sea superficialmente, la identidad de la manifestación de un Logos planetario, por ejemplo, en una raza raíz, debe recordarse que el conjunto de entes humanos y dévicos de un planeta constituye el cuerpo vital de un Logos planetario, mientras que el conjunto de vidas menores de un planeta (los cuerpos materiales de los hombres y devas y descendiendo a los otros reinos de la naturaleza) forman Su cuerpo físico, y pueden ser clasificados en dos grupos:
+
+   1. Las vidas que se encuentran en el arco evolutivo, tales como las del reino animal. <pin lang="en">302</pin>
+   2. Las vidas que se encuentran en el arco involutivo, tales como las formas de materia elemental, dentro de Su esfera de influencia. Todas las vidas involutivas forman, como ya se dijo, el vehículo para el espíritu del planeta o la entidad planetaria, suma total de las esencias elementales en proceso de involución. Ocupa una posición (en relación con el Hombre celestial) análoga a la de los diferentes elementales que componen los tres cuerpos del hombre, físico, astral y mental, y es -como todos los seres manifestados- de naturaleza triple aunque involutiva. Por lo tanto, el hombre y los devas (diferenciando a éstos de los Constructores menores) constituyen el ALMA del Hombre celestial. Otras vidas forman SU CUERPO, pero lo que concierne a estas dos secciones de nuestra tesis sobre el FUEGO <pin lang="es">265</pin> son el cuerpo y el alma. Uno manifiesta el fuego de la materia y el otro el fuego de la mente, pues los devas personifican la activa mente universal, en cambio al hombre se lo considera manásico en un sentido diferente. Los hombres tienden el puente con esencia; los devas tienden el puente con materia.
+
+ 
+ :::note Recuerda
+
+ Los hombres tienden el puente con esencia; los devas tienden el puente con materia.
+
+ :::
+
+ En conexión con el Hombre, los ciclos son análogamente triples:
+
+   1. El ciclo de la mónada, que en el hombre corresponde a los cien años de Brahma y a un esquema planetario.
+   2. El ciclo del Ego.
+   3. El ciclo de la Personalidad.
+
+ Estos conceptos sobre los ciclos, nos abren un extenso campo de pensamiento, especialmente si vinculamos la idea de los ciclos del Ego y de la personalidad a los más vastos períodos relacionados con el Logos planetario. El concepto es susceptible de gran expansión, y está regido por ciertos conceptos fundamentales que deberían considerarse y contemplarse detenidamente.
+
+ <p><pin lang="en">303</pin> Los ciclos durante la manifestación de la personalidad humana se suceden en grupos de cuatro y siete, y siguen la común secuencia evolutiva:</p>
+
+   1. **Diferenciación**, el proceso involutivo o el uno convirtiéndose en los muchos; lo homogéneo transformándose en lo heterogéneo.
+   2. **Equilibrio** o el proceso de reajuste kármico.
+   3. **Síntesis o espiritualización**, los muchos convirtiéndose nuevamente en el Uno.
+   4. **Oscuración o liberación**, el fin del proceso evolutivo o la liberación del Espíritu de las limitaciones de la materia.
+
+ Por lo antedicho se comprenderá que no todas las encarnaciones en el plano físico tienen la misma importancia; algunas, desde el punto de vista del Ego, son insignificantes y otras de valor; algunas, para el Espíritu humano evolucionante, tienen análoga importancia a la encarnación de un Logos planetario en un globo o en una raza raíz; mientras que en otras, su importancia es relativa, así como lo es para un Hombre celestial la manifestación de una ramificación de la raza.
+
+ Debido al insuficiente grado de evolución del hombre medio, muy poco se tienen en cuenta las encarnaciones o ciclos astrales, pero no se ha de prescindir de ellas, pues con frecuencia son más importantes que las físicas. A su debido tiempo, se comprenderá mejor el significado de los ciclos astrales y su relación con los <pin lang="es">266</pin> ciclos físicos. Cuando se comprenda que el cuerpo físico no es un principio pero que el principio kama-manasico (o deseo-mente) es el más vital para el hombre, entonces el período o ciclo durante el cual el hombre actúa en el quinto subplano del astral (fundamentalmente el plano kama-manásico) asumirá el lugar que le corresponde. Lo mismo ocurrirá con los ciclos mental y causal. Los ciclos causales o egoicos, que incluyen todos los grupos de ciclos <pin lang="en">304</pin> menores en los tres mundos, corresponden a una ronda completa en los ciclos de un Hombre celestial. Existen siete de tales ciclos, pero el número de ciclos menores (incluidos en los siete) es uno de los secretos de la Iniciación.
+
+ Los ciclos del ego prosiguen en grupos de siete y de tres, y no de cuatro y de siete como los ciclos de la personalidad; la misma proporción existe en los ciclos centrales de un Hombre celestial y de un Logos solar.
+
+ Los ciclos monádicos prosiguen en ciclos de uno y de tres, como los ciclos básicos de las grandes Entidades de las cuales el hombre es el reflejo microcósmico. Si el concepto general aquí expuesto es estudiado en relación con los esquemas y con otras formas de manifestación, y si se estudia el microcosmos mismo como si fuera la clave del todo, alguna idea comenzará a penetrar en la mente respecto al propósito que subyace en todas estas manifestaciones. Se debe recordar además que así como el hombre medio en cada encarnación alcanza los tres objetivos.
+
+   1. desarrollar la conciencia o despertar la facultad de la percepción.
+   2. lograr en cierta medida la facultad de permanecer o el acrecentamiento definido del contenido del cuerpo causal,
+   3. generar karma o iniciar (por la actividad) causas que producirán ciertos efectos inevitables, así también un Hombre celestial realiza lo mismo en una etapa de Su evolución. A medida que el hombre progresa y entra en el Sendero de Probación y en el subsiguiente Sendero de Iniciación, logra obtener otros desarrollos notables:
+      1. Como sucedió anteriormente, su conciencia se expande pero comienza a trabajar inteligentemente desde arriba y no a ciegas en los planos inferiores. <pin lang="en">305</pin>
+      2. Termina la construcción de su cuerpo causal y comienza a destruir lo que hizo antes, a derribar el Templo que construyó tan cuidadosamente, pues encuentra que lo limita.
+      3. Deja de crear karma en los tres mundos y empieza a agotar el ya creado literalmente, "empieza a ordenar sus asuntos".
+
+ <p><pin lang="es">267</pin> Los Hombres celestiales hacen lo mismo porque también tienen un sendero cósmico que hollar, análogo al del hombre al acercarse a la meta de su esfuerzo.</p>
+
+ También puede ampliarse mas aún en concepto diciendo que el Logos solar lleva a cabo una acción similar.
+
+Estamos analizando la consideración de esta pregunta y será evidente que la relación que existe entre las manifestaciones mencionadas es de carácter síquico (empleando esta palabra en su verdadera acepción, la que se refiere a la psique, alma o conciencia) y trata de la gradual expansión del Conocimiento del Alma de parte de un Hombre celestial. Cabe aquí hacer una advertencia que, aunque todos estos Señores cósmicos tienen en el hombre un reflejo de Su propia Naturaleza, la analogía de su semejanza no puede ser llevada a los extremos. El hombre refleja, pero no lo hace a la perfección: el hombre evoluciona, pero no tiene exactamente los mismos problemas que los Manasaputras perfectos.
+
+El hombre aspira a convertirse en un Manasaputra divino, en un perfecto Hijo de la Mente, expresando todos los poderes inherentes a la mente, y así llega a parecerse a su fuente monádica, un Hombre celestial. Éste ha desarrollado Manas y se ocupa del problema de llegar a ser un Hijo de la Sabiduría no inherentemente, sino en plena manifestación. Un Logos solar es a la vez Manasaputra divino y Dragón de Sabiduría y Su problema consiste <pin lang="en">306</pin> en desarrollar el principio de la Voluntad cósmica. que Lo convertirá en un "León de Voluntad cósmica".
+
+En todas estas graduadas manifestaciones se aplica la ley, estando lo menor incluido en lo mayor. De allí la necesidad de que el estudiante mantenga el debido sentido de proporción, la discriminación del aspecto tiempo en la evolución y la justa apreciación del lugar que le corresponde a cada unidad dentro de su esfera mayor. Después de esta advertencia, podemos continuar con las consideraciones finales sobre esta última pregunta.
+
+Se ha dicho que las 777 encarnaciones encierran un misterio. Este guarismo da lugar a muchas conjeturas. [^26] Debe observarse que no es el número exacto de un determinado ciclo de encarnaciones por las cuales el hombre ha de pasar, sino la clave de los tres ciclos mayores ya mencionados. En primer lugar, este número se aplica al Logos planetario o a nuestro esquema y no a los demás. Cada Hombre celestial tiene Su número, y el de nuestro Hombre celestial se halla oculto en los citados tres números, así como el 666 y el 888 ocultan el enigma de otros dos Hombres celestiales.
+
+<p>
+<pin lang="es">268</pin> El número 777 es también el número de transmutación, trabajo fundamental de todos los Hombres celestiales. El trabajo básico del hombre consiste en adquirir y acumular, o en la adquisición de aquello que habrá de transmutarse más tarde. La tarea de transmutación o el verdadero ciclo del 777, comienza en el Sendero de Probación, y es precisamente la actividad del Hombre celestial que está siendo conocida y obedecida por las células de Su cuerpo. Únicamente cuando Su cuerpo haya alcanzado cierto movimiento vibratorio puede influir realmente sobre las células individuales. La tarea de transmutar la actividad celular empezó en este planeta durante la última raza raíz, y todavía continúa la divina alquimia. El progreso obtenido es poco, pero cada célula <pin lang="en">307</pin> consciente transmutada aumenta la rapidez y exactitud del trabajo. Sólo es necesario el factor tiempo para darle fin. Respecto a esta cuestión surgió la leyenda de la Piedra Filosofal, que significa literalmente la aplicación del Cetro de la Iniciación.
+</p>
 
 [^1]: La Biblia, Ep. IV, 13.
 
@@ -986,7 +1087,7 @@ Podría hacer una indicación sobre el cuarto punto para que se lo reflexione in
      2. Los Hombres, la Mónada, las Unidades de Conciencia. En su totalidad constituyen los cuerpos de los siete Hombres celestiales. Cada Mónada pertenece a uno de los Siete Rayos. D. S. I, 204,278; II, 267; III, 90, 170, 187-188.
      3. Devas. D.S. I, 297; III, 108-109. Dichos devas, por ejemplo son:
         1. El Señor de los devas de un plano. La esfera de Su cuerpo constituye todo el plano.
-        2. 	Grupos de devas constructores.
+        2. Grupos de devas constructores.
      4. Entidades involucradas en los reinos mineral, vegetal y animal. D. S. I, 215, 289.
         1. La vida del tercer Logos - átomo de la materia.
         2. La vida del segundo Logos -grupos de átomos con los cuales se construyen las formas vegetal y animal
@@ -1225,3 +1326,9 @@ Podría hacer una indicación sobre el cuarto punto para que se lo reflexione in
     6. Escuela Vedanta. Tiene que ver con la no-dualidad. Trata de la relación que existe entre el Atma del hombre y el Logos.
 
     Gnosis o conocimiento oculto es análogo a Atma Vidya o Teosofía, e incluye a los otros seis.
+
+[^24]: D. S. III, 44; II, 17.
+
+[^25]: D. S. I, 256.
+
+[^26]: D. S. I, 199.
