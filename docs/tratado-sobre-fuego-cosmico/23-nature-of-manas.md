@@ -202,12 +202,69 @@ se aplican en el plano físico en forma similar a como se utiliza la fuerza elé
 
 Cabe preguntar aquí, por qué se dice que el color es la manifestación búdica de la electricidad. Empleamos la palabra “color” en su sentido original y básico, como “aquello que vela”. El color vela la séptuple diferenciación de la manifestación logoica y desde el punto de vista del hombre en los tres mundos, puede ser visto únicamente en su pleno significado en el plano búdico. Es evidente que toda manifestación eléctrica e ígnea encierra los siete colores.
 
+Podrá observarse otra analogía entre el cuarto éter cósmico y el cuarto éter físico, en el hecho de que ambos se ocupan principalmente del trabajo de los grandes Constructores. Téngase en cuenta que construyen en materia etérica el cuerpo verdadero del Logos; **el vehículo físico denso no constituye el resultado de su trabajo, sino la unión de las siete corrientes de fuerza o electricidad, lo cual produce la aparente congestión de la materia denominada planos físico densos** (los tres subplanos inferiores). Después de todo, esta aparente congestión sólo constituye la excesiva actividad electrónica o la energía del conjunto de átomos negativos que esperan el estímulo cuyo resultado será la aparición de cierto número de átomos positivos. Debe tenerse esto en cuenta. El proceso de la evolución se basa en dos métodos y se manifiesta como:
 
+**Involución**, donde tienen preponderancia los electrones negativos de la materia. El porcentaje de estos electrones femeninos es uno de los secretos de la iniciación, siendo tan enorme durante la etapa involutivo que es muy notable la escasez de átomos <pin lang="en">322</pin> positivos, tanto que se sirven para mantener la coherencia del conjunto. <pin lang="es">280</pin>
 
+**Evolución**, donde los átomos negativos, debido a la acción de manas, son estimulados, o bien desaparecen en el depósito eléctrico central, o se fusionan en su polo opuesto y, por consiguiente, desaparecen nuevamente. Esto da por resultado:
 
+1. Síntesis
+2. Homogeneidad
+3. Sutilidad, en vez de la densidad de la materia. El cuarto éter cósmico, el búdico, constituye el plano del aire y también el plano de absorción en los tres mundos. Esta sutilización de la materia densa (tal como la conocemos) significa simplemente que al término del proceso evolutivo se habrá transmutado y, desde nuestro punto de vista, prácticamente no existirá; todo lo que quedará serán los átomos positivos o ciertos vórtices de fuerza que -habiendo absorbido a los átomos negativos- se manifestarán como fenómenos eléctricos, en forma inconcebible para el hombre, en su actual etapa de conocimiento. Estos vórtices se caracterizan por:
+   1. Intensa actividad vibratoria.
+   2. Predominio de cierto color de acuerdo a la cualidad de la manifestación etérica y su origen.
+   3. Rechazo de todos los cuerpos que poseen un grado similar de vibración y polaridad. Su cualidad atractiva cesará al finalizar la evolución, debido a que nada quedará por ser atraído.
 
+Los vórtices de cada esquema planetario durante la evolución serán siete. Más tarde, durante el período de oscuración, tres de los vórtices se aproximarán a su polo masculino y con el tiempo sólo quedará uno. Un proceso similar puede observarse en el hombre, en conexión con sus <pin lang="en">323</pin> siete centros, durante el proceso de iniciación. Primero existen siete; luego tres absorben a los cuatro inferiores por medio de la interacción eléctrica. Consideramos aquí el tema de acuerdo al punto de vista de este estudio. Finalmente sólo queda el centro coronario por ser el polo positivo de los otros.
 
+El tema sobre la polarización eléctrica de los centros es realmente difícil, y poco puede informarse sobre esa materia. Sin embargo, podría decirse, sin ningún riesgo, que los órganos genitales constituyen el polo negativo del centro laríngeo, así como el plexo solar lo es del cardíaco. Este tema es muy vasto y complejo debido al orden de desarrollo de los centros, al tipo de rayo y al color, conjuntamente con el hecho de que durante ciertas etapas del proceso evolutivo distintos centros (como el que está en la base de la columna vertebral) son positivos. En forma análoga algunos esquemas planetarios son positivos y otros negativos; tres de dichos esquemas son duales, es decir, positivos y negativos. Lo mismo <pin lang="es">281</pin> puede decirse de un sistema solar y en forma curiosa también de los planos. En relación con el esquema terrestre tenemos una polaridad positiva de carácter temporario, basada en el tipo particular de encarnación adoptado por nuestro Hombre celestial en este planeta. Con esto quiero significar que tanto los Hombres celestiales como los hombres encarnan en cuerpos masculinos o femeninos, considerando el tema desde el punto de vista de la polarización eléctrica y no desde el ángulo sexual en lo que respecta al cuerpo físico.
 
+Venus es de polaridad negativa, de allí que la Tierra absorbiera misteriosamente fuerza venusiana. Aquí la cuestión del sexo podrá ayudar a dilucidar lo expuesto. El vínculo kármico existente entre un Hombre celestial en encarnación positiva y otro en encarnación negativa, dio lugar a que se cancelara una antigua deuda y a que se produjera una alianza planetaria. En la época lemuriana <pin lang="en">324</pin> la Luz brilló en varios de los grandes grupos humanos al establecerse la conexión eléctrica entre esos dos polos. Era necesaria la tarea conjunta de esos dos Hombres celestiales, realizada en los niveles búdicos (el cuarto éter cósmico), a fin de producir el resplandor de la luz de manas en los grupos causales del quinto plano cósmico gaseoso, el plano mental del sistema solar. Recuerden que anteriormente se dijo que la mayoría de los hombres actúan conscientemente en el quinto subplano de los tres planos en los tres mundos. El quinto principio comienza a estar activo en ellos, pero apenas tiene la suficiente fuerza para mantenerlos en línea con la fuerza eléctrica que fluye del cuarto éter cósmico hacia el inmediato subplano inferior del plano físico cósmico.
+
+Se ha de recordar que cada plano y subplano, numéricamente iguales, contienen el mismo tipo de fuerza y, en consecuencia, la misma polaridad.
+
+También los planos astral y búdico están relacionados, como ya sabemos; el astral es negativo con respecto al búdico. Cuando se conozca y comprenda la polaridad de los distintos planos y subplanos, su interacción y los planos cósmicos correspondientes, recién entonces el hombre se liberará. Cuando se conozca la polaridad de los éteres entre sí y su relación con el todo, habrá terminado la evolución humana. Cuando un Maestro ha solucionado el problema de los fenómenos eléctricos en los tres mundos, obtiene Su liberación. Además, cuando se capte la relación de la forma negativa con el Espíritu positivo y, en cierta medida, su conjunta conexión con las Entidades cósmicas que habitan el entero sistema, se obtendrá la liberación grupal.
+
+Quizás podría ayudar a esclarecer <pin lang="en">325</pin> el punto de vista, al encarar este tema tan abstruso, si recordamos que el hombre es <pin lang="es">282</pin> esencialmente positivo en su propia naturaleza, pero sus vehículos son negativos; de allí que constituya la unidad central de la electricidad positiva que atrae y mantiene aferrados a él los átomos de polaridad opuesta. Cuando ha unido y fusionado los dos polos y producido luz de cierta magnitud (fijada por el Ego antes de encarnar) durante una encarnación particular, tiene lugar la oscuración. La manifestación eléctrica quema y destruye el medio, entonces la luz desaparece; sobreviene lo que llamamos muerte física, porque la corriente eléctrica quema aquello que causa la objetividad y lo que resplandece. Ampliemos la idea y comprendamos que estas unidades denominadas hombres (positivos respecto a sus propios vehículos) sólo son células negativas en el cuerpo de un Hombre celestial mantenidas en Su esfera de influencia por la fuerza de Su vida eléctrica. Además tengan en cuenta que los Hombres celestiales son positivos con respecto a las vidas menores pero a su vez negativos con respecto a la Vida mayor que Los contiene.
+
+Aquí también se demuestra la verdad de la enseñanza dada por H. P. B.:
+
+|                    |          |                                                 |
+| ------------------ | -------- | ----------------------------------------------- |
+| Fuego Eléctrico    | Positivo | Espíritu                                        |
+| Fuego por Fricción | Negativo | Materia                                         |
+| Fuego Solar        | Luz      | Ambos se fusionan y producen la llama objetiva. |
+
+Hemos considerado ya la pregunta respecto al origen eléctrico de toda manifestación en conexión con los cuatro subplanos superiores del sistema solar -esos cuatro planos que son **los cuatro éteres cósmicos y por lo tanto, forman el cuerpo objetivo de un Hombre celestial así como los cuatro éteres físicos del sistema solar forman el cuerpo etérico de un hombre**. He repetido aquí un hecho cuya importancia no ha sido plenamente comprendida por el estudiante corriente de ocultismo este hecho, una vez <pin lang="en">326</pin> aceptado y comprendido sirve para aclarar, en forma maravillosa, todo el tema de la Evolución planetaria. Hemos llegado ahora a los tres planos en que el hombre actúa, los subplanos gaseoso, líquido y denso del plano físico cósmico
+
+El tema referente al Akasha se esclarecerá a medida que la ciencia exotérica investigue el tema de los éteres. A medida que vaya adquiriendo conocimiento sobre los cuatro tipos de éteres, que comprenda su acción vibratoria, que conozca las sustancias de que están compuestos, cómo se utilizan qué propiedad poseen como conductores de luz y los diversos ángulos desde los cuales pueden ser estudiados, surgirá un conocimiento paralelo respecto a los correspondientes éteres cósmicos mucho respecto a ellos podrá deducirse de lo que ya se conoce en relación con los cuatro éteres físicos solares.
+
+<p><pin lang="es">283</pin> Por ejemplo, el cuarto éter (el cual podríamos decir que esta siendo “descubierto”) tiene en esta etapa ciertas características. Enumeraré muy brevemente algunas de ellas:</p>
+
+1. El rayo violeta emplea al éter como medio.
+2. La mayoría de los cuerpos etéricos humanos están construidos con material del cuarto éter.
+3. El cuarto éter es, en gran parte, la principal esfera de influencia de los “devas de las sombras”, o esos devas violeta, internamente interesados en la evolución física del hombre.
+4. Dentro de la esfera etérica la evolución humana y dévica establecerán contacto más adelante.
+5. Los cuerpos físico densos son construidos en la cuarta esfera etérica
+6. Es la esfera de la individualización física. Sólo cuando el animal, al individualizarse, era plenamente consciente en ese subplano del plano físico fue posible coordinar las esferas correspondientes de los planos astral y mental y, mediante esta triple coordinación, dar los pasos necesarios que permitieran al cuaternario aproximarse a la Tríada. <pin lang="en">327</pin>
+7. Este cuarto éter, en esta cuarta ronda y en esta cuarta cadena, ha de ser totalmente dominado por la Jerarquía humana, la cuarta Jerarquía creadora. Cada ente de la familia humana debe lograr este dominio al terminar esta ronda.
+8. Es la esfera donde se pasan las iniciaciones del umbral y se emprenden las cinco iniciaciones en el plano físico.
+
+Mucho más podría agregar a esta enumeración, pero solo he indicado aquello que puede ser comprendido fácilmente y tiene su analogía en el plano búdico, el cuarto éter cósmico. Debe recordarse que nuestro plano físico tiene también en sus subplanos la analogía de todo el plano físico cósmico.
+
+#### PLANO FISICO CÓSMICO
+
+|             |                      |                     |              |
+| ----------- | -------------------- | ------------------- | ------------ |
+| 1. Adi      | Primer Éter Cósmico  | 1. Subplano atómico | Primer Éter  |
+| 2. Monádico | Segundo Éter Cósmico | 2. Subatómico       | Segundo Éter |
+| 3. Atmico   | Tercer Éter Cósmico  | 3. Super etérico    | Tercer Éter  |
+| 4. Búdico   | Cuarto Éter Cósmico  | 4. Etérico          | Cuarto Éter  |
+| 5. Mental   | Gaseoso Cósmico      | 5. Gaseoso          |              |
+| 6. Astral   | Líquido Cósmico      | 6. Liquido          |              |
+| 7. Físico   | Denso Cósmico        | 7. Denso Físico     |              |
+
+Aplicando la analogía en los planos superiores, el plano físico solar puede explicarse de la manera siguiente: <pin lang="es">284</pin>
 
 
 
