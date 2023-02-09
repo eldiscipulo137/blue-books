@@ -266,6 +266,190 @@ Mucho más podría agregar a esta enumeración, pero solo he indicado aquello qu
 
 Aplicando la analogía en los planos superiores, el plano físico solar puede explicarse de la manera siguiente: <pin lang="es">284</pin>
 
+#### PLANO FISICO SOLAR
+
+|                  |               |              |                   |
+| ---------------- | ------------- | ------------ | ----------------- |
+| Primer subplano  | atómico       | primer éter  | adi físico.       |
+| Segundo subplano | subatómico    | segundo éter | anupadaka físico. |
+| Tercer subplano  | super etérico | tercer éter  | átmico físico.    |
+| Cuarto subplano  | etérico       | cuarto éter  | búdico físico.    |
+| Quinto subplano  | gaseoso       |              | mental físico.    |
+| Sexto subplano   | líquido       |              | astral físico.    |
+| Séptimo subplano | denso         |              | denso físico.     |
+
+<p><pin lang="en">328</pin> Tanto en el plano cósmico como en el físico solar, el búdico constituye siempre el plano de unificación o el campo donde se encuentra y fusiona la diversidad, no como unidad fundamental sino grupal. Esto se debe a que el plano búdico está preeminentemente más relacionado con la evolución de los Hombres celestiales. Por lo tanto, lo que he afirmado acerca del cuarto éter físico puede hacerse extensivo al cuarto éter cósmico, y encontrarse la analogía en el plano búdico. El lugar que ocupa, por ejemplo, el color violeta en el espectro es de primordial importancia en relación con los ciclos mayores, y marca el fin de un ciclo y el principio de uno nuevo. El plano búdico es peculiarmente el plano del color violeta, aunque existen allí todos los colores; el Señor de Rayo de Magia Ceremonial, quien personifica al Rayo o Jerarquía violeta, se relaciona especialmente con el plano búdico. Se ha de tener en cuenta que cada Logos planetario trabaja principalmente en uno de los siete planos; de ello podemos deducir que ejerce Su influencia en aquel plano donde encuentra Su línea de menor resistencia, aunque la ejerce en todos.</p>
+
+Ampliando la segunda afirmación respecto a la composición etérica de los cuerpos humanos a los cuerpos de los Hombres celestiales, encontramos que así como la mayoría de los cuerpos etéricos humanos están construidos con materia del cuarto éter, también los vehículos etéricos de cuatro de los Hombres celestiales están compuestos de este cuarto éter cósmico (materia búdica).
+
+Además, las dos grandes evoluciones (humana y dévica) encuentran su unidad grupal en el plano búdico, y parte de ambas jerarquías se mezclan y fusionan a fin de formar el cuerpo del divino Hermafrodita. [^5] [^6] Antes de llegar a esto, en ciertos puntos ya fijados, podrán aproximarse entre sí <pin lang="en">329</pin> momentáneamente. En el plano búdico puede observarse una alianza definida y permanente. En dicho plano los “devas de las sombras”, dedicados a construir el esquema planetario, desarrollan su trabajo <pin lang="es">285</pin> paralelamente a la tarea que realizan en los tres mundos los constructores menores, los cuales trabajan con el cuerpo etérico del hombre. De esta manera puede establecerse la analogía, pues en todo rige la Ley de Semejanza; pero no debe olvidarse que la analogía es de carácter síquico y se manifiesta como trabajo, actividad y cualidad, no como una copia fiel de la forma.
+
+A medida que vaya transcurriendo el tiempo, la tarea que han de realizar los Hombres celestiales en las esferas etérico-cósmicas será mejor comprendida y ayudada por las inteligencias menores, las cuales -mediante el estudio de los éteres físicos- obtendrán con el tiempo la clave de la manifestación mayor. La Ciencia es la sierva de la Sabiduría, y abre la puerta que conduce a los infinitos horizontes y extensiones cósmicas donde se encuentran esas grandiosas Inteligencias que manipulan la materia de los planos superiores y la moldean en la forma deseada, haciendo que las vibraciones iniciadas se perciban en los confines más lejanos del “circulo no se pasa” solar. Entonces, automáticamente, todas las vidas menores y la materia más densa son arrastradas y llevadas hacia las formas y canales necesarios. Vibración o actividad inicial: luz o actividad que adquiere forma y anima a la forma; sonido, base de la diferenciación y origen del proceso evolutivo, y color, la séptuple diferenciación, así se lleva a cabo el trabajo. Hemos tratado estos cuatro factores en conexión con un Logos solar e igualmente con la tarea realizada por el Hombre celestial el hombre y la mónada humana.
+
+Los estudiantes han de tener también presente otro punto que frecuentemente se olvida, y es que cada plano puede ser estudiado y dividido de dos maneras:
+
+Primero. Los siete subplanos pueden dividirse en <pin lang="en">330</pin> tres superiores o abstractos y en cuatro inferiores o concretos Esta división es la mejor y más estrictamente metafísica, porque encierra todo el concepto del Yo, del no-yo y de la Inteligencia, con su síntesis, que produce el universo objetivo, ya sea un sistema solar, un esquema planetario o una encarnación humana. En conexión con el Logos, H. P. B. en La Doctrina Secreta, Tomo I, dilucida magistralmente y considera en forma iluminadora el trabajo del Padre y de la Madre al producir el Hijo, mediante una consciente e inteligente colaboración.
+
+Referente al Hombre, se podrá comprender el tópico más fácilmente si es considerado el cuerpo causal, en los niveles abstractos del plano mental, en relación con los cuatro niveles inferiores o concretos, de donde emana la manifestación.
+
+Segundo. Los siete subplanos pueden dividirse igualmente en tres superiores pero considerando al cuarto plano como el de <pin lang="es">286</pin> reunión o unificación y a los tres inferiores como planos de esfuerzo. Esta división concierne principalmente al hombre.
+
+Ambas divisiones, como se verá más adelante, existen en cada plano del sistema y tienen su origen en la fuerza eléctrica, la cual se manifiesta diversamente en cada plano, pero en todos actúa bajo tres leyes: Atracción y Repulsión, Economía y Síntesis. Los tres planos o subplanos inferiores actúan principalmente bajo la Ley de Economía, el plano de unión actúa bajo uno de los aspectos de la Ley de Atracción. Lógicamente, durante la evolución, paralelamente a ellos tienen sus opuestos, manifestándose como Dispersión, Repulsión y Diferenciación.
+
+Lo relacionado con la manifestación eléctrica del akasha se ha de estudiar en sus tres divisiones principales, luego plano por plano o una séptuple consideración, y finalmente como los cuarenta y nueve <pin lang="en">331</pin> fuegos. A través de todo esto no se ha de olvidar que el tema se complica aún más debido al factor tiempo, que ubica a estos cuarenta y nueve fuegos, que se hallan en diferentes etapas, bajo distintas esferas de influencia y tres leyes del cosmos. Así, el mismo fuego se manifestará como luz constructiva, en diferentes períodos, y en otros producirá la combustión y oscuración eventual como resultado de la combustión.
+
+**La manifestación de la electricidad en los planos mental, astral y físico**. No nos detendremos sobre este tema, porque se elucidará con posterioridad lo más plenamente posible. Basta decir que la Ley rige siempre y que todo lo que se ha afirmado como un hecho, respecto al Hombre celestial en sus propios planos, puede decirse también del hombre en los cuatro planos inferiores. Por lo tanto tenemos:
+
+#### UN LOGOS SOLAR
+
+|                        |                                |
+| ---------------------- | ------------------------------ |
+| 1. Vibración eléctrica | el plano logoico o de adi      |
+| 2. Luz eléctrica       | el plano monádico o anupadaka. |
+| 3. Sonido eléctrico    | el plano átmico.               |
+| 4. Color eléctrico     | el plano búdico.               |
+
+#### UN HOMBRE CELESTIAL
+
+|                        |                   |
+| ---------------------- | ----------------- |
+| 1. Vibración eléctrica | el plano monádico |
+| 2. Luz eléctrica       | el plano átmico.  |
+| 3. Sonido eléctrico    | el plano búdico.  |
+| 4. Color eléctrico     | el plano mental.  |
+
+#### UN HOMBRE
+
+|                        |                  |
+| ---------------------- | ---------------- |
+| 1. Vibración eléctrica | el plano búdico  |
+| 2. Luz eléctrica       | el plano mental. |
+| 3. Sonido eléctrico    | el plano astral. |
+| 4. Color eléctrico     | el plano físico. |
+
+<p><pin lang="es">287</pin>Es necesario recordar aquí que anteriormente nos hemos ocupado del Logos y de los Hombres celestiales como partes componentes de Su cuerpo de manifestación. En la clasificación anterior tratamos cada uno por separado; <pin lang="en">332</pin> ha de observarse que los grupos de cuerpos causales en el plano mental manifiestan el color de un Hombre celestial y Su punto más inferior de objetividad En el hombre, el punto más inferior de objetividad es el quinto subplano del plano físico, puesto que los subplanos líquido y denso no son considerados como principios, ni tampoco el líquido y el denso cósmico (los planos astrales y físicos del sistema) constituyen un principio para el Hombre celestial.
+</p>
+
+Hemos visto que manas o mente, quinto principio, constituye la vibración básica del plano mental cósmico, el quinto plano; por consiguiente, lo que llevó a nuestro Logos solar a la manifestación fue un impulso originado en los niveles causales del plano mental cósmico; de la misma manera que la fuerza que lleva al hombre a la encarnación emana de su cuerpo causal en el plano mental del sistema solar. Hemos visto además que manas es la facultad discriminadora que anima toda sustancia y constituye el fuego eléctrico del sistema, expresándose como atracción y repulsión, y todo lo que implican estas palabras. Las Leyes de Economía y de Síntesis, en un sentido más amplio de la idea, sólo son divisiones de la misma ley cósmica, de la cual son también manifestaciones las Leyes de Atracción y Repulsión. Esta ley cósmica, que se manifiesta de triple manera, podría denominarse (a falta de mejor término) la Ley del Ser, y es tan incomprensible para la mente finita del hombre que solo podrá percibirla parcialmente mediante las tres manifestaciones mencionadas
+
+### 3. Manas es Aquello que Produce Cohesión.
+
+Llegamos ahora a la tercera definición: El principio manásico es, sobre todo, ese algo cohesivo que permite a una Entidad (sea Logos, Hombre celestial u hombre) actuar:
+
+1. por medio de una forma, y así existir, <pin lang="en">333</pin>
+2. por medio del desarrollo progresivo o evolución cíclica,
+3. en ciertos planos que, para la entidad implicada, son el campo de batalla de la vida y el campo de experiencia,
+4. mediante el método de manifestación, que consiste en el gradual crecimiento desde una alborada oscura y distante hasta alcanzar paulatinamente el esplendor de la luz, convirtiéndose en una llamarada de esplendente gloria, para luego, a través de un gradual crepúsculo, llegar a la oscuración - El amanecer, la mañana, el mediodía, el <pin lang="es">288</pin> crepúsculo, la noche constituyen el mismo orden para el Logos, el Logos planetario y el hombre.
+
+Si se estudian detenidamente los cuatro puntos que anteceden, se verá que son bastante amplios y que encierran los únicos cuatro puntos que están a disposición del hombre en esta cuarta ronda.
+
+El hombre se considera a sí mismo como un conjunto sintético formado por el cuerpo físico, la naturaleza emocional y la mente; sin embargo, sabe que es algo más que estos tres, y se reconoce como el que utiliza la forma, la emoción y la mentalidad, las mantiene coherentemente unidas, y hace de él una unidad. Un Logos planetario hace lo mismo, con la diferencia que manas no constituye el medio por el cual él es un todo coherente. Debido a su etapa más avanzada de evolución la sabiduría constituye para El el factor dominante. Un Logos solar obtiene, por medio de la Voluntad, lo que el Logos planetario logra por medio de La sabiduría o budi, y el hombre en su pequeña escala por medio de manas. No obstante, como el Logos planetario y el hombre son parte de su gran todo, el fuego eléctrico de la voluntad también los compenetrará y se fusionará con el fuego solar de budi, aventando el fuego de la materia. Al considerar estas distinciones y diferenciaciones debe recordarse que, desde el punto de vista logoico no existen, sino que se establecen en relación <pin lang="en">334</pin> con los cuerpos menores, comprendidos en el “círculo no se pasa” solar.
+
+El hombre es un ente coherente, en manifestación objetiva, durante muy breves periodos en el plano físico, simplemente porque aún trabaja por medio de manas y no de la sabiduría. Por lo tanto sus ciclos pasan tan rápidamente como un destello en la noche. Los períodos de un Logos planetario, quien es manas perfeccionado y trabaja por medio de la sabiduría, son más extensos y, desde el punto de vista del hombre, duran eones; Su vida constituye la base de la comparativa duración de los ciclos egoicos del hombre. El ciclo de objetividad de un Logos solar persiste durante el mahamanvantara mayor o ciclo solar, porque está basado en la voluntad, lo mismo que en la sabiduría y en manas. Por consiguiente se verá que:
+
+1. Manas o inteligencia constituye la base de la manifestación separatista del hombre.
+2. Sabiduría o budi constituye la base de la manifestación grupal de un Hombre celestial.
+3. Voluntad constituye la base de la Vida Una, que sintetiza todos los grupos.
+
+Por lo tanto, repetimos, al estudiar el Fuego de la Mente, debemos recordar que es aquello que el hombre está desarrollando y por <pin lang="es">289</pin> medio del cual está aprendiendo a trabajar, siendo también lo que el Hombre celestial desarrolló en un sistema anterior. Para Éste el Fuego 
+de la Mente es tan automático en su acción, como lo es la actividad inconsciente de los órganos físicos del hombre.
+
+### 4. Manas es la Llave del Quinto Reino de la Naturaleza.
+
+Podemos también definir a manas como la llave que abre la puerta por la que se penetra al quinto reino de la naturaleza o reino espiritual. En cada uno de los reinos se entra con ayuda de alguna clave. Con respecto a los dos primeros reinos, el mineral y el vegetal, la llave o método por medio del cual se transfiere la vida al reino superior es tan inexplicable para el hombre, en su actual grado
+<pin lang="en">335</pin> de comprensión inteligente, que no nos detendremos a considerarlo. En relación con el reino animal puede decirse que la llave, por medio de la cual entra al reino humano, es el instinto. En sus etapas finales de evolución y a medida que se desprende del alma grupal [^7] se transmuta en mentalidad o mente embrionaria, latente en el hombre animal, que sólo necesitó la vibración estimulante emanada del Primario de la Tierra para elevarse a algo definidamente humano Se ha de tener siempre en cuenta que el método de individualización empleado en este globo no fue seguido en otros y que muchas de las actuales unidades avanzadas de la humanidad se individualizaron normalmente por la fuerza impulsora de la evolución misma. Encontraron su polo eléctrico opuesto (para expresarlo hasta donde es posible en términos de fuego) gracias a la actividad del instinto animal, y su fusión produjo un ser humano -la unión de los tres fuegos en el vehículo causal.
+
+El hombre entra al quinto reino mediante la transmutación de la facultad discriminadora de la mente, que (como en la individualización del animal) causa, en cierta etapa, la individualización espiritual, la analogía en los niveles superiores de lo que ha ocurrido en la época lemuriana. Por consiguiente, tenemos:
+
+1. Instinto....... La llave para pasar del reino animal al humano, o del tercer reino al cuarto.
+2. Manas   ....... La llave para pasar del reino humano al espiritual, o del cuarto al quinto reino.
+
+<p><pin lang="en">336</pin> No es necesario ir más allá, porque continúan las transmutaciones de manas y hay todavía mucho que hacer. <pin lang="es">290</pin></p>
+
+### 5. Manas es la Vibración Sintética de Cinco Rayos.
+
+Podría darse otra definición, aunque su complejidad quizá cause confusión al estudiante
+
+Manas es la facultad combinada de Cuatro Hombres celestiales, sintetizada en un quinto Hombre celestial en el tercer plano del sistema. Estos cinco Hombres celestiales, en un sistema anterior fueron la personificación logoica y alcanzaron la plenitud de la vida manásica. Al hablar de Brahma, Entidad cósmica, suma total de la inteligencia activa logoica, se quiere significar principalmente la vida sintética de los Hombres celestiales. A falta de términos más adecuados, los denominamos Señores de los cuatro Rayos menores, Cuya síntesis se produce por medio del tercer Rayo de Actividad. A fin de expresar los principios que personifican, han sido denominados:
+
+1. El Señor de Magia Ceremonial.
+2. El Señor de Idealismo Abstracto o Devoción.
+3. El Señor de Ciencia Concreta
+4. El Señor de Armonía y Arte.
+
+Estos cuatro actúan por medio del cuarto éter cósmico y poseen vehículos de materia búdica. Se fusionan en la vida mayor del Señor del tercer Rayo de Aspecto, en los niveles atmicos, y estos cuatro (con el Rayo Sintético) representan la totalidad de la energía manásica. Constituyen la vida de los cinco planos inferiores Son los cinco Kumaras que, con los dos restantes, los cuales forman los siete Kumaras o Constructores del Universo, se los denomina los Cinco Hijos de Brahma nacidos de la Mente. [^8] En consecuencia manas es el efecto síquico de Su trabajo grupal unido que se expresa de diferentes maneras según las unidades involucradas, las formas <pin lang="en">337</pin> animadas y los planos implicados. Se manifiesta, predominantemente en los cinco subplanos inferiores de cada plano, factor que se ha de tener en cuenta, en relación con las iniciaciones mayores de manas. No obstante -por ser la suma total del tercer aspecto de Brahma-, Su principal esfera de influencia se halla en la inferior o en la tercera división del universo manifestado, o en los planos mental, astral y físico.
+
+Voy a sugerir una tercera división de los planos mayores del sistema, que será de interés para el verdadero estudiante de ocultismo:
+
+<p><pin lang="es">291</pin> En estas cinco definiciones de manas se ha sugerido un amplio campo para reflexionar y se han dado muchos indicios para quienes tengan oídos para oír. Se podrían dar muchas más explicaciones, pero nuestro propósito consiste en que los estudiantes piensen por si mismos y procuren definir estas ideas con sus propias palabras.</p>
+
+### 6. Manas es la Voluntad Inteligente o el Propósito de una Existencia.
+
+Para finalizar podríamos definir a manas como inteligente voluntad y propósito ordenado de todo ente autoconsciente. Recomiendo al estudiante tener en cuenta ciertos hechos fundamentales que contribuirán a mantener la mente clara y le permitirán comprender algo sobre el lugar que este fuego de la mente ocupa en el cosmos, en el sistema solar y también (es innecesario decirlo) en su propia vida, reflejo de los otros dos.
+
+El estudiante debe recordar que manas es un principio del Logos y, necesariamente, se hace sentir en todas
+<pin lang="en">338</pin> las evoluciones, pues son parte de Su naturaleza, pero está especialmente vinculado con el centro laríngeo y el coronario; es el factor inteligente activo que permite a un Logos solar, a un Logos planetario u Hombre celestial y a un ser humano 
+
+1. Utilizar inteligentemente una forma o vehículo
+2. Desarrollar facultades en el cuerpo causal.
+3. Cosechar el beneficio de la experiencia.
+4. Expandir la conciencia.
+5. Avanzar hacia una meta específica.
+6. Discriminar entre dos polos.
+7. Elegir la dirección hacia la que ha de orientar su actividad.
+8. Perfeccionar la forma y utilizarla.
+9. Controlar la sustancia activa y encauzar sus fuerzas hacia canales deseables.
+10. Coordinar los diferentes grados de materia y sintetizar las formas utilizadas, hasta que todas y cada una muestren una línea unánime de acción y expresen, simultáneamente, la voluntad del Morador Interno.
+
+Todas estas finalidades son el resultado del desenvolvimiento manásico. Quizás el estudiante podría captar con mayor claridad la idea subyacente si se diera cuenta que:
+
+1. El Espíritu emplea a manas en todo cuanto concierne a la materia, sustancia eléctrica o akasha activo.
+2. El Espíritu emplea a budi en todo cuanto se relaciona con la psiquis y con el alma del mundo, del individuo o de cada forma. <pin lang="es">292</pin>
+3. El Espíritu emplea a la voluntad o atma en todo cuanto se relaciona con la esencia de todo, con la esencia de sí mismo. considerando a la esencia y al Yo como Espíritu puro, como distinto al espíritu-materia.
+
+En el primer caso, la cualidad característica de manas es discriminación; la cual permite al Espíritu diferenciar: <pin lang="en">339</pin>
+
+1. El Yo y el no-yo.
+2. El Espíritu y la Materia.
+3. Los planos y los subplanos.
+4. Los diferentes grados de materia atómica del sistema.
+5. Las vibraciones engendradas por la voluntad, al actuar por medio de amor-sabiduría y energetizar la sustancia.
+6. Todo aquello que concierne a cualquier tipo de forma y existencia esencial.
+
+En el segundo caso, el principio búdico tiene como cualidad característica el amor, y se manifiesta como sabiduría que actúa por medio del amor y produce:
+
+1. Unidad entre todos los Yoes.
+2. Conciencia grupal.
+3. Cualidades características que se hallan en la línea que denominamos Amor.
+4. Trabajo efectivo, en relación con la evolución, o los fundamentos del trabajo jerárquico.
+
+En el tercer caso, el Espíritu emplea el aspecto voluntad o atma (en el hombre) cuya característica es esa fuerza coherente que mantiene siempre a la vista el propósito de la entidad y lo desarrolla en forma sustancial por medio del amor.
+
+He señalado todas estas características porque sirven para presentar al estudiante, con mayor claridad, el alcance y también las limitaciones del principio mental activo. En el Aula de la Ignorancia se desarrolla el aspecto acumulativo de manas y la habilidad de adquirir y acumular conocimiento e información. Por ejemplo, un hombre adquiere conocimiento, estudia y establece vibraciones que debe aplicar inteligentemente. Así se pone de manifiesto el aspecto adquisitivo de dicho principio. En el Aula del Aprendizaje se desarrolla el aspecto discriminativo, y el hombre aprende no sólo a elegir, sino también a rechazar, y comienza a fusionar inteligentemente los dos polos. En el <pin lang="en">340</pin> Aula de la Sabiduría también rechaza y fusiona perfectamente los dos polos, produciendo así ese algo objetivo que llamamos luz. Se manifiesta el aspecto iluminador de manas. El hombre se convierte en un <pin lang="es">293</pin> creador inteligente, y cuando haya pasado las cuatro iniciaciones mayores.
+
+1. Habrá desarrollado a la perfección el aspecto Brahma, que, como ya se indicó, actúa principalmente en los tres mundos. Es el aspecto activo inteligente.
+2. Habrá alcanzado el grado de desarrollo donde el Hombre celestial, el divino Manasaputra, comenzó este círculo de manifestación que llamamos sistema solar.
+3. Habrá transmutado manas en sabiduría o amor.
+4. Habrá sintetizado los Rayos de Actividad o Inteligencia, y estará comenzando a fusionar dichas síntesis con la superior, amor-sabiduría.
+
+Resumiendo todo en palabras de fuego: “El fuego ha resplandecido perfectamente, y la actividad vibratoria del hombre se ha sintonizado hasta sincronizarse con la del Hombre celestial, permitiéndole actuar conscientemente, o estar vitalmente activo en el plano búdico.”
+
+El fuego de la mente se ha fusionado con el de la materia, estimulándola en tal medida que ha liberado al ente, el hombre, de los tres mundos y, esotéricamente, ha “oscurecido” su manifestación en los tres planos, de la misma manera que la manifestación de un Logos se “apaga” (en sentido esotérico) cuando los fuegos arden suficientemente. Respecto al fuego del Espíritu o fuego eléctrico puro, éste se sintetiza finalmente con los otros dos y hace que la vida pase a otro plano, desde el punto de vista cósmico. <pin lang="en">341</pin>
+
+#### UN HOMBRE
+
+1. La fusión del fuego de la materia con el de la mente libera al hombre de los tres mundos.
+2. La fusión del fuego eléctrico con los otros dos fuegos lo libera de los cinco planos inferiores, y le permite actuar conscientemente en el plano físico cósmico.
+
+#### UN HOMBRE CELESTIAL
+
+1. La fusión del fuego de la materia con el fuego de la mente lo libera de los tres planos de Su manifestación.
+2. La fusión del fuego eléctrico en Su caso, con los otros dos, le permite salir del “círculo no se pasa” planetario y actuar conscientemente en el plano astral cósmico.
+
+#### UN LOGOS SOLAR
+
+1. La fusión del fuego de la materia con el de la mente libera al Logos solar del “circulo no se pasa” solar, y le otorga libertad para actuar en los planos físico cósmico y astral y en los subplanos inferiores de los planos mental cósmico.
+2. La fusión del fuego eléctrico con los otros dos le permite actuar, conscientemente, en Su cuerpo causal y llevar a cabo el mismo trabajo que el hombre realiza en los tres mundos.
 
 
 [^1]: "Manas constituye la individualidad o el Ego espiritual, en el aspecto de la Tríada superior, y la personalidad o ego kámico, en el aspecto cuaternario inferior. Manas representa el eje de la estructura humana, o el centro en que giran la parte espiritual y material del hombre.
@@ -287,3 +471,11 @@ Aplicando la analogía en los planos superiores, el plano físico solar puede ex
      "Según la tradición existe cierto centro de fuerza en la cabeza; quizás sea la "glándula pineal", que algunos filósofos occidentales suponen que es la morada del alma; un centro que representa, por así decirlo, el portal entre el hombre natural y el espiritual. Constituye el asiento de esa conciencia más perfeccionada e inteligente que se halla detrás de la conciencia externa, localizada en la parte delantera de la cabeza, y "detrás de la mente" percibiendo cosas espirituales e intentando grabar la visión espiritual en la conciencia externa, es el hombre espiritual que trata de guiar al hombre natural, para que se ocupe de las cosas relacionadas con su inmortalidad. Las palabras del Upanishad lo sugieren: "Allí, donde se divide el cabello y se extiende hacia la cima de la cabeza"; las cuales parecerán una fantasía, hasta llegar a comprenderlas"
 
      "Se dice que, cuando se ha despertado plenamente este poder, trae la visión de los grandes Compañeros del hombre espiritual, quienes ya han realizado, y llegado a la rivera más lejana del mar de la muerte y del renacimiento. Quizás el Maestro se refirió a esta visión divina cuando dijo: "Te aconsejo que me compres a mí el bálsamo para los ojos, a fin de que puedas ver". Aforismos yogas de Patanjali, Libro III, 32, por Johnston.
+
+[^5]: Los Pares de Opuestos. Ciencia de la Organización Social, por Bhagavan Das.
+
+[^6]: El Divino Hermafrodita -ese gran Ser, planetario o solar, que manifiesta en Sí Mismo los pares de opuestos.
+
+[^7]: Alma Grupal es un conjunto de Tríadas permanentes que se halla en una triple envoltura de esencia monádica. Las Tríadas permanentes son el reflejo , en los planos inferiores, de las Tríadas espirituales que se hallan en los planos superiores. Esta descripción es exacta en lo que respecta a todas las almas grupales que actúan en el plano físico, pero no da una idea de la extrema complejidad del tema." Estudio sobre la Conciencia, por Annie Besant.
+
+[^8]: D. S. I, 136; II, 158; III, 112-114.
