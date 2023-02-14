@@ -179,6 +179,74 @@ a. **El hombre y el Logos planetario**. Nada tenemos que hacer con la evolución
 
 Si se tienen en cuenta estos hechos, se observará que la interacción y la complejidad son de vastas proporciones y el hombre sólo puede aceptarlas, dejando la explicación para cuando su conciencia tenga mayor alcance.
 
+Tercero, uno de los misterios revelados en la iniciación es del centro logoico que nuestro esquema representa y el tipo o fuego eléctrico que fluye a través de él. Los “Siete Hermanos, los siete tipos de fuerza fohática, se expresan por medio de siete centros, y Aquel que anima nuestro esquema es revelado en la tercera iniciación. Gracias al conocimiento de la naturaleza y calidad de la fuerza eléctrica de nuestro centro y a la comprensión del lugar que nuestro centro ocupa en el cuerpo logoico, la Jerarquía logra los objetivos de la evolución. Se evidenciará que Hombre celestial, que representa al centro kundalínico por ejemplo, trabajará en forma diferente y tendrá un propósito y método distintos al de Su Hermano que representa al centro cardíaco en el cuerpo logoico, o al del Hombre celestial que personifica el plexo solar logoico. De esto se deduce que
+
+1. el tipo de fuerza eléctrica,
+2. la acción vibratoria,
+3. el propósito,
+4. el desarrollo evolutivo,
+5. la doble y triangular interacción
+
+de los Hombres celestiales diferirán, así como también las evoluciones que forman las células de Sus cuerpos. Poco se ha revelado <pin lang="es">307</pin> acerca de los tipos de evolución que existen en otros esquemas de nuestro sistema. Basta decir que en algún <pin lang="en">359</pin> globo de cada esquema y en todos los esquemas existen seres humanos o entes autoconscientes. Las condiciones de vida, el medio ambiente y la forma son distintas, pero la Jerarquía humana actúa en todos los esquemas.
+
+Se ha de recordar también que, así como los siete Hombres Celestiales se encuentran en el cuerpo logoico, y están bajo la influencia de los siete Logos solares (usando la palabra “influencia” en sentido astrológico), también en un esquema planetario con sus siete globos, cada uno está, astrológicamente, bajo la influencia de los siete Hombres celestiales. Un esquema no es más que la réplica de un sistema. Cada uno de los Hombres celestiales emite su radiación o influencia y estimula, de igual manera, a otro centro o globo. En otras palabras, Su magnetismo es sentido por Sus Hermanos, en grado mayor o menor, según la tarea emprendida en determinado tiempo. Actualmente, en los Hombres celestiales que presentan centros de distintos grados de estimulación y no están equilibradamente desarrollados ni síquicamente unificados, esta interacción magnética es muy poco comprendida, y la afluencia psíquica de un esquema a otro también es muy poco empleada y comprendida. A medida que transcurra el tiempo esta interacción de fuerzas se hará más evidente y se utilizará conscientemente. Cuando los hombres conozcan, por ejemplo,
+
+1. la cualidad de la fuerza que fluye por su esquema particular;
+2. el propósito y el nombre del centro dentro del cual se encuentran
+3. el centro u Hombre celestial con quien el Logos de su esquema está vinculado;
+4. cuales son los dos esquemas, que con el propio, forman un triángulo de fuerza logoica en determinada etapa de desarrollo evolutivo
+5. el secreto de los ciclos o los períodos de estímulo u oscuración, entonces el cuerpo logoico empezará a lograr su propósito, <pin lang="en">360</pin> el Logos de nuestro sistema comenzará a mezclar, fusionar y coordinar todos Sus vehículos, fluirá la fuerza por todos los centros, sin entorpecimientos, la gloria resplandecerá, y cada célula de todo cuerpo: logoico, planetario, dévico y humano, brillará con resplandor perfecto, vibrará con ajustada exactitud y recibirá una iniciación cósmica mayor.
+
+b. **El Logos del esquema terrestre**. Podemos considerar al Hombre celestial o Logos planetario del esquema terrestre, de diversas maneras. Siguiendo nuestra costumbre clasificaremos <pin lang="es">308</pin> sencillamente las afirmaciones hechas respecto al mismo, y al ser consideradas extensamente por el estudiante individual deberán servir para que la REALIDAD de la Personalidad esencial de esa gran Entidad, el trabajo que trata de realizar, la relación que tiene y la Jerarquía humana, sean una realidad mayor. Al estudiar este tema debemos tener presente que no es posible revelar al público detalles respecto a Su Identidad específica, a Su número y al alcance de Su desenvolvimiento consciente. Tales misterios, como ya se ha indicado, se reservan para ser revelados a quienes se han comprometido a guardar silencio. Pero puede transmitirse una idea general antes de que tratemos específicamente de la cadena y de la ronda actuales.
+
+Aquí cabría preguntar, ¿Qué utilidad y finalidad tiene esta información en esta hora de necesidad mundial? Aparte de que la transmisión cíclica de la verdad se hace bajo la ley, y no puede ser negada, se sugiere que cuando un gran número de hombres conciban el propósito de las manifestaciones específicas, cuando comprendan que todas las formas son modos de expresión de ciertas Entidades o Seres que las ocupan durante ciclos de duración determinada, con el objeto de obtener el propósito de que cada vida, grande o pequeña, sirve sus propios fines y a la vez contribuye a los fines más amplios del Ser de Cuyo cuerpo es parte integrante, mucho se habrá logrado. Los detalles del plan no pueden ser revelados. <pin lang="en">361</pin> Se puede sugerir el delineamiento general, solar, planetario y jerárquico y, gracias a esta sugerencia, poner en orden los pensamientos de los hombres al contemplar el aparente caos actual. No olvidemos que cuando se establece el orden y se logra también un pensamiento unido en el plano mental, entonces se manifiesta oportunamente el orden en el plano físico.
+
+El Logos planetario de este esquema es uno de los cuatro Logos o Señores de los Rayos menores; por consiguiente, se ocupa en desarrollar especialmente uno de los atributos de manas. Cada uno de los cuatro Rayos menores, como ya sabemos, con el tiempo se sintetiza en, o es absorbido por, ese Rayo que se halla representado en nuestra tierra por el Mahachoan. Es el Señor del tercer Rayo o Aspecto mayor, y sintetiza a los cuatro. Estos cuatro Rayos, con su Rayo sintetizador. constituyen los cincos rayos de Manas o Mente. Podemos considerarlos como:
+
+1. El quíntuple Aspecto de Brahma.
+2. Los cinco Rayos de primordial importancia en el primer sistema solar, y los cinco Hombres celestiales individualizados, llamados los Hijos nacidos de la Mente de Brahma. Mediante la individualización de los cuatro, en dicho sistema, se produjo la individualización de la gran Entidad <pin lang="es">309</pin> cósmica denominada Brahma. Al individualizarse, contuvo a los cuatro en su cuerpo.
+3. Están representados en nuestra tierra por los cinco Kumaras, quienes, en obediencia a la Ley, tomaron forma humana; H. B. P. [^6] lo indica en varios párrafos de La Doctrina Secreta.
+
+Este esquema está considerado como el cuarto y más importante del sistema, durante este ciclo particular, por las siguientes razones
+
+Considerados nuestro sistema solar como de cuarto <pin lang="en">362</pin> orden y nuestro esquema el cuarto, proporcionan, en consecuencia, un momento de oportunidad especial a nuestro Logos planetario en virtud del alineamiento producido. Ello da por resultado que la atención del fuego del kundalini logoico se dirija hacia este centro, nuestro esquema, con los resultados consiguientes en proceso de desarrollo.
+
+La cadena terrestre, cuarta en el orden dentro del esquema, la que más nos concierne y temporariamente es de mayor importancia vital para el Logos planetario, produce así otro alineamiento de gran importancia. Esto ofrece especial oportunidad, y permite la entrada de fuerza o vitalidad eléctrica proveniente de fuerza del sistema o del Cosmos mismo. Este sobre estímulo da por resultado los aparentes cataclismos y la tremenda destrucción de formas; siendo simplemente la necesaria consecuencia de la vitalización de la vida en la forma y el quebrantamiento de la forma limitadora, incapaz de soportar la acción cósmica.
+
+Así también el globo que dentro de la cadena recibe, en el presente, polarización planetaria, o que en la actualidad personifica en sentido especial la vida del Logos planetario, es la Tierra, cuarta en orden. Esto produce otro alineamiento más.
+
+Agréguese a los hechos mencionados, el conocimiento aceptado de que ésta es la cuarta ronda y tendremos un quinto alineamiento, lo cual es de suprema importancia para todos nosotros; no obstante, tuvo aún mayor significación y fuerza en la cuarta raza raíz y produjo ese estupendo acontecimiento síquico, abrir la puerta de la Iniciación para la Jerarquía humana.
+
+Hechos tan importantes merecen la cuidadosa atención y consideración de todos los estudiantes ocultistas. Contienen la clave mediante la cual podrá obtenerse alguna comprensión respecto a manas y a la evolución planetaria. ¿Qué tenemos, por lo tanto, en este alineamiento especial cíclico? <pin lang="en">363</pin>
+
+1. Un sistema solar de cuarto orden.
+2. El cuarto esquema del sistema. <pin lang="es">310</pin>
+3. La cuarta cadena del esquema.
+4. El cuarto globo de la cadena.
+5. La cuarta ronda. [^7]
+
+Todos ellos están activos en el mismo ciclo y, por consiguiente, traen un alineamiento simultáneo, cuyo resultado será abrir un canal directo desde el corazón de nuestro esquema, a través de cada “círculo no se pasa”, hasta la analogía cósmica, que se halla fuera de la esfera solar.
+
+Al conocimiento anterior debemos agregar otro hecho más, y es que estamos considerando la evolución de la cuarta Jerarquía creadora, y será evidente, aún para el estudiante más superficial que en dichos conceptos se oculta la clave, no sólo respecto al enigma del hombre, sino también de toda evolución cíclica en la que toma parte.
+
+La cuarta Jerarquía creadora es, esencialmente, la Jerarquía de manas. Éste no es un juego de palabras, sino una afirmación de profundo significado oculto. Se ha hecho la afirmación, con toda veracidad, de que cinco de las doce Jerarquías han desaparecido y quedan siete. De estas siete, nuestra Jerarquía humana es la cuarta; lo cual hace que ésta sea la novena dentro de las doce. A este respecto es bueno vincular las afirmaciones hechas en el sentido de que los cinco Kumaras u Hombres celestiales, que definidamente personifican el principio manásico (o los cinco rayos presididos por la analogía del Mahachoan en el sistema), desarrollaron <pin lang="en">364</pin> manas en un sistema anterior; desapareciendo en la oleada de influencia manásica concerniente a Su propia naturaleza.
+
+Se ha de recordar también que nueve es el número de la Iniciación o de las Iniciaciones mayores de Manas, donde el hombre llega a ser un Nueve perfecto o el número de su Jerarquía. Esto ocurre desde el punto de vista de los tres sistemas, aunque el cuatro podría ser su número actual en el sistema.
+
+Al ocuparnos de las diversas afirmaciones respecto a nuestro esquema y su Regente, hemos visto que en este ciclo particular, <pin lang="es">311</pin> Su encarnación, es de gran importancia no sólo para Él sino también para todo el sistema. El Logos planetario de este esquema se ocupa principalmente de un grupo particular de entes o esas Mónadas que vibran de acuerdo a Su nota, están coloreadas por Su mismo color, responden al mismo número y son conocidas esotéricamente por Su mismo nombre. Es necesario aquí hacer resaltar un punto: todas las Mónadas, en distintos períodos, son influenciadas por los diferentes Logos planetarios y, en determinado momento, todas pasarán por cada esquema. Esto no significa que todos los entes humanos pasen un periodo de encarnación en cada esquema, sino que en algún globo de cada esquema habrá entes humanos, ya sea antes de encarnar físicamente, entre distintos ciclos egoicos y (cosa totalmente distinta a los períodos existentes entre las vidas físicas) diferentes rondas o manvantaras o entre diversas razas raíces y subrazas. Según se expresa en varios libros ocultistas, la mayoría de la actual humanidad avanzada se individualizó en la cadena lunar, y sólo tomó cuerpo físico en la cadena terrestre durante la cuarta raza raíz, evadiendo así la encarnación durante las tres primeras rondas y las dos primeras razas de la cuarta ronda. Mientras tanto quedaron bajo la influencia planetaria de un Logos de otro esquema, y durante un inmenso período se ocuparon de vivificar la llama manásica y de desarrollar <pin lang="en">365</pin> los atributos de manas; la raza raíz atlante los encontró adecuadamente equipados para hacer frente a las condiciones de la vida.
+
+Esta participación en la vida e influencia de los diferentes esquemas se efectúa de cuatro maneras distintas:
+
+Primero, pasando el intervalo que media entre ciclo egoicos de encarnación física, en un determinado globo de su esquema que numéricamente coincide con el otro esquema particular cuya influencia se desea, ya sea por decisión deliberada o necesidad kármica. Cada globo de una cadena está ocultamente vinculado con la cadena de su mismo número y con el esquema de número similar. Por ejemplo: globo 2, cadena 2 y esquema 2, durante la ronda 2, están vinculados y vitalizados especialmente, y son el punto focal de atención peculiar de parte del Logos de ese esquema. Similarmente (también como ilustración) el globo 2, la cadena 2, durante la ronda 2 de cualquier esquema, tal como el quinto, por ejemplo, están alineados o conectados esotéricamente con el segundo esquema. Esto ofrece la oportunidad a los entes del cuerpo de cualquier Logos. de ponerse bajo la influencia de otros Logos y dentro de su radiación vibratoria.
+
+Segundo, mediante la transferencia directa a algún globo de otro esquema de los entes encarnados de cualquier esquema en el que estarán sometidos (durante un intervalo) al estímulo y a la <pin lang="es">312</pin> vibración peculiares de ese esquema. Ambos métodos son los más comunes. Esta transferencia parecerá misteriosamente imposible, salvo que el estudiante procure darse cuenta que se trata de la transferencia de las vidas individualizadas y no de la transferencia de las formas que ellas ocupan. Toda la cuestión es síquica, y se funda en la unidad del Ánima Mundi. Esto sólo es posible durante esos períodos en que dos Hombres celestiales se unen bajo la Ley de Atracción, entrando así cada uno en el radio magnético del otro.
+
+Tercero, cuando el Iniciado pasa conscientemente <pin lang="en">366</pin> la iniciación, de un esquema a otro. Esto sucede frecuentemente; distintos escritores y pensadores lo han insinuado, aunque algunos han confundido los globos de su propia cadena con el esquema del mismo número, o han confundido otra cadena del esquema, por otro esquema.
+
+Cuarto, aplicando el método de transferir la conciencia y poner los entes bajo el poder focal de un Señor de Rayo, lo cual se puede lograr mediante el conocimiento de ciertos mántram y fórmulas. No podemos extendernos más sobre estos mántram porque son esotéricos y su empleo implica muchos peligros para quien no es iniciado.
+
+El Logos planetario de este período es denominado “Primer Kumara”, el Único Iniciador, y se afirma que vino de Venus a este planeta; Venus es el “primario de la Tierra”. Es necesario dar alguna explicación sobre esto, aunque sólo es permitido hacer muy pocas insinuaciones acerca de la verdad. Es una de las cosas que guarda mayor misterio acerca del desarrollo de nuestro esquema y oculta el enigma de este ciclo mundial. No es fácil expresar la verdad, porque las palabras ocultan y velan.
+
 
 
 
@@ -197,3 +265,19 @@ Si se tienen en cuenta estos hechos, se observará que la interacción y la comp
 [^4]: Véase D. S. II, 342, 353-355.
 
 [^5]: Un indicio sobre este triángulo de fuerza fue dado en [Cartas sobre Meditación Ocultista, Carta IV, 26-6-1920](/cartas-meditacion-ocultista/carta4#70-26-de-junio-de-1920), donde se habla del hombre y sus centros.
+
+[^6]: D. S. II, 158.
+
+[^7]: Compárense también las siguientes analogías:
+
+     1. La sagrada tetraktys ...... El logos manifestado
+     2. La cuarta jerarquia humana .... La humana
+     3. El cuarto principio ..... La mente inferior
+     4. La cuarta raza ..... Kamamanas
+     5. El cuarto elemento ..... Agua D. S. I, 119; II,281
+     6. Las cuatro verdades ..... D. S. I, 98
+     7. Las cuatro proposiciones ..... D. S. I, 128
+     8. Las cuatro iniciaciones ..... D. S. I, 230
+     9. El cuarto plano .....  El budico, cuarto éter cósmico
+     10. El cuarto sub plano fisico ... El cuarto éter
+     11. La cuarta ronda ..... La presente
