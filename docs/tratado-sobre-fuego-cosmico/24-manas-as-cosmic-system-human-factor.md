@@ -247,6 +247,78 @@ Cuarto, aplicando el método de transferir la conciencia y poner los entes bajo 
 
 El Logos planetario de este período es denominado “Primer Kumara”, el Único Iniciador, y se afirma que vino de Venus a este planeta; Venus es el “primario de la Tierra”. Es necesario dar alguna explicación sobre esto, aunque sólo es permitido hacer muy pocas insinuaciones acerca de la verdad. Es una de las cosas que guarda mayor misterio acerca del desarrollo de nuestro esquema y oculta el enigma de este ciclo mundial. No es fácil expresar la verdad, porque las palabras ocultan y velan.
 
+Quizás podría darse un indicio si decimos que existe una analogía entre la entrada en pleno auge del Ego y el dominio que ejerce durante ciertos períodos en la vida del ser humano. Se dice que a los siete años y también en la adolescencia el Ego “se afirma”, a los veintiún años ese aferramiento es cada vez mayor. Análogamente, a medida que pasan las vidas, el Ego (en relación con un ser humano) se aferra a sus vehículos y los doblega a su propósito en forma más eficaz y plena. El mismo procedimiento puede observarse en relación con el Hombre celestial y Su cuerpo de manifestación, un esquema. Se ha de recordar que cada esquema tiene siete cadenas, cada cadena siete globos, totalizando cuarenta y nueve globos; <pin lang="en">367</pin> que cada globo a su vez es ocupado por la vida del Logos durante lo que llamamos siete rondas, textualmente, trescientas cuarenta y tres encarnaciones o nuevos impulsos para manifestarse. Hemos de agregar a estas manifestaciones mayores otras menores, como las llamadas razas raíces, subrazas y ramificaciones de raza, <pin lang="es">313</pin> y nos hallamos en una complejidad capaz de confundir al estudiante medio. La rueda planetaria de la vida hace girar, en su escala menor, la rueda de la vida del pequeño peregrino denominado hombre a medida que gira, impele la vida del Logos planetario evolucionante a nuevas formas y experiencias, hasta que el fuego del Espíritu quema todos los fuegos menores.
+
+Como se indicó anteriormente, cada Hombre celestial está vinculado con uno de Sus Hermanos bajo la Ley de Atracción Mutua, la cual todavía se manifiesta en forma muy degradada en el plano físico, por medio de la vida del ente humano aprisionada en la forma física. Síquicamente, el vínculo es de naturaleza distinta; dicho vínculo existe entre el Logos planetario del esquema denominado Venus y el Logos de nuestro esquema. Esta interacción síquica tiene su flujo y reflujo cíclicos, así como fluye y refluye toda la fuerza de la vida. En la época lemuriana hubo un periodo de íntima interacción que produjo, en el planeta físico del Logos de nuestro esquema, una encarnación, el Guía de la Jerarquía, el único Iniciador. Esto no hubiera ocurrido si el Logos planetario del esquema de Venus no hubiese estado en situación de vincularse íntimamente con el nuestro.
+
+c. Venus y la cadena terrestre. La cuestión de la llegada de los Señores de la Llama al planeta Tierra está profundamente involucrada, como ya se dijo, en la relación existente entre el Hombre celestial del esquema terrestre y el Señor del esquema venusiano. Mientras no se permita publicar información más detallada acerca de estas dos grandes Entidades, poco puede hacerse, aparte de indicar algunas probabilidades y señalar ciertos factores que los estudiantes deberán recordar. Se ha afirmado <pin lang="en">368</pin> que (por encontrarse el esquema venusiano en su quinta ronda) la humanidad de dicho planeta se halla más avanzada que la nuestra y que puede ayudarnos, como ya lo hizo en la época lemuriana. Éste es un ejemplo de una verdad expuesta parcialmente y mal interpretada. El esquema venusiano se encuentra (según dice La Doctrina Secreta [^8]) en su quinta y última ronda; en ciertos aspectos su humanidad se halla mucho más avanzada que la nuestra, pero el importante acontecimiento ocurrido durante la tercera raza raíz no se debió a que ciertos seres humanos estaban más evolucionados, sino a las causas siguientes:
+
+Primero, el Esquema venusiano, considerado como centro logoico, es mucho más activo que el nuestro, por consiguiente, su magnetismo irradia en forma mucho más amplia. Su irradiación es de tal magnitud que en el plano búdico atrajo a su radio <pin lang="es">314</pin> magnético a la cadena de nuestro esquema compuesta predominantemente de materia búdica. Luego, por medio de esa cadena magnetizó el globo correspondiente de nuestra cadena, lo cual dio por resultado un vitalización específica del planeta denso mismo.
+
+Segundo, como ocurre en el caso del hombre, ciertos triángulos de fuerza se encuentran en diferentes etapas de evolución, o (para expresarlo en otras palabras) distintos centros se vinculan geométricamente, como por ejemplo
+
+1. la base de la columna vertebral
+2. el plexo solar
+3. el corazón
+
+o sino
+
+1. el plexo solar
+2. el corazón
+3. la garganta
+
+de la misma manera en el Hombre celestial o en el Logos solar ocurre un hecho similar. Tal acontecimiento tuvo lugar en esta ronda en conexión con el centro personificado de nuestro Logos <pin lang="en">369</pin> planetario. Este centro se vinculó geométricamente con otros dos centros de los cuales Venus fue uno, y el Kundalini logoico –circulando con enorme fuerza por este triángulo- produjo la intensificación de la vibración de la familia humana, dando por resultado la individualización. Enumeraremos ahora los esquemas, como fundamento de nuestro trabajo futuro:
+
+Los siete planetas, centros o esquemas
+
+1. Vulcano (el Sol, considerado exotéricamente)
+2. Venus
+3. Marte
+4. Tierra
+5. Mercurio
+6. Júpiter
+7. Saturno
+
+Los tres planetas sintetizadores
+
+1. Urano
+2. Neptuno
+3. Saturno
+
+El único resolvente
+
+EL SOL
+
+Quisiera advertirles que no se ha de atribuir importancia alguna al orden consecutivo en que se han enumerado estos siete esquemas, ni a la secuencia de su desarrollo o importancia, ni tampoco <pin lang="es">315</pin> al lugar que ocupan entre sí con respecto al planeta central, el Sol. Sólo dos se han de considerar como numéricamente exactos en esta etapa y en esta ronda: por ejemplo, nuestra Tierra, el cuarto esquema, y Venus, el segundo. Venus indistintamente es el esquema segundo o el sexto, según se cuenten en forma mística u ocultista. A la inversa, Júpiter sería segundo o sexto, y se ha de tener en cuenta que: <pin lang="en">370</pin>
+
+1. Los planetas Venus y Júpiter están muy estrechamente conectados con la Tierra y forman, oportunamente, un triángulo esotérico.
+2. Saturno es el esquema que sintetiza los cuatro planetas que personifican única y exclusivamente a manas o es el principal resolvente de los cuatro menores y, con el tiempo, de los siete.
+
+![planetas](../assets/planetas.gif)
+
+a. Mercurio, la estrella de la intuición o manas trasmutado, en esta etapa se lo considera el quinto esquema.
+
+Por lo tanto, los Hombres celestiales de Venus y Júpiter están vinculados magnéticamente con el Hombre celestial de nuestro esquema. La relación con el Logos de Júpiter y Su influencia no serán comprendidas ni sentidas hasta que la sexta <pin lang="en">371</pin> ronda esté en <pin lang="es">316</pin> todo su apogeo; aunque durante la sexta raza raíz su vibración será conocida y sentida; a mitad de la quinta ronda, el Logos de Mercurio con el Logos del esquema venusiano y el de nuestra Tierra formarán un triángulo temporario de fuerza. Tenemos aquí una información que hasta ahora sólo ha sido insinuada pero, en esta quinta subraza y en esta cuarta ronda, el mundo ya está preparado para recibirla, pues en ella se encuentra la solución del misterio de esta ronda.
+
+Tercero, la afirmación de que el gran Kumara o el Único Iniciador vino a este planeta desde Venus, es verídica, debido a que expresa el hecho de su llegada a este planeta denso (el cuarto) durante la cuarta cadena, desde esa cadena de nuestro esquema (denominada “venusiana”), la cual es la segunda. Vino por medio del segundo globo de nuestra cadena; Su vibración fue apenas perceptible (esotéricamente percibida) en la segunda ronda; pero únicamente en la tercera raza raíz de la cuarta ronda las condiciones permitieron que encarnara físicamente y que viniera como el Avatar. Con toda reverencia podría decirse que las primeras tres rondas y las dos razas raíces subsiguientes de esta cadena corresponden al periodo prenatal; Su llegada a esta cuarta ronda, con el consiguiente despertar de manas en los entes humanos, tiene su analogía en el despertar del principio vida en el cuarto mes de la criatura nonata.
+
+La analogía es exacta, pues el Hombre celestial llega a la plena madurez al final de la séptima ronda, pero necesita el proceso final de formación y perfeccionamiento, alcanzado durante los períodos finales
+
+1. de sintetización en los tres períodos mayores y
+2. de resolución en el último,
+
+constituyendo nuevamente (dígase con reverencia) los nueve ciclos que abarca la gestación de un Hombre celestial y preceden a Su nacimiento en mundos aún más elevados. Tenemos aquí mucho tema para reflexionar, siendo de suma importancia <pin lang="en">372</pin> para el estudioso investigador. Conjuntamente con estas sugerencias hemos de recordar que estamos hablando únicamente del Logos de nuestro propio esquema y debemos diferenciar cuidadosamente los ciclos de otros Logos -algo aún imposible para nosotros. A medida que se estudie y reflexione esto, la maravilla y la belleza del plan se pondrán de manifiesto.
+
+<div style={{width: "100%", backgroundColor: "white"}}>
+ <img src={require("../assets/esquemas-planetarios.gif").default} style={{width:"100%"}}/>
+</div>
+
+También nos dará una idea de lo que será el Avatar final. Muchas encarnaciones temporarias anteceden a la encarnación culminante, donde el Hombre celestial, con toda la belleza que le otorga el completamiento de Sus siete ciclos y antes de fusionarse con Su meta sintetizadora, se manifestará como personificación de <pin lang="es">317</pin> <pin lang="es">318</pin> esa cualidad perfeccionada o aspecto logoico, que Él principalmente representa. Como centro en el cuerpo del Logos será vitalizado plenamente y el kundalini logoico habrá estimulado y llevado a la perfección el Loto de Su sistema. Durante un breve período resplandecerá radiante como el Sol en Su gloria; luego el fuego kundalínico ascenderá en espirales progresivas y gradualmente, se enfocará en el correspondiente centro coronario logoico, el triángulo superior o los tres esquemas mayores. Podemos ilustrarlos por medio del ser humano, el microcosmos: el hombre alcanza el período de elevado desenvolvimiento donde se perfeccionan y vitalizan sus centros cardíaco y laríngeo; éstos se convierten en radiantes remolinos de fuego de acción cuatridimensional, aliados entre sí y con algún otro centro; llegan a ser también objeto de atención para el kundalini humano, este es un periodo de gran actividad y de utilidad magnética, al cual sigue otro, donde los tres centros de la cabeza sintetizan sus siete analogías menores, y la fuerza kundalínica se transfiere allí. Como es arriba, así es abajo.
+
+He mencionado especialmente estos dos centros del microcosmos porque están estrechamente relacionados (en escala más amplia) con esos ciclos particulares que nuestro <pin lang="en">373</pin> <pin lang="en">374</pin> Logos planetario está pasando, y porque representan los aspectos tercero y segundo.
+
+
+
 
 
 
@@ -281,3 +353,5 @@ El Logos planetario de este período es denominado “Primer Kumara”, el Únic
      9. El cuarto plano .....  El budico, cuarto éter cósmico
      10. El cuarto sub plano fisico ... El cuarto éter
      11. La cuarta ronda ..... La presente
+
+[^8]: D. S. I, 196; III, 44-47; IV, 158.
