@@ -317,6 +317,69 @@ También nos dará una idea de lo que será el Avatar final. Muchas encarnacione
 
 He mencionado especialmente estos dos centros del microcosmos porque están estrechamente relacionados (en escala más amplia) con esos ciclos particulares que nuestro <pin lang="en">373</pin> <pin lang="en">374</pin> Logos planetario está pasando, y porque representan los aspectos tercero y segundo.
 
+Hemos de tener presente que el estimulo de los centros es de tres tipos, y su diferenciación ha de establecerse con toda claridad.
+
+Primeramente, la vitalización de los centros logoicos o la afluencia del kundalini logoico a través de los siete esquemas, durante grandiosos ciclos.
+
+Luego, la vitalización de los centros planetarios o la afluencia del kundalini planetario a través de las siete cadenas de un esquema.
+
+Finalmente, la vitalización de los centros de un Logos planetario, durante una determinada encarnación mayor, o la afluencia del kundalini a través de los siete globos de una cadena.
+
+Aquí he de declarar que:
+
+Encarnación mayor es aquella en que el Logos planetario recibe una iniciación. Puede pasar y pasa por muchas encarnaciones en las que no recibe iniciación alguna. Resulta interesante observar que le es otorgada en alguna encarnación donde se posesiona de un vehículo de materia etérica, como sucede en la actualidad.
+
+El Logos de nuestro esquema se está preparando para recibir la iniciación; ello explica las terribles pruebas y experiencias incidentales, en la vida de nuestro planeta, durante este ciclo.
+
+Sanat Kumara, el Logos de nuestro esquema recibirá una <pin lang="es">319</pin> iniciación mayor en la mitad de la quinta ronda, pero se prepara ahora para recibir una menor.
+
+El Logos de nuestro esquema se halla en encarnación física (en un cuerpo de materia etérica) desde la mitad de la raza raíz Lemuriana, y permanecerá con nosotros hasta lo que ha sido llamado el “día del juicio' en la ronda siguiente. En este punto de Su carrera, habrá logrado vitalizar debidamente el centro particular que ocupa Su atención; habrá “percibido el afán de Su Alma” en relación con los entes de la Jerarquía <pin lang="en">375</pin> humana que componen tal centro; abandonará Su forma actual, dirigiendo Su atención a un centro más elevado, y dará Su fuerza a entes de índole distinta, quienes provienen de otra rama de la Jerarquía humana y responden a la vibración de ese centro.
+
+Será conveniente elucidar un poco más la conexión que existe entre Venus y la Tierra, insinuada en algunos libros ocultistas y considerada brevemente en este tratado. He dicho que la interacción de los dos esquemas se debe, en gran parte, a su polaridad positiva y negativa; he indicado que una relación similar subyace entre las Pléyades y los siete esquemas de nuestro sistema solar, entre Sirio y el sistema mismo. Esto, por consiguiente, pone en estrecha interactividad a tres grandes sistemas:
+
+1. El sistema de Sirio.
+2. El sistema de las Pléyades.
+3. El sistema del cual nuestro Sol es el punto focal,
+
+formando como se habrá observado, un triángulo cósmico. Dentro de nuestro sistema tenemos dichos triángulos, que varían en las distintas etapas; de acuerdo a la relación que existe entre sí, la fuerza diferenciada de los distintos esquemas puede pasar de uno a otro, y de esta manera las unidades de vida que pertenecen a distintos rayos o corrientes de fuerza se entremezclan momentáneamente. En dichos triángulos (cósmico, del sistema, planetario y humano) dos puntos del triángulo representan una polaridad diferente y el tercero, el punto de equilibrio, de síntesis o de fusión. Esto se ha de tener en cuenta al estudiar los centros macro y microcósmicos, porque explica la diversidad en la manifestación, en las formas y en la cualidad.
+
+También puede indicarse aquí una analogía, que <pin lang="en">376</pin> podría servir para iluminar a quienes tengan ojos para ver:
+
+El esquema venusiano, por hallarse en la quinta ronda, desarrolló y coordinó el principio manas, sintetizado en los cuatro aspectos manásicos menores, y se proporcionó al aspecto búdico un instrumento para expresarse por medio del quinto aspecto perfeccionado. Nuestro Hombre celestial, en la quinta ronda, habrá <pin lang="es">320</pin> alcanzado un punto paralelo de evolución, y el quinto principio, como ya se ha dicho, no será objeto de Su atención en lo que atañe a los entes humanos.
+
+Cinco etapas de actividad marcan el desarrollo y utilización del principio mente; tres etapas son de adquisición y dos de utilización de lo adquirido. Este cálculo es muy complicado y sólo puede hacerlo un iniciado, porque implica la capacidad de estudiar los ciclos del sistema solar anterior, pero lógicamente (a juzgar por el microcosmos del planeta Tierra) esto era de suponerse. El hombre desarrolló manas en esta ronda durante la tercera, cuarta y quinta razas raíces, y lo utiliza para desarrollar la intuición y la conciencia superior durante las sexta y séptima. En el transcurso de la encarnación de un Logos planetario, en una cadena, durante una ronda, manifiesta a manas en tres de Sus siete centros o globos, utilizándolo para fines específicos en los dos finales. Éste constituye un ciclo menor que aquel en el cual observamos las siete cadenas como Sus siete centros. Estas palabras han sido seleccionadas con cuidado; no digo que “adquiere a manas”, sólo produce lo que le es inherente. Se ha de recordar que, así como los planos de un sistema solar representan propósitos diferentes, vibran en una clave diferente y sirven a sus propios fines específicos, así los globos llenan una función análoga.
+
+1. Globo 1. es donde se produce el origen y la abstracción final y se inicia la manifestación. <pin lang="en">377</pin>
+2. Globo 2. es la primera envoltura con la que el Hombre celestial toma cuerpo.
+3. Globos 3, 4 y 5, por medio de los cuales Él demuestra poseer el principio manásico.
+4. Globos 6 y 7. por medio de los cuales Él manifiesta a budi, mediante formas construidas valiéndose del principio manásico.
+
+Esto mismo puede decirse de una cadena pero en mayor escala. El estudiante avanzado podrá desarrollar una interesante analogía, de naturaleza muy esotérica, respecto a los siete esquemas. Dos de éstos pueden considerarse principalmente arquetípicos, causales o que implican abstracción; tres donde se manifiesta manas y dos donde budi ya se está manifestando manásicamente. De estos dos, Venus es uno; tenemos así los tres y los dos, formando los cinco esquemas de los cinco Kumaras, quienes constituyen Brahma. [^9]
+
+<p><pin lang="es">321</pin> Así como Venus constituye el polo negativo para el esquema terrestre, las siete estrellas de las Pléyades son los polos negativos de nuestros siete esquemas.</p>
+
+Cabria formularse una pregunta muy atinada. Podríamos interrogar sobre el punto de la polarización negativa de Venus y las Pléyades: ¿Por qué se los clasifica como negativos, si son dadores y no receptores, puesto que negativo es, lógicamente, ser receptivo? En efecto, así es, pero el interrogante surge en nuestra mente debido a la falta de información y a la consiguiente incomprensión. Venus habrá tenido mucho que ver con el estímulo que dio por resultado grandes acontecimientos en la Tierra, por medio de la cadena venusiana de nuestro esquema, pero en forma misteriosa nuestro esquema dio más de lo que recibió, aunque lo <pin lang="en">378</pin> dado no fue de la misma naturaleza. El advenimiento de la influencia venusiana a nuestra cadena y a nuestro planeta, y el consiguiente estímulo a ciertos grupos de la cuarta Jerarquía creadora, la humana, produjo un acontecimiento paralelo de magnitud aún mayor en el esquema venusiano, el cual afectó a la sexta Jerarquía, una de las Jerarquías de los Devas, que moran en el esquema de Venus. Este estímulo emanó a través de nuestra sexta cadena (o segunda, según el punto de vista) afectando a la correspondiente cadena en el esquema venusiano. La magnitud de la diferencia podemos verla en el hecho de que en nuestro caso, solamente un globo fue afectado, mientras que la influencia de nuestro esquema sobre el venusiano fue tal, que toda una cadena quedó estimulada. Esto se produjo gracias a la polaridad positiva del Hombre celestial del esquema terrestre.
+
+Por lo tanto, ampliando el concepto, podemos observar el hecho de que nuestros Hombres celestiales son los transmisores, por medio de Sus siete esquemas, para las siete estrellas de las Pléyades. Nuestro sistema solar está polarizado negativamente con respecto al sol Sirio, el cual influye síquicamente sobre todo nuestro sistema por medio de los tres esquemas sintetizadores, Urano, Neptuno y Saturno: este último es el punto focal que transmite manas cósmico a los siete esquemas.
+
+### 4. Manas y la Cadena terrestre.
+
+Cuando abordamos el primer punto -el tema del origen de manas cósmico y manas del sistema- quedó resumido a ciertos aspectos que conciernen a nuestra cadena, y recapitulamos muy brevemente el aspecto esencial de la pregunta. Primero, hemos tratado el tema del manas cósmico en lo que respecta a nuestro Logos y a los Hombres celestiales; luego nos ocupamos, en forma más específica su relación con los Hombres celestiales <pin lang="es">322</pin> individualmente y, por último, lo hemos estudiado en lo que nos concierne más de cerca: <pin lang="en">379</pin> manas y el Hombre celestial de nuestro esquema. Llegado a este punto, hemos considerado el estímulo de manas en nuestra cadena y vimos que, en relación con nuestra Tierra, fue obtenido:
+
+1. Por medio de la cadena venusiana de nuestro esquema.
+2. Como resultado de un estímulo originado en el esquema venusiano.
+3. Debido a que el kundalini logoico había vitalizado uno de los triángulos de fuerza del sistema, del cual (temporariamente) Venus y la Tierra formaban dos puntos.
+4. Esto produjo la individualización de aquellos que forman (particularmente la Jerarquía humana) un centro determinado en el cuerpo del Logos planetario.
+
+a. **La cadena terrestre y las Mónadas encarnantes**. Por lo tanto, hemos llegado a un punto donde podemos entrar definitivamente a considerar (después de la concisa aclaración del origen de manas cósmico y manas del sistema planetario) nuestra cadena terrestre dentro del esquema de la Tierra y comenzar a percibir algo del origen del principio manásico que corresponde al grupo actual de Egos encarnantes, entes de la cuarta Jerarquía creadora. Es necesario que los estudiantes recuerden que únicamente un solo grupo de la cuarta Jerarquía fue afectado por la implantación de manas en la tercera raza raíz y, por lo tanto, los que han encarnado actualmente en el planeta son parte integrante de dos grupos: un grupo recibió el estímulo manásico durante el período mundial y el otro lo recibió durante la cadena anterior. Sus componentes están viniendo a la existencia, huellan el Sendero de Probación y constituyen los entes avanzados de la raza, siendo considerados como notabilidades entre los hombres. Gran parte de la intranquilidad mundial puede atribuirse a la diferencia existente entre estos dos grupos. Dicha diferencia estriba en diversos <pin lang="en">380</pin> factores que, para mayor claridad, podemos clasificarlos de la manera siguiente:
+
+1. Cada grupo forma un centro distinto en el cuerpo del Hombre celestial.
+2. Difieren los métodos empleados en la individualización.
+3. Difieren los grados de vibración de los dos centros.
+4. El Logos planetario recibe en cada cadena una iniciación distinta que afecta a diferentes centros, trayendo a la manifestación diversas entidades menores.
+
+Cuando el estudiante considera estas cosas debe contemplarlas desde diversos puntos de vista -algunos de las cuales constituyen <pin lang="es">323</pin> para nosotros posibles líneas de acercamiento, mientras que otros lo pueden ser presentidos vagamente. La realidad oculta, expresada por el poeta inglés Pope, “de que para estudiar debidamente la humanidad hay que estudiar al hombre”, se halla involucrada en la investigación de estos vastos ciclos.
+
 
 
 
@@ -355,3 +418,5 @@ He mencionado especialmente estos dos centros del microcosmos porque están estr
      11. La cuarta ronda ..... La presente
 
 [^8]: D. S. I, 196; III, 44-47; IV, 158.
+
+[^9]: Se pide a los estudiantes que establezcan una cuidadosa diferencia entre los cinco Hijos de Brahma, nacidos de la Mente, y los cinco Kumaras verdaderos y sus representantes en nuestro planeta Tierra, que se hallan alrededor de Sanat Kumara, de Quien puede afirmarse (entendido esotéricamente) que se representa a Sí Mismo.
