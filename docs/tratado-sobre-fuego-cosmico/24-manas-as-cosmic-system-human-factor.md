@@ -512,6 +512,21 @@ Análogamente puede decirse, con reverencia, del cuerpo del Logos, de un sistema
 
 ## II. LA POSICION DE MANAS
 
+### 1. Manas y el Karma.
+
+Habiendo visto que manas es el propósito inteligente de algún Ser, desarrollándose como activa objetividad, y habiéndonos ocupado de la interrelación que existe entre algunas de estas Entidades, se podrá ahora visualizar, aunque sea superficial y vagamente, la verdadera posición del principio manásico en los tres casos. El misterio de este principio está oculto en dos cosas fundamentales:
+
+El misterio de la disolución de la estrella de seis puntas en la de cinco puntas. [^13] [^14]
+
+<p><pin lang="es">335</pin> El misterio de los Señores del Karma, que constituyen los únicos receptores de los propósitos mentales <pin lang="en">396</pin> de esa ENTIDAD cósmica que abarca a nuestro Logos solar dentro de Su conciencia.</p>
+
+Por lo tanto, una vez estudiado el aspecto esotérico de la astrología y geometría mística y establecido una alianza entre ambas ciencias, se proyectará gran luz sobre el tema del principio inteligente; cuando se comprenda mejor la actuación interna de la Ley de Causa y Efecto (Ley por la cual los Señores Lipikas gobiernan <pin lang="es">336</pin> todas Sus actividades), sólo entonces los hijos de los hombres podrán estudiar beneficiosamente el lugar que ocupa manas en el esquema evolutivo. En la actualidad, únicamente es posible señalar el camino a seguir, antes de <pin lang="en">397</pin> poder aclarar tan abstrusa materia e indicar ciertas líneas de investigación que, si se siguen científicamente y con empeño, podrían dar como recompensa un conocimiento valioso al estudiante. Hasta que la intuición no esté mejor desarrollada en el hombre común, el principio manas constituye por sí mismo una barrera para ser adecuadamente comprendido.
+
+### 2. Manas y el Propósito Kármico.
+
+
+
+
 [^1]: El período de la individualización de un Logos solar tuvo lugar mucho antes y no nos ocuparemos de ello, excepto para recordar que la Ley de Analogía es exacta.
 
 [^2]: La información sobre los "Cetros" ha sido extraída de Iniciación Humana y Solar pág. 131.
@@ -555,3 +570,58 @@ Análogamente puede decirse, con reverencia, del cuerpo del Logos, de un sistema
 [^12]: Formas.
 
     El Veda Atharva, nos instruye acerca de los principios que fundamentan equitativamente los métodos de los procesos del mundo y del átomo -un mundo en miniatura. Pueden ser considerados como procesos del mundo o del átomo, según el criterio y punto de vista de quien expone. Así como todos los mántram de este Veda reflejan la actividad del proceso mundial, también nos revela el conocimiento dentro del conocimiento, la memoria dentro de la memoria, el poder dentro del poder, el mundo dentro del mundo, el hecho dentro del hecho, la acción dentro de la acción, el deber dentro del deber, el pecado dentro del pecado, la individualidad dentro de la individualidad, ascendiendo y descendiento constante e incesantemente desde todo punto del espacio. Los átomos constituyen las moléculas; las moléculas los compuestos; los compuestos las células; las células los tejidos; los tejidos los órganos; los órganos los cuerpos; los cuerpos las comunidades; las comunidades las clases y las razas; las clases y las razas los reinos; los reinos de innumerables grados y variados círculos constituyen un planeta; los planetas un sistema solar; los sistemas solares un sistema más vasto, y así infinitamente; en ninguna parte existe la simplicidad indivisible ni tampoco la complejidad final. Todo es relativo. Pranava Vada, págs. 334-335.
+
+[^13]: Sería interesante observar la analogía existente entre estas seis fuerzas y los "shaktis" de la filosofía hindú. Se dice en La Doctrina Secreta que:
+
+    Los Seis constituyen las seis fuerzas de la Naturaleza.
+
+    ¿Qué son estas fuerzas? D. S. I, 302. D. S. I, 302.
+
+    1. Son tipos de energía.
+    2. La cualidad característica de un Logos planetario.
+    3. La fuerza vital del Hombre celestial dirigida en una dirección determinada
+
+    Estos "shaktis" son los siguientes:
+
+    1. Parashakti- literalmente, la fuerza suprema, energía y radiación en la sustancia, y proveniente de ella.
+    2. Jnanashakti- la fuerza del intelecto o mente.
+    3. Ichchhashakti- el poder de la voluntad, o fuerza para producir la manifestación.
+    4. Kriyashakti- la fuerza que materializa al ideal
+    5. Kundalini shakti- la fuerza que reajusta las relaciones internas con las externas
+    6. Mantrikashakti- la fuerza latente en el sonido, en la palabra y en la música.
+
+    El Séptimo, el Primario, sintetiza a los seis.
+
+[^14]: En La Doctrina Secreta se dice que:
+
+    El enigma del universo se fundamenta en dichas Jerarquías y en la cantidad correcta de estas Entidades.
+
+    |       |                                                                                              |                                                 |
+    | ----- | -------------------------------------------------------------------------------------------- | ----------------------------------------------- |
+    | Diez  | La línea y el círculo.                                                                       | Símbolo de los Hombres celestiales	D. S. I, 144 |
+    |       | Los diez constituyen el universo arupa                                                       | D. S. II, 136                                   |
+    |       | Los diez constituyen la existencia manifestada                                               | D. S. II, 103                                   |
+    |       | Los diez constituyen la suma total                                                           | D. S. II, 103                                   |
+    | Seis  | La estrella de seis puntas. La vida subjetiva y la forma objetiva, superada por el Espíritu. |                                                 |
+    |       | Los seis constituyen las seis fuerzas de la naturaleza                                       | D. S. I, 237                                    |
+    |       | Los seis Hombres celestiales                                                                 | D. S. II, 83                                    |
+    |       | Los seis planos                                                                              | D. S. I, 237                                    |
+    |       | Fuerza o energía, materia o sustancia y Espíritu.                                            |                                                 |
+    |       | Los seis constituyen el doble triángulo                                                      | D. S. I, 159                                    |
+    |       | Los seis constituyen el símbolo de la objetividad                                            | D. S. IV, 157                                   |
+    |       | Constituyen el aspecto dévico de la manifestación                                            | D. S. I, 242                                    |
+    | Cinco | El pentágono, el Makara, la Estrella de cinco puntas                                         | compárese <br/> D.S. I, 221-223                 |
+    |       | Cinco es el símbolo del Logos planetario                                                     | D. S. IV, 151                                   |
+    |       | Cinco es el símbolo del microcosmos                                                          | D. S. IV, 142                                   |
+    |       | Cinco es el símbolo de la creación                                                           | D. S. IV, 147                                   |
+    |       | Constituye el segundo y tercer Logos unidos en la manifestación                              |                                                 |
+
+    En la fusión del cinco y el seis tenemos la totalidad de la manifestación, lo masculino y lo femenino fusionados en el divino Hermafrodita. Resumiento: D. S. I, 236-240; IV, 145, 168-169.
+
+    |                 |                      |          |                        |
+    | --------------- | -------------------- | -------- | ---------------------- |
+    | El primer orden | Las Vidas esenciales | Espíritu | El Yo                  |
+    | El sexto orden  | La forma objetiva.   | Materia  | El No-Yo               |
+    | El quinto orden | Inteligencia         | Manas    | La relación intermedia |
+
+
