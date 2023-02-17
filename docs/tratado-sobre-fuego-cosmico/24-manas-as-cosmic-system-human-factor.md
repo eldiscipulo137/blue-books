@@ -380,16 +380,137 @@ a. **La cadena terrestre y las Mónadas encarnantes**. Por lo tanto, hemos llega
 
 Cuando el estudiante considera estas cosas debe contemplarlas desde diversos puntos de vista -algunos de las cuales constituyen <pin lang="es">323</pin> para nosotros posibles líneas de acercamiento, mientras que otros lo pueden ser presentidos vagamente. La realidad oculta, expresada por el poeta inglés Pope, “de que para estudiar debidamente la humanidad hay que estudiar al hombre”, se halla involucrada en la investigación de estos vastos ciclos.
 
+**El punto de vista cósmico**. Implica el estudio del lugar que ocupa el Logos solar dentro de Su esfera mayor; el estudio de la ultra sicología y la astronomía del sistema, más la consideración de la relación existente entre nuestro sistema y otras constelaciones y nuestro tránsito en el vasto arco del firmamento. Tiene que ver con la relación que existe entre los diferentes soles, sus satélites circulantes y los planetas entre sí; concierne al estudio de su polarización individual y su interacción con sus polos opuestos. Ello aducirá al estudiante a regiones de especulación logoica y al estudio de la electricidad cósmica y de la Ley universal de atracción, todo lo cual está aún más allá de la comprensión de los estudiantes más avanzados. convirtiéndose en una ciencia (reducida a fórmulas y libros de texto, si puede expresarlo así) recién al finalizar la próxima ronda.
 
+**El punto de vista del sistema**. Se refiere al lugar que ocupan los Hombres celestiales en el cuerpo logoico, a Su interacción, <pin lang="en">381</pin> a Su interdependencia racional y a los ciclos en que cada uno, por turno o de a pares, recibe fuerza logoica. Esto requiere el estudio del sistema solar como unidad y la relación astronómica y orbital entre el Sol y los planetas. Los triángulos del sistema, con el tiempo serán tema de especulación popular, luego de investigación y comprobación científica, y finalmente se conocerán como un hecho demostrado y comprobado, aunque todavía no ha llegado el momento. Se estudiarán las diferentes polaridades de los esquemas, y la información que hoy se suministra únicamente a los iniciados de tercera iniciación con el tiempo será exotérica. En el transcurso del tiempo, la información acerca del sistema en lo referente a:
 
+1. La vitalización de los esquemas.
+2. La interacción entre los esquemas.
+3. Los períodos de encarnación, en el plano físico, de un Logos planetario.
+4. La iniciación del Logos planetario,
 
+se convertirán en ley u orden. Por ahora únicamente pueden hacerse vagas conjeturas e indicaciones que atraen únicamente al espiritual y al intuitivo. A principios de la próxima ronda se difundirá más el conocimiento y habrá mayor interés sobre este tema.
 
+<p><pin lang="es">324</pin> <b>El punto de vista planetario.</b> Se refiere a la historia del esquema individual y a la conciencia y evolución de algún Hombre celestial determinado. El estudiante ha de procurar visualizar el esquema como una unidad, un cuerpo colectivo con sus siete centros y cuarenta y nueve globos, y el triángulo formado entre ellos Las cadenas separadas pueden</p>
 
+1. ser el objeto del estímulo planetario,
+2. ser la esfera de encarnación de un Logos planetario,
+3. surgir a la objetividad,<pin lang="en">382</pin>
+4. manifestarse,
+5. entrar gradualmente en la oscuridad.
 
+Obtener este punto de vista es aún imposible para el pensador común, por cuanto implica una expansión de conciencia inalcanzable para el hombre. No obstante, su esfuerzo por comprenderlo sirve un propósito útil, porque le fija una meta y le permite ampliar sus actuales conceptos.
 
+**El punto de vista de la cadena.** Esto lleva a todo el concepto, dentro del campo de las posibilidades y ha sido indicado en La Doctrina Secreta, T. III y IV. El estudiante se reduce a contemplar los siete globos de la cadena de la cual, aunque microscópica, es parte integrante. Ha de investigar los globos tal como se ven en el tiempo y su interacción; también debe estudiar la función que cada globo desempeña en el gran ciclo del Hombre celestial. Por ejemplo, en la presente cadena terrestre, que nos concierne más de cerca, el cuarto globo es de supremo interés, porque es un vehículo, en el plano físico; para el Hombre celestial en encarnación objetiva densa. Sin embargo, no se ha de olvidar que aunque se manifiesta objetivamente personifica la totalidad de la cadena y del esquema. La idea resultará más clara para el estudiante si decimos que:
 
+Un esquema, en su totalidad, corresponde a la Mónada, o al huevo áurico monádico, en conexión con un ser humano y sus cuarenta y nueve ciclos.
 
+Una cadena [^10], en su totalidad corresponde al cuerpo egoico de un ser humano, al cuerpo causal con sus siete grandes <pin lang="en">383</pin> ciclos, mencionados en estas páginas e insinuados en algunos libros ocultistas. <pin lang="es">325</pin>
 
+Un globo con sus siete razas corresponde a la serie particular de encarnaciones en conexión con el hombre, encarnado desencarnado, porque no todos los globos se hallan en niveles físicos.
+
+Un globo físico, en una cadena, corresponde a una determinada encarnación del hombre. El Logos planetario toma forma física en Su planeta y constituye la vida de éste y lleva a cabo Sus propósitos. Una raza raíz es similar a las “siete partes” (según lo expresa Shakespeare) desempeñadas por el enano, el hombre. En una raza raíz, el Hombre celestial vive simplemente Su vida al pasar por ciertas experiencias en la gran tarea de desarrollar budi o acción colectiva (porque budi es el principio unificador de grupos), y durante el proceso de experimentación y desarrollo atrae dentro de Su vibración a todas las células de Su cuerpo. En el caso de un ser humano las células de su cuerpo (las células materiales) son vidas involutivas, animadas por el tercer Logos, en colaboración con el segundo Logos. En el caso de un Logos planetario las células evolucionantes de Su cuerpo (unidades dévicas y humanas), son animadas por la vida del segundo Logos, en colaboración con el primer Logos, que utiliza las actividades del tercer Logos a los fines de la manifestación.
+
+Después de haber destacado todas estas cosas, el estudiante verá con más claridad la función que la cadena y el globo de la Tierra desempeñan en la evolución del Logos planetario del esquema terrestre.
+
+La rueda gira, y en su rotación lleva a la objetividad a uno de los siete globos, o atrae a la manifestación, en el plano físico, a la gran Entidad cuya vida anima todo el esquema. Se ha de tener en cuenta que así como el hombre está entorpecido por su cuerpo físico <pin lang="en">384</pin> y es incapaz de expresar, por medio del mismo, todo el contenido de su conciencia egoica, así también el Hombre celestial, al tomar un vehículo físico denso en cualquier cadena particular, está Igualmente entorpecido e incapacitado para expresar a la perfección en el globo, la plena belleza de Su Vida o el esplendor de Su Conciencia en manifestación.
+
+Se puede decir aquí, con respecto al Logos planetario de nuestro esquema, que:
+
+1. Se encuentra en encarnación física.
+2. Ha recorrido la mitad del Sendero de Iniciación cósmica y, en consecuencia, ha de recibir la cuarta iniciación en esta cadena. Por consiguiente, bien puede considerarse este globo como el del sufrimiento y del dolor, pues nuestro Logos planetario experimenta en éste lo que el místico llama “la Crucifixión”.
+3. Las vidas de Su cuerpo, por medio de las cuales siente, <pin lang="es">326</pin> percibe y experimenta, en este periodo mundial son desgarradas por el dolor y el sufrimiento, porque Su conciencia se halla en el centro del Cuerpo, y ellas tienen la capacidad de sufrir, para que por medio de las mismas Él pueda aprender el significado del desapasionamiento del sistema, desligarse de todas las formas y de la sustancia material y, en la cruz de la materia, alcanzar con el tiempo, la liberación y la libertad del Espíritu.
+
+Lo mismo puede decirse de un Logos solar, teniendo en cuenta la interesante correlatividad:
+
+1. El Logos solar tiene como objetivo nueve iniciaciones, siendo Su meta la tercera Iniciación cósmica.
+2. Nuestro Logos planetario tiene como objetivo siete iniciaciones, siendo Su meta la segunda Iniciación cósmica.
+3. El hombre tiene como objetivo cinco iniciaciones, siendo Su meta la primera Iniciación cósmica. <pin lang="en">385</pin>
+
+<p><pin lang="en">386</pin> Si relacionamos esto con lo dicho anteriormente sobre la iniciación y el sol Sirio, tendremos un indicio sobre el triple Sendero cósmico.</p>
+
+b. **El cuarto reino y la Jerarquía del planeta**. El estudiante ocultista común que haya reflexionado detenidamente sobre esta enseñanza habrá captado y comprendido ciertos hechos. Se habrá dado cuenta que la conjunción de Espíritu-materia y mente o manas. se efectuó durante la tercera raza raíz, y que la familia humana se hizo presente definitivamente en la tierra desde esa época. Sabe que esto se produjo por el advenimiento, en Presencia corpórea, de ciertas grandes Entidades: ha aprendido que vinieron de la cadena venusiana, que lograron la necesaria conjunción, se hicieron cargo del gobierno del planeta, fundaron la Jerarquía oculta y, aunque algunas permanecen en la cadena, las restantes han vuelto a Su fuente de origen. Esto puede, en muchos sentidos, resumir todo el conocimiento actual. Vamos a ampliarlo brevemente, a corregir ciertas interpretaciones erróneas y a comprobar uno o dos hechos nuevos.
+
+Primero, el estudiante de ocultismo ha de tener presente:
+
+1. Que este advenimiento significó que el Logos planetario tomó un vehículo físico y literalmente constituyó la venida del Avatar.
+2. Que dicho advenimiento fue consecuencia de un alineamiento definido del sistema que involucró al esquema venusiano del sistema; a la cadena venusiana del esquema terrestre; al globo venusiano de la cadena terrestre. <pin lang="es">327</pin> <pin lang="es">328</pin>
+
+<div style={{width: "100%", backgroundColor: "white"}}>
+ <img src={require("../assets/manas-venus-tierra.gif").default} style={{width:"100%"}}/>
+</div>
+
+3. Que el Logos planetario no vino del esquema venusiano, sino de la cadena venusiana de Su propio esquema, el terrestre. Debido al alineamiento <pin lang="en">387</pin> del sistema el kundalini logoico pudo circular por un determinado triángulo, del cual Venus y la Tierra fueron dos de sus vértices. Esto hizo acelerar la vibración y permitió al Hombre celestial de nuestro esquema recibir una iniciación menor y comenzar Sus preparativos para una iniciación mayor.
+
+Se ha de recordar también que al considerar esta materia debemos cuidar de visualizarla no sólo en lo que atañe a nuestro globo y a su humanidad actual sino también desde el punto de vista del cosmos y del sistema, y su importancia para un Logos planetario y un Logos solar. De allí la veracidad de que este acontecimiento no sólo fue el resultado de que nuestro Logos terrestre recibiera una iniciación menor, sino que el esquema venusiano se destacó por haber recibido una iniciación mayor el Logos planetario de Venus en Su quinta cadena. En lo que respecta a un Logos solar, ésta tuvo lugar después de ser estimulado uno de Sus centros, y se debió a la progresión geométrica del fuego al circular a través del Triángulo ya mencionado.
+
+Se ha afirmado que ciento cuatro Kumaras vinieron de Venus a la Tierra; literalmente el número es ciento cinco, si a la Unidad sintetizadora, el Señor del Mundo, se la cuenta como una. Permanecen aún con El los tres Budas de Actividad. Quisiera llamarles la atención sobre el doble significado de este nombre “Budas de Actividad”, pues confirma la realidad de que las Entidades que se hallan en Su grado de evolución constituyen amor-sabiduría activa y personifican, en Sí Mismas, los dos aspectos. Los tres Budas de Actividad corresponden a las tres personas de la Trinidad.
+
+Dichas Entidades están divididas en tres grupos de treinta y cinco, personificando en Sí Mismas los tres centros mayores del Logos planetario, esos tres grupos que conocemos como los “tres departamentos”, debiendo recalcarse que cada departamento constituye un centro: <pin lang="en">388</pin>
+
+|     |                     |                                                                                                                                              |
+| --- | ------------------- | -------------------------------------------------------------------------------------------------------------------------------------------- |
+| a.  | El centro coronario | El Departamento Regente.                                                                                                                     |
+| b.  | El centro cardíaco  | El Departamento de Enseñanza.                                                                                                                |
+| c.  | El centro laríngeo  | El Departamento del Mahachoan. Este centro sintetiza los cuatro centros menores, así como el tercer Rayo sintetiza los cuatro rayos menores. |
+
+Estos Kumaras (o Sus sustitutos actuales) se pueden dividir también en siete grupos, que corresponden a los siete Rayos, y son <pin lang="es">329</pin> en Sí Mismos la vida del centro que representan. Por consiguiente, quince (otra vez el diez y el cinco) de estas Entidades forman un centro en el cuerpo del Logos planetario, conjuntamente con los tres Kumaras, sobre los cuales (son quíntuples, sumando quince en total) se dice que constituyen las Vidas que convierten en un ente ese centro particular, implicado en la próxima Iniciación del Hombre celestial, al cual pertenecen hoy los entes humanos , y lo harán durante este gran ciclo.
+
+Otro hecho que se ha de observar, respecto a estos grandes Seres, es que, considerados en Sus siete grupos, forman:
+
+1. Puntos focales para la fuerza o influencia que emana de otros centros o esquemas solares.
+2. Las siete divisiones de la Jerarquía oculta.
+
+Existen como el Hombre celestial mismo, en materia etérica, y literalmente son grandes Ruedas o Centros de Fuego viviente, fuego manásico y eléctrico; vitalizan el cuerpo del Hombre celestial, manteniéndolo unido como un todo objetivado. Forman un triángulo planetario dentro de la cadena, y cada uno de Ellos vitaliza un globo.
+
+En la presente etapa no se permite dar información exotérica referente a:
+
+1. Qué Rayo o emanación logoica personifica nuestro Logos planetario. <pin lang="en">389</pin>
+2. Qué centro en el sistema solar se denomina esquema terrestre,
+3. Qué esquema constituye nuestro polo opuesto, y qué Hombre celestial está más estrechamente aliado con el nuestro.
+4. Qué centro particular, en el cuerpo del Logos planetario, El trata de vitalizar hoy.
+
+Estos puntos, como se comprenderá, son demasiado peligrosos para darlos a conocer, y los estudiantes, cuya intuición esté suficientemente desarrollada para obtener dicha información, comprenderán por sí solos la necesidad de guardar silencio.
+
+c. Una profecía. Podemos ahora, antes de continuar con el tema, mencionar las diferentes cadenas del esquema terrestre. Debemos tener muy en cuenta que son nombres aplicados a las cadenas y a los globos simplemente para mayor claridad. A medida que el tema se estudie con más amplitud, inevitablemente será conveniente designar las cadenas por su número y prescindir de los nombres que ahora se emplean:
+
+1. Neptuno.
+2. Venus. <pin lang="es">330</pin>
+3. Saturno.
+4. Tierra.
+5. Mercurio.
+6. Marte.
+7. Júpiter.
+
+Aquí aprovecho la oportunidad para advertir a los estudiantes respecto a los diagramas insertados en este tratado.
+
+Describen sólo un ciclo de la evolución logoica y únicamente abarcan el actual período mayor que estamos empeñados en desarrollar. En términos generales podemos decir que el sistema abarca el periodo que empezó para nosotros a mediados de la tercera raza raíz de esta ronda y continuará hasta el período denominado “el Juicio” <pin lang="en">390</pin> en la quinta ronda venidera. Cuando llegue ese momento, nuestro Logos planetario habrá alcanzado esa iniciación que constituye Su meta actual; la quinta ronda del esquema venusiano estará por terminar, comenzando así a entrar en la oscuración, previamente a la transferencia de Su vida al planeta sintetizador con el cual está conectado; Mercurio estará alcanzando la apoteosis de su realización y, con Marte y la Tierra, formará un triángulo en el sistema. Hablamos aquí de esquemas y no de cadenas.
+
+Se ha de reconocer otro triángulo dentro del esquema terrestre, el de las cadenas llamadas “terrestre”, venusiana y mercuriana; pero este triángulo concierne totalmente a los centros del Logos planetario de nuestro esquema. Existe una formación en el sistema, de gran importancia en la próxima ronda, que producirá tres esquemas, el de la Tierra, el de Marte y el de Mercurio relacionados entre si en tal forma, que tendrá como resultado:
+
+1. La formación de un triángulo en el sistema.
+2. La libre circulación del kundalini logoico a través de estos tres puntos.
+3. La vitalización de ciertos grandes centros logoicos; entonces el kundalini logoico transferirá su atención del actual triángulo en proceso de formación -la Tierra, Venus y un esquema cuyo nombre es conveniente reservar- al siguiente.
+4. Un grupo totalmente nuevo de seres humanos vendrán a la encarnación en nuestro esquema terrestre. Tres quintas partes de la humanidad actual, que en esa época se hallarán en el Sendero de Probación o en el de Iniciación, tendrán su centro de conciencia definitivamente en el plano mental, <pin lang="en">391</pin> mientras que las otras dos <pin lang="es">331</pin> quintas partes seguirán enfocadas en el astral. Estas dos quintas partes pasarán a un pralaya temporario antes de ser transferidas a otro esquema, pues el terrestre ya no será un lugar adecuado para nutrirse.
+5. Vendrán Entidades de Marte al esquema terrestre y encontraran su necesario campo de esfuerzo,
+6. La vida en Mercurio comenzará a sintetizarse y a ser transferida a su planeta sintetizador. En el caso de Mercurio, su planeta sintetizador no es Saturno, sino uno de los dos centros mayores superiores.
+7. En el “Día del Juicio” en la quinta ronda o punto de realización de nuestro Hombre celestial, se presenciará un periodo de lucha planetaria en los niveles mentales, que hará que nuestra actual intranquilidad mundial parezca insignificante. Como se indicó anteriormente, la lucha actual se ha producido para poner a prueba la capacidad de los entes en las actuales formas humanas, valorar sus fuerzas mentales y trascender, por el poder de la MENTE, el sentimiento o dolor. La lucha en la quinta ronda se librará entre la mente superior y la inferior, y el campo de batalla será el cuerpo causal [^11]. La <pin lang="en">392</pin> lucha -que ahora se libra en el <pin lang="es">332</pin> planeta, tiene lugar entre unos pocos Egos (o dirigentes de muchas razas, que ocupan necesariamente su lugar y posición en virtud de su polarización egoica) y muchas personalidades, las cuales son atraídas al vértice mediante la asociación grupal- es necesariamente terrible y obliga a destruir la forma. La lucha en la quinta ronda, que se llevará a cabo en niveles mentales, se desarrollará entre Egos y grupos egoicos, trabajando todos conscientemente y con dedicación intelectual a fin de lograr ciertos resultados grupales. La lucha terminará con el triunfo (triunfo final) del Espíritu sobre la materia, excluirá a ciertos grupos incapaces aún de desprenderse de las ataduras de la materia y que prefieren el cautiverio a la vida del Espíritu; marcará el principio de la oscuración de nuestro esquema y la entrada gradual en el pralaya durante las dos rondas y media que resten de nuestras siete cadenas. Es un interesante hecho esotérico de que nuestra Tierra debería estar ahora en su quinta ronda, similarmente al esquema venusiano; pero en la cadena lunar de nuestro esquema hubo una demora momentánea en el proceso evolutivo de nuestro Hombre celestial, trayendo la temporaria lentitud de Sus actividades, lo que causó “pérdida de tiempo”, si reverentemente puede expresarse así. Los Señores de la Faz Oscura o las fuerzas inherentes de la materia, triunfaron por un tiempo, y sólo en la quinta ronda de nuestra cadena se verá su derrota final. El esquema venusiano tuvo también su campo de batalla, pero el Logos planetario de dicho esquema venció a las fuerzas antagónicas, triunfó sobre las formas materiales y, en consecuencia, al llegar el momento oportuno, estuvo en condiciones de aplicar el necesario estimulo o una <pin lang="en">393</pin> creciente vibración ígnea a nuestro esquema terrestre. Se ha de reflexionar sobre el hecho de que se haya pedido ayuda externa durante la tercera raza raíz de esta cadena, y de que la evolución de manas produjera la individualización física del Avatar. El Manasaputra divino, el Señor del Mundo, tomó forma por medio del impulso de manas, inherente a Su naturaleza y en forma misteriosa fue ayudado por el Hombre celestial de otro esquema requiriéndose Su colaboración.
+
+d. Resumen. Al estudiar el origen de manas hemos visto que constituye primeramente la voluntad activa e inteligentemente aplicada por una Entidad; luego, que dicha voluntad activa e inteligente afecta a todas las vidas menores que evolucionan <pin lang="es">333</pin> cíclicamente dentro del Cuerpo de esa Existencia particularmente activa y voluntaria. Esto es verdad en todos los Seres, desde el Logos hacía abajo. Resumiendo, quizás podamos expresarlo de la manera siguiente:
+
+La fuente donde se origina la actividad manásica de un sistema solar es esa gran Entidad cósmica, quien personifica a nuestro Logos solar como centro de su Cuerpo, junto con otros seis Logos solares que en su totalidad constituyen Sus siete centros.
+
+La fuente donde se origina la actividad manásica de los esquemas planetarios es esa Entidad cósmica denominada Logos solar. Es la Inteligencia rectora activa que actúa con propósito definido por medio de Sus siete centros.
+
+La fuente donde se origina el principio manásico de un esquema planetario es esa Entidad cósmica menor denominada Logos planetario. Actúa por medio de Sus siete cadenas, así como lo hace el Logos mediante Sus siete centros planetarios. Es interesante observar aquí que cuando el Logos solar es impelido manásicamente a desarrollar algún propósito de Su fuente superior (AQUEL SOBRE QUIEN NADA PUEDE DECIRSE) puede causar la vivificación de uno u otro de Sus centros, de acuerdo al propósito fijado. Esto ocurrió cuando se formó el triángulo, del cual la Tierra y Venus son dos de sus vértices, y (afectando <pin lang="en">394</pin> a los Hombres celestiales de esos dos esquemas) los estimuló a pasar la iniciación, induciendo al Logos planetario de nuestro esquema a formar un triángulo menor, dentro de Su esfera de actividad, lo cual trajo por resultado que El recibiera una iniciación menor y la impregnación manásica del hombre animal. De esta manera fue llevada a la actividad objetiva ese grupo de mónadas que entran en la composición de un centro determinado.
+
+Similar y micro cósmicamente, un ser humano constituye el incentivo manásico y el origen de la voluntad inteligente y activa de todas las células dentro de su triple cuerpo -mental, astral y físico. Suya es la inteligencia rectora, suya es la fuente de toda acción y esfuerzo dentro de su periferia y, análogamente a como lo hacen sus correspondientes esferas superiores, el Logos solar y el Logos planetario actúan por medio de siete centros.
+
+Hemos trazado así el origen de manas hasta donde es posible hacerlo en la actualidad. El misterio de manas se halla oculto en la existencia misma; guarda el enigma de la vida, y oculta y vela a esas Entidades cuya cualidad y característica sobresaliente es manas. Para la vida de ese diminuto ente que llamamos átomo en el cuerpo físico del hombre, el Pensador en el cuerpo causal o su inteligencia superior rectora, es tan oscura y desconocida como lo es el Logos para el Pensador, el Hombre. No obstante, la analogía <pin lang="es">334</pin> es exacta. [^12] El cuerpo físico del hombre, por ejemplo, considerado <pin lang="en">395</pin> como un todo colectivo, compuesto de muchas vidas menores, sufre o prospera, según obre la Inteligencia rectora con amor-sabiduría o contrariamente. El principio manásico anima todo lo que ocurre dentro del aura del hombre, y éste sufre o progresa de acuerdo a como se aplica dicho principio.
+
+Análogamente puede decirse, con reverencia, del cuerpo del Logos, de un sistema y también del Logos planetario y Su esquema.
+
+## II. LA POSICION DE MANAS
 
 [^1]: El período de la individualización de un Logos solar tuvo lugar mucho antes y no nos ocuparemos de ello, excepto para recordar que la Ley de Analogía es exacta.
 
@@ -420,3 +541,17 @@ Cuando el estudiante considera estas cosas debe contemplarlas desde diversos pun
 [^8]: D. S. I, 196; III, 44-47; IV, 158.
 
 [^9]: Se pide a los estudiantes que establezcan una cuidadosa diferencia entre los cinco Hijos de Brahma, nacidos de la Mente, y los cinco Kumaras verdaderos y sus representantes en nuestro planeta Tierra, que se hallan alrededor de Sanat Kumara, de Quien puede afirmarse (entendido esotéricamente) que se representa a Sí Mismo.
+
+[^10]: Cadena -una serie de siete globos o mundos que forman el campo de evolución durante un ciclo planetario o manvantara. Los primeros tres globos -generalmente conocidos como A B y C forman un arco descendente, alcanzando la materia física densa del descenso en el D o Cuarto globo, del cual la Tierra es un ejemplo. El E o quinto globo, en el arco ascendente analogía del C en el arco descendente) generalmente pertenece al plano astral, y el F y G o sexto y séptimo (analogías del A y del B en el arco descendente) a los niveles Rupa y Arupa del plano mental; por lo tanto éstos son invisibles para la vista común.
+
+[^11]: El Cuerpo Causal.
+
+    "Esta influencia, fuerza, resultado o como quieran llamarlo, ejercida por los antecedentes del hombre, constituye, por así decirlo, una semilla de la cual germina la planta que ha de dar frutos bunos o malos, y el hombre ha de ingerir durante su existencia posterior. (Vishnu Purana T. I, XIX, 5.) Técnicamente dicha semilla se denomina Karana Sarira o cuerpo causal (Paingala Upanishad T. II), causa de la alegría y del sufrimiento del hombre. Dicho Karana Sarira está compuesto por el quinto Kosa (Anandamaya) del hombre y se adhiere al alma durante todo el tiempo en que se halla envuelta por el cuerpo grosero o por el sutil (Sthula o Sukshama Sarira); desaparece totalmente cuando el alma se libera de ambas ataduras; entonces el alma adquiere su pureza primitiva y quema, por así decirlo, todo vestigio que quede de su alianza con el cuerpo, incluso el cuerpo causal (Karana Sarira). Esto sucede cuando el alma ya está preparada para su emancipación final, Moksha. Es lógico que hasa ese momento Karana Sarira, la semilla resultado de actividades anteriores sea eficaz y ejerza una fuerte y controladora influencia sobre los actos del hombre." Extraído de The Theosophist, T. VII, III, 59.
+
+    "Por medio de Vasana (aroma u olor) la persona común repetirá (durante Jagra, estao vigílico) la vieja historia que tuvo en un sueño ya olvidado. Lo mismo hará aquel que habiendo investigado la verdadera lnaturaleza del yo adquirió un cabal conocimiento y puede expresarse a sí mismo, pero a pesar de ello, no puede llegar a ser Chidabhasa (el reflejo de atma en el Karana Sarira y constituye el vehículo de la ignorancia). Aquel que se ha convertido en un ser celestial seguirá sin embargo llamándose "hombre" hasta la muerte del cuerpo causal (mediante el nacimiento de Pragma o sabiduría), consumido totalmente por el fuego predominante de la sabiduría." Kaivalyanavanita, 2da. Parte, 31.
+
+    "Por la acción del raro fuego de la verdadera Sabiduría quedará reducido a cenizas el cuerpo de avidya (cuerpo causal). "Kaivalyanavanita, 1ra. Parte, 98. Extraido de The Theosophist, T. VIII.
+
+[^12]: Formas.
+
+    El Veda Atharva, nos instruye acerca de los principios que fundamentan equitativamente los métodos de los procesos del mundo y del átomo -un mundo en miniatura. Pueden ser considerados como procesos del mundo o del átomo, según el criterio y punto de vista de quien expone. Así como todos los mántram de este Veda reflejan la actividad del proceso mundial, también nos revela el conocimiento dentro del conocimiento, la memoria dentro de la memoria, el poder dentro del poder, el mundo dentro del mundo, el hecho dentro del hecho, la acción dentro de la acción, el deber dentro del deber, el pecado dentro del pecado, la individualidad dentro de la individualidad, ascendiendo y descendiento constante e incesantemente desde todo punto del espacio. Los átomos constituyen las moléculas; las moléculas los compuestos; los compuestos las células; las células los tejidos; los tejidos los órganos; los órganos los cuerpos; los cuerpos las comunidades; las comunidades las clases y las razas; las clases y las razas los reinos; los reinos de innumerables grados y variados círculos constituyen un planeta; los planetas un sistema solar; los sistemas solares un sistema más vasto, y así infinitamente; en ninguna parte existe la simplicidad indivisible ni tampoco la complejidad final. Todo es relativo. Pranava Vada, págs. 334-335.
