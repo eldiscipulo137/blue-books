@@ -589,6 +589,102 @@ La conciencia de toda la familia humana pasará gradualmente al cuarto subplano 
 
 La tarea de los cuatro Maharajáes que distribuyen el karma dentro del “círculo no se pasa” alcanzará su culminación en la cuarta ronda. En la próxima ronda se destacará más el trabajo de los Lipikas, quienes se ocupan de todo lo relacionado con nuestro sistema fuera del “círculo no se pasa”. Esto es así, pues los Señores Lipikas aplican la ley a quienes se han fusionado con su principio divino y no están sujetos ya a las formas materiales de los tres mundos. Los Señores del Karma y los Maharajáes trabajan con los hijos de los hombres en los tres mundos y por medio del principio manásico.
 
+### 2. En el Sistema.
+
+<p><pin lang="en">408</pin> Ahora nos abocaremos a otros puntos del tema respecto al desarrollo manásico en el sistema, para luego entrar a dilucidar el futuro de manas, último subtítulo.</p>
+
+Es evidente que la vastedad del tema y los enormes ciclos de tiempo involucrados contribuyen a oscurecerlo e impiden definirlo con claridad. Sólo se observan los puntos más conspicuos; lo único que puede hacerse en este tratado es exponer conceptos amplios y generales e impartir hechos fundamentales sin entrar en mayores detalles. Ciertas ideas parecen claras sobre un fondo oscuro de planes complicados, ante la confusión aparente causada por la superposición de ciclos mayores y menores y la acumulación de detalles caóticos. Este caos y contradicción aparentes, se deben a nuestra involución imperfecta, a la falta de perspectiva resultante del lugar que ocupamos en el esquema planetario y a lo limitado de nuestra visión. En nuestra posición actual lo único que podemos apreciar son generalidades sobresalientes, que podrían resumirse en tres factores: posición, relación, limitación.
+
+Posición o lugar que ocupa el sistema dentro del conjunto mayor, y la naturaleza colectiva de toda manifestación. Esto involucra el concepto de:
+
+1. <pin lang="es">345</pin> Un sistema cósmico que encierra sistemas menores, a los que mantiene unidos por el poder de una vida unificada. [^17]
+2. Un sistema solar, parte de ese sistema mayor de manifestación, <pin lang="en">409</pin> que también encierra formas menores objetivas, a las que mantiene similarmente unidas por el poder de su propia vida.
+3. Un esquema planetario o subdivisión de ese sistema solar. Subsiste también como unidad en si mismo, sin embargo no puede existir apartado de otras unidades.
+4. Grupos o cuerpos unificados dentro del esquema. Éstos se hallan también individualizados; no obstante, son al mismo tiempo parte del conjunto mayor.
+5. Conglomerados o agrupaciones de células, subdivididas en grupos. Éstos deben interpretarse en forma similar.
+6. Células o unidades individuales dentro de los grupos. Cada una es un ente consciente; sin embargo ninguna subsiste aparte de su grupo.
+
+Cada una de las divisiones mencionadas se caracteriza por:
+
+1. La *Vida animadora*, que -en lo que nos atañe- emana de AQUEL SOBRE QUIEN NADA PUEDE DECIRSE y anima los siete sistemas solares, descendiendo desde el Señor de un sistema solar, pasando por las Entidades cósmicas, hasta los llamados Hombres celestiales y las Entidades solares que animan a los grupos, y también por la peculiar manifestación central, denominada ser humano, la pequeña célula dentro del cuerpo de ese ser humano, y el átomo que constituye la materia fundamental con la cual se construyen todas las formas en todos los reinos de la naturaleza.
+2. La *Actividad inteligente*, o manifestación del propósito, o manas, el quinto principio en todo tipo de manifestación. Como se mencionó anteriormente constituye el Plan inteligente de la Entidad implicada, que lo está desarrollando en tiempo y espacio.
+3. El *Poder para evolucionar o progresar*. Constituye literalmente la capacidad característica de la vida animadora dentro de la forma, lo cual permite a ésta progresar inteligentemente, desde las formas inferiores de la manifestación a las superiores. Esto es ante todo el atributo peculiar y perfecto del quinto principio.
+4. <pin lang="es">346</pin> *Capacidad de unir*. Capacidad propia de todas las Vidas inteligentes y activas para ajustarse, durante la evolución, a la Ley de Atracción y Repulsión, y así formar parte consciente e inteligente de una vida mayor. Literalmente <pin lang="en">410</pin> constituye la transmutación de manas en sabiduría. Aunque todo lo que ES existe en la forma, poco se halla aún sometido al contralor inteligente del ente que mora dentro de ella, únicamente los Hombres celestiales y Sus superiores y abarcantes vidas actúan consciente e inteligentemente a través de la forma dominándola, pues sólo Ellos son manas perfecto Debajo de Ellos hay muchos grados inferiores de conciencia. El hombre va alcanzando gradualmente el control consciente de la materia en los tres mundos, control alcanzado por sus Prototipos divinos, los Hombres celestiales. Estos, a su vez, están logrando un control similar en los niveles superiores. Hay muchas vidas ciegas e inconscientes inferiores a la del hombre, en el conglomerado o subdivisión de la cual forman parte. Por lo tanto, puede verse en líneas generales el lugar que ocupa manas en la actual etapa.
+5. *Relación*. Otra de las características sobresalientes, como resultado de nuestro estudio, es el de la Relación. Su comprensión conducirá, en años venideros, al estudio de las distintas polaridades en las diferentes esferas (desde un esquema planetario a un átomo) dentro del “círculo no se pasa” solar, así como la relación existente entre:
+   1. Un esquema y los demás esquemas.
+   2. Un esquema y otro.
+   3. Una cadena y otra.
+   4. Un globo y otro.
+   5. Un grupo y otro.
+   6. Una subdivisión y otra.
+   7. Una unidad y otra. [^18]
+   8. Una célula y otra.
+ 
+ La interrelación de estos factores y su profunda interdependencia es uno de los puntos más importantes que debemos comprender, aunque dicha relación está regida por la Ley de Atracción y Repulsión y, <pin lang="en">411</pin> por consiguiente, se halla más sujeta a lo que denominamos segundo aspecto; sin embargo, la autoconciencia es el resultado del principio manásico; y se ha de tener muy en cuenta la estrecha colaboración entre los dos factores. Mente y Amor-Sabiduría, o las dos leyes, de Atracción y Síntesis.
+6. <pin lang="es">347</pin> *Limitación*. Éste es un factor primordial que se ha de tener presente al considerar un cosmos, un sistema, un esquema, una cadena o cualquier esfera limitadora, hasta el átomo físico del científico. Tal factor supone:
+   1. Capacidad más allá de la manifestada.
+   2. Dualidad, o lo que está limitado, y la sustancia que limita.
+   3. Propósito, pues en todo esquema ordenado de existencia la limitación continúa todo el tiempo requerido hasta alcanzar ciertos fines. A esto sigue la “abstracción”, de acuerdo al sentido literal y oculto.
+ 
+Cuando estos tres factores:
+   1. Posición
+   2. Relación
+   3. Limitación
+
+sean estudiados en el sistema, se evidenciará la íntima conexión que existe entre todos los grupos dentro del conjunto, y se pondrá de manifiesto el hecho de que cada parte necesita de las demás partes.
+
+Con respecto a la posición, relación y limitación cósmicas poco se puede decir, pues es algo todavía oscuro, incluso para los Hombres celestiales. Se comprenderá que esto debe ser lógicamente así, cuando se conozca el lugar que Les corresponde en el esquema de las cosas, y se comprenda Su relativa importancia. Por lo tanto, sólo podemos aceptar el hecho de la inconcebible magnitud de la EXISTENCIA, manifestada por medio de los siete sistemas solares, y de la extensión de este concepto del Ser que <pin lang="en">412</pin> abarca toda la bóveda celeste. Resulta interesante recordar a este respecto que todo lo que se ve, porque son formas objetivas o Seres en manifestación a través de ciertas esferas de luz, que bien podrían no ser todo lo que EXISTE: pero detrás de todo lo visible puede haber un vasto reino o reinos de Existencias. El cerebro del hombre vacila al considerar tal concepto, no obstante, así como hay decenas de millones de seres humanos desencarnados o fuera de manifestación objetiva en los planos sutiles del sistema solar, así también puede haber entes cósmicos de igual rango al de AQUEL SOBRE QUIEN NADA PUEDE DECIRSE, ya que análogamente están desencarnados y se encuentran en regiones más sutiles que aquellas en que se manifiesta la luz.
+
+### 3. En la Tierra.
+
+a. **Los cinco Kumaras**. Vamos a considerar ahora brevemente el tema de los cinco Kumaras. la suma total de manas en la Tierra ya se dicho que el Señor del Mundo, el primer Kumara <pin lang="es">348</pin> es el Logos planetario de nuestro esquema en encarnación física; pero en ninguna parte se insinúa que los tres Kumaras asociados a Él son otros tres Logos planetarios. Sin embargo, es así. Estos tres, denominados “Budas de Actividad”, no son sino los sub-regentes, en nuestro planeta, de los tres Logos planetarios que, con el nuestro, forman el Cuaternario logoico. Asociados a ellos están los tres Kumaras esotéricos, mencionados en La Doctrina Secreta [^19], que representan a los otros tres Logos, y constituyen puntos focales para todas las fuerzas logoicas dentro de nuestra cadena. En cada cadena se encuentran dichos representantes, seis puntos focales que, abarcando al séptimo, el Logos planetario del esquema los mantiene a todos dentro de su Aura
+
+<p><pin lang="en">413</pin> El trabajo de Ellos es triple:</p>
+
+Primero. Son los centros del cuerpo del Logos planetario. Cada cadena corresponde a un centro; los globos sólo son ruedas menores dentro de un centro determinado. La vida del Logos, encarnado en la Tierra, fluye a través de tres centros y empieza a estimular a un cuarto; de allí que estén involucrados cuatro globos, y los tres Kumaras (denominados así a falta de mejor término) se hallan vital e inteligentemente activos; tres están pasivos y uno empieza a actuar. Los globos corresponden a las cadenas. Este cuarto Kumara es aún prácticamente desconocido; pero como ya se insinuó, Su día está a punto de amanecer.
+
+Segundo. Transmiten un tipo especial de fuerza a las unidades que componen cualquier centro. De hecho, para la Mónada de cualquier Rayo en encarnación, en cualquier cadena particular y en cualquier globo determinado, constituyen los agentes de los Señores de los Rayos.
+
+Tercero. Son los agentes de:
+
+1. El Señor de un Rayo, como ya se mencionó.
+2. Los cuatro Maharajáes.
+3. El Logos planetario de Su propio esquema.
+4. El gran Deva del planeta Tierra.
+
+Los Kumaras trabajan con la ley; conocen el propósito inteligente del Logos planetario y Sus planes; constituyen la actividad vital del planeta y, sutilmente, no sólo son los representantes del Rayo, sino también el vínculo entre la cadena y el esquema.
+
+Puede decirse aquí que el relativo fracaso ocurrido en la cadena lunar de nuestro esquema ha entorpecido grandemente Su trabajo; fue necesario que Ellos aplicaran medidas drásticas, a fin <pin lang="es">349</pin> de contrarrestar los efectos de tal fracaso. En esto tenemos otro indicio de la perturbación mundial. <pin lang="en">414</pin>
+
+b. **La cadena lunar**. Será conveniente, antes de entrar a otros temas, ocuparnos del muy difícil tópico de la cadena lunar y responder a ciertas preguntas que pueden haber surgido en la mente de los estudiantes.
+
+La enumeración de las cadenas y esquemas, dada en los dos diagramas, corresponde a la actualidad; abarca un período relativamente reciente, e introduce la historia de la evolución hasta mediados de la próxima ronda de nuestra cadena. Si se nos hubieran proporcionado diagramas, que abarcando la época pre-lemuriana se extendieran hasta el insondable pasado, hablando en sentido humano, habríamos visto reproducida la cadena lunar y omitida la cadena de Neptuno. En el diagrama presentado faltan aparentemente dos cadenas, la de la Luna y la de Urano. Las razones son muy complicadas, pero puede indicarse algo en lo siguiente:
+
+La cadena lunar y la terrestre formaron dos unidades o polaridades, negativa positiva. Se alcanzó el punto de fusión y la cadena de la Tierra absorbió o sintetizó a la cadena lunar, así como se fusionarán ciertos esquemas hasta que aparentemente sólo queden tres. En consecuencia, la cadena terrestre es de naturaleza esencialmente dual, siendo la suma total de una cadena masculina y otra femenina. Esto es un misterio imposible de mayor elucidación, tratado en algunos libros ocultistas e insinuado por H. P. B. [^20]
+
+En el transcurso del tiempo ocurrirá otra fusión en el esquema, entonces Urano (la cadena de este nombre en nuestro esquema) surgirá a la objetividad. Recuerden que los esquemas se manifiestan como siete, diez y tres; desde el punto de vista del Eterno Ahora -o el de un Hombre celestial- la manifestación puede describirse de la manera siguiente(3/7). En tiempo y espacio, podría decirse que el orden es 7-3-10, y en otras etapas 10-7-3. A medida que <pin lang="en">415</pin> los opuestos se fusionan, el diez se convierte en siete y en tres; es durante este proceso que cadenas y globos enteros y, con el tiempo esquemas, se desvanecerán aparentemente de la objetividad y se perderán de vista. Serán simplemente absorbidos. Durante el doble proceso de la evolución puede expresarse que:
+
+1. Durante la involución, el orden consecutivo es tres, luego siete y finalmente diez.
+2. Durante la evolución, el orden consecutivo es diez, luego siete y finalmente tres.
+
+El proceso involutivo está prácticamente terminado y el evolutivo ha llegado aproximadamente a mitad de camino. Esto será <pin lang="es">350</pin> demostrado por la desaparición o absorción de ciertas cadenas, a medida que encuentren sus opuestos polares y se produzca simultáneamente la aparición de cadenas o globos más sutiles y a medida que el principio manásico permita al hombre percibirlos. La cadena lunar está en proceso de desaparecer; sólo le queda un cuerpo en decadencia; la vida del segundo y del primero Logos se ha retirado de ella y únicamente retiene la vida latente en la materia misma. Simultáneamente Neptuno apareció en el horizonte y ocupó su lugar como una de las siete cadenas en manifestación del Logos planetario. Nos referimos aquí a la cadena de Neptuno del esquema terrestre.
+
+La cadena lunar tiene una curiosa historia oculta, que no puede ser revelada aún. Esto la diferencia de las demás cadenas del esquema y de toda cadena de cualquier esquema. Una situación análoga se producirá en otro esquema planetario dentro del sistema solar. Todo esto está oculto en la historia de uno de los sistemas solares que se halla unido al nuestro dentro del “círculo no se pasa cósmico”. De allí la imposibilidad de extendernos sobre ello. Cada Hombre celestial de un esquema es un punto focal para la fuerza, el poder y la vida vibratoria de siete estupendas Entidades, exactamente <pin lang="en">416</pin> como los siete centros de un ser humano constituyen los puntos focales de la influencia del correspondiente Prototipo celestial. Por lo tanto, nuestro Hombre celestial está esotéricamente aliado a uno de los siete sistemas solares; en esta misteriosa alianza se halla oculto el misterio de la cadena lunar.
+
+Podrían darse ciertas breves indicaciones a fin de que el estudiante reflexione detenidamente sobre ellas:
+
+1. En la cadena lunar se preveía un fracaso del sistema.
+2. Dicho fracaso está vinculado a los principios inferiores que, según ha declarado H. P. B., fueron ahora reemplazados.
+3. La calamitosa sexualidad que impera en nuestro planeta tiene su origen en el fracaso lunar.
+4. La progresión evolutiva en la Luna, fue trastornada e interrumpida súbitamente por la oportuna intervención del Logos solar. El secreto del sufrimiento que impera en la cadena terrestre, que merece el nombre de Esfera del Sufrimiento, y el misterio de la prolongada y dolorosa vigilancia ejercida por el GUARDIAN SILENCIOSO [^21], tienen su <pin lang="es">351</pin> origen en los acontecimientos que llevaron a la cadena lunar a su terrible culminación. La agonía y desesperación experimentados en nuestro planeta no existen en ningún otro esquema.
+5. <pin lang="en">417</pin> El abuso del poder vibratorio de un centro, el empleo perverso y deformado de las fuerzas, para ciertos fines equívocos que no están de acuerdo con la línea de evolución, explica gran parte del misterio lunar.
+6. Ciertos resultados, tales como encontrar su polo opuesto, fueron indebidamente acelerados en la cadena lunar; la consecuencia fue un desenvolvimiento desigual y el retardo de la evolución de un cierto número de grupos dévicos y humanos.
+7. El origen del conflicto entre los Señores de la Faz Oscura y los de la Fraternidad de la Luz, que tuvo su campo de actividad en la época atlante y durante la actual raza raíz, se remonta a la cadena lunar.
+
+Lo antedicho es todo cuanto puede decirse en la actualidad, y mucho de ello no podía ser publicado hasta ahora. Es necesario hacer resaltar nuevamente que no debe atribuírsele importancia a los nombres dados a las cadenas y a los globos, ni a la necesidad de enumerarlos. Si el estudiante decide enumerar las cadenas y los globos ha de tener muy en cuenta que la correlatividad de los números no se refiere al lugar o al tiempo, ni tiene relación con ellos ni tampoco con el orden consecutivo de aparición o de manifestación.
+
+## IV. EL FUTURO DE MANAS
+
 
 
 
@@ -706,3 +802,15 @@ La tarea de los cuatro Maharajáes que distribuyen el karma dentro del “círcu
 [^16]: Pitris
 
     "Lo que denominé constitución espíritu-ideal es aquello que se conoce como swarga en nuestras obras sánscritas, y las entidades que allí actúan son conocidas como Pitris, que lógicamente quiere decir padres. Estos Pitris en nuestros puranas están descritos como si fueran la antítesis de los Devas, lo cual ha conducido a algunos hindúes incluso a muchos teósofos, a creer que los Devas y los Pitris constituyen dos esferas distintas de vida. Los Pitris y los Devas siempre existen juntos; los devas proporcionan la conciencia, y los Pitris forman el cuerpo. Ambos son términos relativos. Si los Pitris son el agua, los Devas son el fuego en el agua. Si los Pitris son el fuego, los Devas son las llamas de ese fuego. Si los Pitris son las llamas, los Devas son el principio consciente que activa esa llama y le proporciona el poder de iluminar al mundo y hacerlo existir como un factor en nuestra conciencia. Desde el plano de la vida más elevado hasta el más inferior, los Pitris constituyen el aspecto objetivo y los Devas el aspecto subjetivo; la vida misma constituye la corriente que forma la línea intermedia...Cuando el cosmos en lugar de estar dividido en tres lokas está dividido con mayor exactitud en siete, podrán adjudicársele las tres superiores a los Devas y las inferiores a los Pitris, y la intermedia a la corriente de la vida, la cual puede concebirse como el punto donde la esencia dévica se convierte en esencia pítrica, o lo que no es loka se capacita para aparecer como loka en lo inferior, o lo inmanifestado se convierte en lo manifestado." Some Thoughts on the Gita, pág. 56.
+
+[^17]: Diversidad que surge de la unidad.
+
+    "Según los Adeptos de la antigua Aryavarta, siete principios surgen de estas tres entidades primarias. El Álgebra enseña que el sin fin de combinaciones de cosas, ya sea una, dos, tres, etc., por vez es igual a 2n-1. Aplicando esta fórmula al caso actual, la cantidad de entidades surgidas de las diferentes combinaciones de estas tres causa primarias, es la siguiente: 23-1=8-1=7. Por regla general cuando se mencionan siete entidades en las antiguas ciencias ocultas de la India, en la relación que sea, se ha de suponer que vienen a la existencia provenientes de tres entidades primarias, que a su vez surgen de una sola entidad o Mónada." The Theosophist. T. VIII, pág. 449.
+
+[^18]: Empleo la palabra "unidad" en relación con todo aquello que posee cierto grado de autoconciencia o individualidad. Por lo tanto, deben recordar que esta palabra no se refiere a nada inferior al reino humano.
+
+[^19]: D.S. II, 158.
+
+[^20]: D. S. II, 251; I, 185-206.
+
+[^21]: "...también Él domina espiritualmente a los Adeptos iniciados de todo el mundo; es, como se dice, "El Innominado" que posee muchos nombres, sin embargo sus nombres y su propia naturaleza son desconocidos. Es el "Iniciador", denominado el "Gran Sacrificio". Porque sentado en el Umbral de la Luz mira hacia allí desde dentro del círculo de Oscuridad, el cual no atravesará ni abandonará su puesto hasta el último Día de este Ciclo de Vida. ¿Por qué este Solitario Observador no abandona su puesto autoelegido? ¿Por qué se sienta al lado de la Fuente de la Primordial Sabiduría, de la cual ya no bebe porque nada le queda por conocer -ni en esta Tierra ni en los Cielos? Porque los solitarios Peregrinos de lacerados pies que recorren el camino de retorno a su Hogar jamás están seguros, hasta el último instante, de que no extraviarán el camino en este ilimitado desierto de Ilusión y Materia, denominado Vida terrenal. Porque alegremente le indicaría el camino que conduce a esa región de liberación y Luz -de la cual se ha exilado voluntariamente- a todo prisionero que ha logrado liberarse de las ataduras de la carne y de la ilusión. Abreviando, porque se ha sacrificado en bien de la humanidad, aunque sólo unos pocos seres selectos se beneficien por el Gran Sacrificio" D. S. I, 231.
