@@ -685,8 +685,78 @@ Lo antedicho es todo cuanto puede decirse en la actualidad, y mucho de ello no p
 
 ## IV. EL FUTURO DE MANAS
 
+Me propongo encarar este grandioso tema única y principalmente en relación con el HOMBRE, dejando que el estudiante extraiga y deduzca por sí mismo mucho de lo que podría decir, <pin lang="es">352</pin> ampliando el concepto desde la unidad al grupo y del grupo a la totalidad de grupos, dentro del sistema solar. Consideraremos únicamente el desarrollo de la mente del hombre, insinuaremos otros probables desarrollos, trataremos de demostrar que manas, a medida que evoluciona, conduce a ciertas características distintivas que lo <pin lang="en">418</pin> diferencian de otros desarrollos que pudieran ser percibidos. Por lo tanto estudiaremos el tema bajo los subtítulos siguientes:
 
+1. Características de Manas.
+2. Probable desarrollo de la mente humana.
+3. Manas en las rondas finales.
 
+Al estudiar estos puntos haremos hincapié sobre el futuro, y no me extenderé sobre lo que ya se ha dilucidado.
+
+### 1. Las Características de Manas.
+
+Las características principales de Manas podrían resumirse en tres títulos:
+
+1. Discriminación
+2. Actividad ordenada
+3. Adaptabilidad
+
+Estudiaremos estos tres aspectos brevemente y observaremos cómo se desarrollarán en días y ciclos futuros.
+
+a. **Discriminación**. Esta parece ser una afirmación muy trillada. Todo estudiante conoce la cualidad discriminativa de la mente y su capacidad selectiva; reconoce la facultad que permite al hombre distinguir inteligentemente entre el Yo y el no-yo. Por lo general tenemos la tendencia a olvidar que esta facultad subsiste en todos los planos y se manifiesta de tres maneras como:
+
+*Primero*. La facultad de discriminar entre lo que es la conciencia del Yo y aquello que se conoce como mundo externo. Constituye la capacidad de saber distinguir entre uno mismo y las otras formas existentes. Está universalmente desarrollada y ha alcanzado un grado bastante elevado de evolución.
+
+*Segundo*. La facultad de discriminar entre el Ego y la Personalidad. Esto restringe el concepto a la esfera de la propia conciencia del hombre, y le permite diferenciar entre su yo subjetivo o alma y los cuerpos que la contienen. Dicha facultad <pin lang="en">419</pin> en manera alguna se halla desarrollada universalmente. La mayoría de los hombres no saben distinguir todavía con exactitud la diferencia que existe entre el hombre, el PENSADOR que persiste en tiempo y espacio y el vehículo de vida efímera y transitoria mediante el cual piensa. El reconocimiento real de esta dualidad esencial y su corroboración científica sólo se manifiesta en el místico, en los <pin lang="es">353</pin> pensadores avanzados de la raza, en los aspirantes conscientes y en aquellos que se acercan al Portal de la Iniciación.
+
+*Tercero*. La facultad de discriminar entre el alma y el Espíritu, o la comprensión de que el hombre no sólo puede decir “Yo Soy”, ni únicamente puede entender “Yo Soy Ese”, sino que puede comprender aún más y decir “Yo Soy Ese Yo Soy”.
+
+En estas expansiones y corroboraciones se utiliza la facultad discriminativa de manas.
+
+Por lo tanto, podemos presentir cuál será el futuro desarrollo y hacia dónde conducirá a la humanidad. El hombre ya se conoce como unidad separada de conciencia, sabe distinguir entre él y otros seres materializados; reconoce que es distinto a otras esferas activas de materia, desde el Logos materializado hasta la célula de su propio cuerpo físico y las células de todos los cuerpos en el plano físico. El instinto separatista y su característica auto centralización han sido la cuna donde el niño, el hombre, se ha aislado hasta llegar a su plena virilidad y poder participar así en el trabajo de su grupo. Lo único de valor que se percibe en el hombre cuando se acerca a las etapas finales del sendero de evolución es la fusión voluntaria de los intereses y objetivos, consecuencia de una etapa anterior de autoafirmación e intensa autorrealización. En esta etapa nos hallamos ahora; señala toda la manifestación y constituye la base mediante la cual se mantiene la identidad. Caracteriza: <pin lang="en">420</pin>
+
+1. Al Logos solar y a todas las formas dentro de Su cuerpo.
+2. A los Logos planetarios y a todas las formas dentro de Sus cuerpos.
+3. Al hombre y a todas las formas dentro de su cuerpo.
+
+Lo que se ha de hacer resaltar es el concepto, aún poco comprendido, de que esta afirmación de “Yo soy” no sólo distingue al hombre sino que es la palabra mántrica que preserva la integridad de todos los grupos. Cuando el hombre puede decir “Yo soy Ese”, empieza a presentirse uno con su grupo. Cuando los grupos hacen una afirmación similar, comienzan a darse cuenta de su identidad con todos los otros grupos. Cuando un Logos planetario se hace eco de las palabras “Yo soy Ese” se está acercando al momento de síntesis o de absorción. Cuando un Logos solar pronuncia las mismas palabras, se está acercando al término de un día de Brahma, y se aproxima la hora de Su consciente fusión con Su grupo mayor. En términos generales y en relación con el hombre, se puede decir que:
+
+1. “Yo soy” se refiere a la conciencia de la personalidad en los tres planos inferiores, o a todo cuanto se considera inferior <pin lang="es">354</pin> al cuerpo causal. Se relaciona con la comprensión del hombre respecto al lugar que ocupa en el globo dentro de una cadena.
+2. “Yo soy Ese” se refiere a su conciencia egoica y a los planos de la Tríada. Concierne a la comprensión del hombre respecto al lugar que ocupa dentro de la cadena, y su relación con el grupo del cual forma parte.
+3. “Yo soy Ese Yo soy” se refiere a la conciencia monádica del hombre y a su relación con los planos de abstracción. Concierne al conocimiento que posee de su posición en el esquema.
+
+Cuando el iniciado puede decir “Yo soy Ese Yo soy”, indica que se ha fusionado con su divina esencia y se ha liberado de la forma. La primera aserción esotérica marca su emancipación de los tres reinos inferiores y su actuación <pin lang="en">421</pin> consciente en los tres mundos, que ocurrió al individualizarse por medio de Manas; la segunda señala la emancipación gradual del hombre de los tres reinos inferiores y su liberación dual de la forma inferior, en la quinta iniciación. En la afirmación final el iniciado no sólo distingue entre el Yo y todas las otras formas de manifestación, entre su propia identidad y el alma, lo mismo que la materia en la forma, sino que puede discriminar entre los tres, Espíritu, Alma y Materia. Cuando ha comprendido esto se libera de su manifestación durante este ciclo mayor. Dicha facultad discriminadora, inherente a manas, desplegada en espirales cada vez más elevadas, lleva al hombre
+
+1. a la materia y a la forma,
+2. a través de todas las formas de materia en todos los planos, y finalmente produce su eventual abstracción de toda forma y materia, conjuntamente con la acumulación de conocimiento transmutado, proporcionado por el proceso evolutivo.
+
+b. **Actividad ordenada**. Aquí entra el concepto del propósito inteligente que persigue un plan fijo y establecido y desarrolla, en tiempo y espacio, un ideal preconcebido. El microcosmos viene a la encarnación mediante un impulso basado en el propósito inteligente que, en su caso, se originó en el plano mental, el plano del principio manásico. Cabría indicar un punto interesante: Al quinto plano, el mental, se lo puede considerar en amplia escala, en el caso del Hombre celestial, como manteniendo una posición simbólicamente análoga a la que mantienen los cuerpos causales de los entes que pertenecen a Su Rayo. Algunos cuerpos causales se hallan en el tercer subplano y otros en el segundo; su complejidad es excesiva y variada, produciendo formas geométricas, en cierto sentido similares a las descritas en los diagramas. Todo es actividad <pin lang="es">355</pin> ordenada de los entes (cada uno persiguiendo <pin lang="en">422</pin> su propósito auto centrado y siguiendo las inclinaciones del yo inferior cuyo lema es “Yo Soy”). Esto gradualmente cederá su lugar a la actividad ordenada de los grupos, en los cuales los entes reconocen la unidad de sus propios intereses y, por consiguiente, trabajan activa e inteligentemente y con propósito consciente por el bien del grupo colectivo. La vibración que ocultamente acompaña a la palabras “Yo Soy Ese” pronunciadas por los entes en el plano físico, empieza a hacerse sentir, aunque sólo muy débilmente. Muchos entes en distintos y lejanos lugares expresan dichas palabras a través de sus vidas, difundiendo así la vibración y poniéndola en movimiento, para contrarrestar el significado crudo y áspero de las palabras “Yo Soy”.
+
+Durante la sexta y séptima rondas los grupos activos y ordenados, pronunciarán la frase mántrica final, la cual no alcanzará su máxima vibración en este sistema solar. En este sistema dual el significado de las palabras “Yo Soy Ese” será consumado plenamente, porque en la tercera iniciación el iniciado capta su fuerza mántrica. No obstante, los iniciados de la sexta y séptima Iniciaciones no tendrán preponderancia en este sistema. Después de que la quinta ronda y las dos quintas partes de la familia humana hayan pasado la oscuración temporaria, los entes restantes habrán alcanzado aproximadamente los estados siguientes:
+
+1. Una quinta parte pronunciará mántricamente las palabras 'Yo soy Ese Yo soy”.
+2. Dos quintas partes alcanzarán la quinta iniciación y se conocerán a si mismo como “Yo soy Ese”. También irán respondiendo a una nota más elevada.
+3. Una quinta y media parte alcanzará la tercera iniciación, y se reconocerá, con plena conciencia, como “Yo soy Ese”.
+4. Los restantes entes recorrerán el Sendero, y comenzarán a reconocerse como grupo.
+
+<p><pin lang="en">423</pin> En relación con lo que se ha dicho acerca de la segunda característica de manas, se puede esperar un desarrollo muy interesante durante el siglo próximo. Se trata de la intensificación comercial y de someter a la ley y al orden la vida de:</p>
+
+1. La familia y grupos de familias.
+2. Las ciudades y grupos de ciudades.
+3. Las naciones y grupos de naciones,
+
+hasta que la raza humana, en todos los aspectos de su vida esotérica, se ajuste a la regla voluntariamente y con la comprensión manásica de la necesidad del grupo. Todo el esfuerzo mental, durante las próximas razas, será dirigido a sintetizar el esfuerzo, <pin lang="es">356</pin> asegurando así el bien del grupo colectivo implicado. Ocurrirán muchos acontecimientos interesantes, y serán necesarios muchos experimentos; unos tendrán éxito, otros fracasarán antes de que manas o actividad intencionada, ordenada e inteligente, controle la vida de los pueblos de este mundo. No es posible ocuparnos de ello más detalladamente, pues el tema es demasiado extenso.
+
+Vamos ahora a tratar el tercer atributo de manas y su manifestación futura.
+
+c. **Adaptabilidad**. Como bien sabemos constituye el primer atributo aplicado al tercer Rayo o aspecto Brahma. Por lo tanto, se lo puede considerar, fundamentalmente, como el atributo de la inteligencia, que adapta el aspecto materia al aspecto Espíritu, y es la característica inherente a la materia misma. Actúa de acuerdo a dos Leyes, la de Economía y la de Atracción y Repulsión; la tarea del Mahachoan se desarrolla principalmente en esta vía. En consecuencia, los cuatro Rayos menores de Atributo, sintetizados en el tercer Rayo de Aspecto, Adaptabilidad o Inteligencia Activa, están implicados fundamentalmente; por lo tanto, el futuro de manas está involucrado en la creciente influencia de estos cuatro Rayos: <pin lang="en">424</pin>
+
+1. Armonía, Belleza, Arte o Unidad.
+2. Ciencia o Conocimiento Concreto.
+3. Idealismo Abstracto.
+4. Magia Ceremonial.
+
+### 2. Desarrollo de La Mente Humana.
 
 
 
