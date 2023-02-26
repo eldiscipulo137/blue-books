@@ -597,7 +597,7 @@ Es evidente que la vastedad del tema y los enormes ciclos de tiempo involucrados
 
 Posición o lugar que ocupa el sistema dentro del conjunto mayor, y la naturaleza colectiva de toda manifestación. Esto involucra el concepto de:
 
-1. <pin lang="es">345</pin> Un sistema cósmico que encierra sistemas menores, a los que mantiene unidos por el poder de una vida unificada. [^17]
+1. <pin lang="es">345</pin> Un sistema cósmico que encierra sistemas menores, a los que mantiene unidos por el poder de una vida unificada [^17].
 2. Un sistema solar, parte de ese sistema mayor de manifestación, <pin lang="en">409</pin> que también encierra formas menores objetivas, a las que mantiene similarmente unidas por el poder de su propia vida.
 3. Un esquema planetario o subdivisión de ese sistema solar. Subsiste también como unidad en si mismo, sin embargo no puede existir apartado de otras unidades.
 4. Grupos o cuerpos unificados dentro del esquema. Éstos se hallan también individualizados; no obstante, son al mismo tiempo parte del conjunto mayor.
@@ -766,7 +766,7 @@ Una vez que se comprenda, en cierta medida, los resultados futuros producidos po
 4. Estos cuatro rayos de atributo entrarán y saldrán del poder incesantemente durante lo que queda de esta ronda y de toda la quinta ronda; al finalizar esta última predominará el tercer Rayo de Aspecto; habiendo iniciado su trabajo sintetizador, su influencia será equiparada en la sexta ronda por la fuerza gradualmente creciente del segundo Rayo de Aspecto -los dos tipos de influencia se superponen. Durante la séptima ronda predominará la fuerza del segundo rayo, mientras que la influencia del tercero se debilitará. El primer Rayo empezará a hacerse sentir. Este Rayo, o sea el del <pin lang="en">425</pin> Mahadeva [^22] o Destructor, iniciará su segundo gran impulso sobre nuestra evolución planetaria mediante la oscuración de dos quintas partes de la familia humana. La impresión que producirá el primer Rayo sobre la familia humana, en este globo, podemos considerarla triple:
 
    1. Primero. Durante la individualización humana a mediados de la tercera raza raíz. Fue producida por una gran destrucción de las formas denominadas hombre-animal, y rara vez se ha presentado ese punto en las enseñanzas. El advenimiento de los Señores de la Llama y la tempestad eléctrica, introducida por el período del hombre, se caracterizó por los desastres, el caos y la destrucción de muchos seres del tercer reino de la naturaleza. Se implantó la chispa de la mente, y la fuerza de su vibración y el efecto inmediato de su presencia causaron la muerte de la forma animal, produciendo así la posibilidad inmediata de que los cuerpos causales, nuevamente vitalizados, vibraran con tal intensidad que tuvieron que adoptar nuevos vehículos. Esto constituye la manifestación del aspecto Voluntad en la cuarta ronda, en conexión con la familia humana.
-   2. <pin lang="en">358</pin> Segundo. Durante la quinta ronda, en el llamado Día del Juicio. La producirá la aparente destrucción de dos quintas partes de la familia humana; trasladará las unidades de conciencia inmanentes a esferas que estarán más <pin lang="en">426</pin> de acuerdo a su etapa de evolución. Este acontecimiento será considerado entonces como una catástrofe; pero los Conocedores verán y sabrán, y también tres quintas partes de la familia humana comprenderán la razón.
+   2. <pin lang="es">358</pin> Segundo. Durante la quinta ronda, en el llamado Día del Juicio. La producirá la aparente destrucción de dos quintas partes de la familia humana; trasladará las unidades de conciencia inmanentes a esferas que estarán más <pin lang="en">426</pin> de acuerdo a su etapa de evolución. Este acontecimiento será considerado entonces como una catástrofe; pero los Conocedores verán y sabrán, y también tres quintas partes de la familia humana comprenderán la razón.
    3. Tercero. Durante la final reabsorción, de la Mónadas perfeccionadas, en su fuente de origen en la séptima ronda. Esto traerá la oscuración y la destrucción de la forma. Prácticamente no existirá sufrimiento, pues los entes humanos implicados habrán llegado a una etapa en que podrán colaborar conscientemente en el proceso de abstracción. Se evidencia, por lo tanto, que en lo que respecta a la familia humana (los Manasaputras en encarnación), la cuarta, quinta y séptima rondas ocultan la clave del primer aspecto. En lo que respecta a los devas se halla oculta en la primera, segunda y sexta rondas. Para la entidad en involución, a la cual llamamos "espíritu del planeta”, está simplemente en la tercera.
 
 El tercer Rayo rige todo el tiempo, pues el segundo Rayo sólo entró en actividad en la segunda ronda. El tercer Rayo regirá simultáneamente con el segundo hasta el fin de la era; entonces empezará a oscurecerse en forma gradual a medida que el primer Rayo va ejerciendo influencia nuevamente. Recuérdese, sin embargo, que los tres se hallan siempre presentes. Simplemente es cuestión de grado y evolución cíclica.
@@ -778,12 +778,283 @@ Podemos ahora entrar a considerar los cuatro Rayos menores que con el tercero co
 3. Cómo encauzar la actividad de la materia y cómo dirigirla hacia ciertos fines.
 4. Cómo emplear la fuerza eléctrica que se encuentra en el aire para vitalizar, reconstruir y sanar el cuerpo físico;
 
-entonces se comprenderá el fenómeno de los Rayos, actuando en <pin lang="en">359</pin> ciclos, y el hombre aprovechará inmensas oportunidades para producir efectos específicos durante ciclos determinados.
+entonces se comprenderá el fenómeno de los Rayos, actuando en <pin lang="es">359</pin> ciclos, y el hombre aprovechará inmensas oportunidades para producir efectos específicos durante ciclos determinados.
 
+a. **Efectos de los Rayos**. El Rayo de Armonía, Belleza y Arte, o el segundo aspecto manásico (adaptabilidad es el tercero), actuará de la manera siguiente:
 
+1. Se desarrollará la intuición gracias al conocimiento de las vibraciones del sonido y de las matemáticas superiores. Éste ya se ha iniciado exotéricamente.
+2. La música será reconocida como medio para construir y destruir, y se estudiarán las leyes de la levitación y el movimiento rítmico de todas las formas, desde un átomo hasta un sistema solar. Se practicará, en los dos planos inferiores, la manipulación de todo tipo de materia por medio del sonido, y cuando esté en proceso de realizarse la síntesis de los cuatro rayos en el tercero, se manifestará un conocimiento similar en el plano mental.
+3. Se permitirá, gradualmente, la publicación exotérica de las leyes del fuego. Existen veintisiete leyes ocultas que, en el estado actual de la evolución, sólo son reveladas después de la iniciación. En ellas se resumen las leyes básicas del color, de la música y del ritmo. Cuando la música produzca calor o estímulo y cuando por ejemplo, en los cuadros resplandezca o se revele lo subjetivo que se halla dentro de lo objetivo, entonces este cuarto Rayo de Armonía alcanzará su fructificación.
 
+Tengamos siempre presente con claridad la numeración de lo Rayos. Los números que preceden a los nombres se relacionan con la séptuple manifestación, y los números que siguen a los nombres tienen relación con la quíntuple manifestación de Brahma. <pin lang="en">428</pin>
 
+|                    |     |                                     |     |
+| ------------------ | --- | ----------------------------------- | --- |
+| Rayos de Aspecto:  | 1.  | Voluntad o Poder.                   |     |
+|                    | 2.  | Amor o Sabiduría                    |     |
+|                    | 3.  | Adaptabilidad o Inteligencia Activa | 1   |
+| Rayos de Atributo: | 4.  | Armonía, Belleza o Arte             | 2   |
+|                    | 5.  | Conocimiento Concreto o Ciencia     | 3   |
+|                    | 6.  | Idealismo Abstracto                 | 4   |
+|                    | 7.  | Magia Ceremonial                    | 5   |
 
+Debemos ahora continuar considerando los cuatro tipos de fuerza que emanan de ciertas grandes Entidades, y los futuros resultados del efecto producido sobre el hombre, recordando siempre que estas cuatro influencias (con su síntesis del tercer Rayo de aspecto) compendian en sí mismas el quinto principio logoico de manas. Son textualmente el efecto radiante de los Manasaputras divinos. A nosotros nos interesa principalmente los resultados que se producirán en los entes de Sus cuerpos.
+
+La entrada al poder de este cuarto Rayo (advenimiento que puede esperarse al fin de este ciclo menor, que se inició en 1924) <pin lang="es">360</pin> producirá en cualquier momento la correspondiente actividad en conexión con el cuarto subplano de cada plano, comenzando por el cuarto éter físico. Esto producirá los siguientes efectos:
+
+Primeramente, los científicos del plano físico podrán hablar con autoridad acerca del cuarto éter, aunque no lo reconozcan como el inferior de los cuatro grados etéricos de sustancia: se comprenderá su esfera de influencia y su utilización, y “la fuerza” llegará a conocerse lo mismo que hoy se conoce el hidrógeno, como un factor de la materia o la manifestación eléctrica de energía dentro de límites precisos. Su manifestación ya puede verse en el descubrimiento del radio, así como en el estudio de las sustancias radiactivas y en la demostración electrónica. Este conocimiento revolucionará la vida del hombre; pondrá en sus manos lo que los ocultistas llaman “poder de cuarto orden” -en el plano físico. Permitirá <pin lang="en">429</pin> utilizar la energía eléctrica para la regulación de su vida diaria en forma hasta ahora incomprensible; producirá nuevos métodos de iluminación y de calefacción a bajo costo y prácticamente sin gasto inicial. Quedará establecida como una realidad la existencia del cuerpo etérico; la curación del cuerpo físico denso a través del cuerpo etérico, mediante la utilización de la fuerza y de la radiación solar, reemplazará a los métodos actuales. La curación entonces asumirá prácticamente dos aspectos:
+
+1. Vitalización por medio de
+   1. la electricidad,
+   2. la irradiación solar y planetaria.
+2. Procesos curativos definidos, gracias al conocimiento oculto de
+   1. los centros de fuerza,
+   2. el trabajo de los devas del cuarto éter.
+
+Los transportes por mar y tierra serán en gran parte reemplazados, utilizándose rutas aéreas y desplazamientos de grandes aparatos a través del aire mediante la instantánea aplicación de la fuerza o energía inherente al éter mismo, que reemplazará los sistemas actuales.
+
+Los estudiantes de religión estudiarán la manifestación de lo que llamarnos “aspecto vida”, así como el científico estudia el llamado aspecto “materia”; ambos llegarán a comprender la estrecha relación que existe entre estos dos aspectos, con lo cual se llenará el antiguo vacío y cesará temporariamente la lucha entre la ciencia y la religión. Se pondrán en práctica métodos precisos para demostrar que la vida persiste después de la muerte del cuerpo físico, y la trama etérica será reconocida como factor operante.
+
+<p><pin lang="es">361</pin> Se buscará la conexión entre los diferentes planos y se estudiará la analogía entre el cuarto subplano etérico y el cuarto plano búdico (el cuarto éter cósmico), pues nos daremos cuenta de que la vida de esas Entidades reconocidas como los Logos planetarios, fluye <pin lang="en">430</pin> a través de nuestro esquema desde el cuarto plano cósmico en sentido muy especial, a través de todas las analogías menores. El alineamiento será el siguiente:</p>
+
+1. El cuarto plano cósmico, el búdico cósmico.
+2. El cuarto éter cósmico, el cuarto plano del sistema, el búdico.
+3. El cuarto subplano, el etérico de nuestro plano físico.
+
+Existe una línea de menor resistencia en los planos del cosmos, que tiene una actividad especial en conexión con los Hombres celestiales, manifestándose en Sus propios planos y, en consecuencia, en conexión con los entes de Sus cuerpos en niveles inferiores. Se reconocerá la existencia de líneas de fuerzas que se extienden por todo nuestro esquema desde fuera del sistema, las cuales serán reconocidas como un hecho; los científicos las interpretaran como fenómenos eléctricos y los religiosos como la vida -fuerza vital de ciertas Entidades.
+
+Los estudiantes de filosofía tratarán simultáneamente de vincular estas dos escuelas de pensamiento, poniendo de manifiesto la inteligente adaptación de los fenómenos eléctricos denominados materia -ese material activo y energetizado que llamamos sustancia- al propósito vital de un Ser cósmico, Por lo tanto, en los tres campos del pensamiento, científico, religioso y filosófico, tenemos el principio de la formación consciente o la construcción del Antakarana, en el grupo designado como la quinta raza raíz.
+
+En el cuarto subplano del plano astral, se observará el proceso de una actividad similar. La afluencia de fuerza originará un estímulo astral en los cuerpos de muchos miembros de la familia humana que todavía se encuentran en dichos subplanos, y hará despertar el deseo de armonía en forma nueva. Este se desarrollará debidamente en la sexta subraza. Se ha de recordar que muchos de los Atlantes (hombres de la cuarta raza raíz) responderán al <pin lang="en">431</pin> estímulo y encarnarán en esa época, porque el cuatro y el seis están íntimamente aliados, Tenemos otra analogía sugestiva en el hecho de que pronto se reconocerá la utilidad de los devas del cuarto éter; y que durante la sexta subraza la evolución dévica será extraordinariamente prominente. El cuarto plano es el de unificación para ciertos entes dévicos y humanos, y ciertos grupos (la cuarta Jerarquía creadora y la sexta Jerarquía dévica) tienen que agotar juntos un gran karma. Podemos ver ahora la suprema <pin lang="es">362</pin> importancia de la Jerarquía humana, la cuarta en el orden consecutivo de planes o ideas:
+
+|                                        |                                                                     |
+| -------------------------------------- | ------------------------------------------------------------------- |
+| Segundo plano cósmico                  | Siete Logos cósmicos                                                |
+| Cuarto plano cósmico                   | Siete Rishis de la Osa Mayor.                                       |
+| Segundo plano solar                    | Siete Hombres celestiales.                                          |
+| Cuarto plano solar                     | Siete centros de los Hombres celestiales en el cuarto éter cósmico. |
+| Cuarto subplano del plano físico solar | Siete centros del ente humano en el éter de cuarto orden.           |
+
+Es evidente la belleza de este método de entrelazamiento, aunque momentáneamente no podamos comprender dónde se halla la relación en esta complejidad de entidades. Se ha de tener en cuenta que siempre consideramos la fuerza o energía vital de dichas entidades a medida que afluye a, y actúa por medio de, formas definidas sustanciales y materiales.
+
+En el cuarto subplano del plano mental habrá en el futuro inmediato un período de evolución intensificada para los entes que salgan de la quinta raza raíz y entren en otra raza, globo, cadena o esquema. En el cuarto subplano del quinto plano, reside el centro de interés y el día de la oportunidad para la raza actual. Aquí podrá observarse el despertar de la conciencia superior y el primer síntoma de que se percibe el cuerpo causal y hay una respuesta vibratoria al mismo. A este <pin lang="en">432</pin> respecto debemos tener siempre presente que la periferia del cuerpo causal incluye a los átomos permanentes es el plano donde se llevan a cabo las pruebas y las iniciaciones mayores del Umbral y el campo de batalla del hombre, y desde allí ha de asegurarse el derecho a entrar en el Sendero, procurando controlar sus cuerpos inferiores que harán de él el amo y no el esclavo.
+
+De esta manera podríamos ampliar el concepto y llenar muchos libros con sugerencias sobre lo que podemos esperar durante los próximos siglos, pero no tiene ningún objeto extendernos sobre ello. Resumiendo estas ideas, podría decirse que en un futuro inmediato las realizaciones consistirán en utilizar la fuerza y la energía eléctricas para ajustar más armoniosamente la vida del hombre.
+
+Podría hacer una o dos sugerencias más acerca de la influencia de este cuarto Rayo de la mente. Primeramente diré que se ha dedicado más tiempo a considerar este Rayo de lo que será posible hacer con los otros, debido a que ocupa un lugar de suma importancia en esta cuarta cadena del esquema terrestre y en el cuarto globo, nuestro planeta. Cada Logos planetario envía Su influencia a las diferentes rondas, planos, cadenas, globos, razas y subrazas, de acuerdo a la relación numérica que tiene con el esquema <pin lang="es">363</pin> del cual Él es la Vida vitalizadora. Momentáneamente, a medida que el ciclo avanza, estas formas se hacen receptivas y negativas, expandiendo así a la influencia positiva del Logos planetario.
+
+Algo más quisiera decir, pero sólo podré insinuarlo porque es de naturaleza esotérica y oculta. En la cuarta Iniciación la fuerza del Logos del cuarto Rayo es un factor vital. Mediante la aplicación del Cetro de Iniciación la energía de Su Vida es aplicada al Iniciado, o la fuerza eléctrica que emana del Cetro circula geométricamente a través de ciertos <pin lang="en">433</pin> centros, produciendo el estímulo necesario. En la quinta Iniciación se siente similarmente la fuerza del tercer Logos, y en la sexta la del segundo Logos, mientras que en la séptima circula por el cuerpo del Chohan el fuego dinámico del primer Logos, todo lo cual podría clasificarse como sigue:
+
+1. La fuerza mágica del séptimo Logos se siente en la primera Iniciación.
+2. El fuego agresivo del sexto Logos se siente en la segunda Iniciación.
+3. La luz iluminadora del quinto Logos se siente en la tercera Iniciación.
+4. La vida armonizadora del cuarto Logos se siente en la cuarta Iniciación.
+5. El poder fusionador del tercer Logos se siente en la quinta Iniciación.
+6. El calor unificador del segundo Logos se siente en la sexta Iniciación.
+7. La electricidad dinámica del primer Logos se siente en la séptima Iniciación.
+
+Vamos a considerar brevemente la influencia futura del tercer rayo manásico de “Conocimiento Concreto o Ciencia”. Como ya se ha dicho en otra parte, este rayo es quien construye las formas, utiliza la materia y da cuerpo a las ideas o entidades, ya sean cósmicas, del sistema, lunares o subhumanas. El Logos planetario de este quinto Rayo del sistema ocupa una posición peculiar en el esquema de las cosas. Personifica el quinto principio logoico de manas; sintetiza los esquemas de los cinco Kumaras, quienes son Brahma, si se los considera como la totalidad del tercer aspecto logoico. Sin embargo, dicho Logos no es el factor sintetizador de los siete esquemas, la total manifestación logoica, considerada como la unión de los aspectos segundo y tercero. Este punto es de primordial importancia y debe recordarse. La influencia de este Logos permite a la materia adaptarse científicamente a la forma; <pin lang="en">434</pin> Su vida unifica siempre el tres y el cinco. Veamos si por medio de un ejemplo podemos simplificar la idea. Como ya se sabe, el quinto Rayo personifica el quinto principio. Por lo tanto Su influencia se hará sentir siempre en Sus correspondencias numéricas, <pin lang="es">364</pin> porque es el Señor del quinto Rayo del sistema y el Regente del tercer Rayo manásico, si consideramos únicamente el tercer aspecto. En el momento de la individualización, o al venir a la encarnación los entes autoconscientes el quinto principio vinculó los tres superiores con los cuatro inferiores. Esto tuvo lugar en la tercera raza raíz y produjo una forma en la que habitó el Espíritu en el tercer subplano del quinto plano. Todas estas analogías merecen ser estudiadas detenidamente, pues la relación numérica no es casual. El poder del Señor del quinto Rayo del sistema actuó a través de ciertos esquemas, cadenas y globos y produjo ciertos resultados en las células y conglomerados de células en el cuerpo de nuestro particular Logos planetario. Este ejemplo se da a fin de elucidar e indicar la influencia relativamente importante que tiene un Logos planetario sobre otro durante las diferentes etapas de la evolución.
+
+Dicha influencia ha crecido y menguado desde entonces, desapareció durante la cuarta raza raíz y aumenta constantemente durante la actual quinta raza o Aria. La influencia del Logos planetario correspondiente no ha alcanzado todavía el cenit de su poder en nuestra raza. Durante el período inmediato Su fuerza eléctrica energetizadora afluirá a nuestro planeta y traerá nuevos descubrimientos relacionados con la materia y la forma, obteniéndose nuevas revelaciones concernientes a la energía de la materia.
+
+Durante las subrazas venideras el ciclo de este Logos empezará a desvanecerse mientras que la influencia de Su Hermano el cuarto Logos de Armonía alcanzará su cenit en esta ronda. Durante la quinta ronda el poder o radiación eléctrica del quinto Logos se sentirá de nuevo fuertemente porque es Su ronda; y así como Él fue en gran parte responsable del estímulo manásico dado al hombre-animal en la tercera raza raíz, también en <pin lang="en">435</pin> la quinta ronda será uno de los factores responsables que producirá esa gran separación denominada “Día del Juicio”. Recuérdese respecto a esto que dichos Logos -cuando ejercen su influencia a través de un esquema o cualquier septenario operan por medio de sus correspondencias numéricas en las cadenas y globos. Durante la quinta ronda, por ejemplo, o en la quinta cadena (un centro en el cuerpo del Hombre celestial), recibirá este quinto tipo de fuerza, la transmitirá y la hará circular a través de otras cadenas, por medio del quinto globo de dichas cadenas. Hasta que la raza no haya evolucionado más, el misterio quedará sin develar, y la incapacidad del hombre para descubrir la numeración de los esquemas, cadenas y globos, o para saber si se cuentan de adentro afuera o viceversa, permitirá ocultar lo que ha de quedar incógnito.
+
+La influencia de este quinto Logos se hará sentir ahora de <pin lang="es">365</pin> manera muy considerable en el quinto subplano de todos los planos, especialmente en los tres mundos del esfuerzo humano, y como aquí nos ocupamos del hombre, podemos contar de “abajo arriba” como erróneamente se dice. Por lo tanto la unidad mental de los hombres en esta quinta subraza, recibirá un acrecentado estímulo que permitirá al hombre vibrar en el quinto subplano, que literalmente es el tercer subplano del nivel abstracto del plano mental, donde se halla el cuerpo causal. En consecuencia, la quinta espirilla entrará en actividad, y la fuerza eléctrica o corriente fohática fluirá a través de ella, permitiendo a los hombres que hayan alcanzado la adecuada etapa, utilizar esta fuerza a fin de pasar la primera iniciación.
+
+A medida que esta quinta influencia se haga sentir cada vez mas, sus efectos se percibirán en el plano astral como control consciente e inteligente, basado no tanto en el deseo de obtener armonía, sino en el deseo de manipular, en forma científica e inteligente, la materia astral. Cuando ello ocurra, comenzará a hacerse sentir el psiquismo superior. En el plano físico presenciaremos gran número de interesantes fenómenos eléctricos, y el Manu tendrá grandes <pin lang="en">436</pin> oportunidades para separar razas, segregar tipos y sumergir y desprender continentes. Éste es el rayo de la fuerza separatista, y el lugar que ocupa como factor en la construcción y destrucción de formas es muy interesante.
+
+Cabría aquí preguntar ¿Cómo podría interpretarse todo esto en términos de fuego, a fin de conservar la solidez de la forma mental de este libro? Siempre que se emplean las palabras influencia, radiación o poder de un Rayo, se ha de inferir que tratamos de fenómenos eléctricos o energía de alguna clase. Esta energía o manifestación eléctrica, este “misterio de la electricidad” al cual H. P. B. se refiere [^23], es la base de toda manifestación y se halla detrás de toda evolución. Produce una luz que va siendo cada vez más brillante; construye y moldea la forma de acuerdo a las necesidades de la entidad inmanente; produce coherencia y actividad grupales: es el calor que produce todo crecimiento e impulsa no sólo las manifestaciones de los reinos vegetal y animal sino que induce a la interacción entre los entes humanos, y se halla detrás de todas las relaciones humanas. Es magnetismo, radiación, atracción, repulsión, vida, muerte y todas las cosas; es propósito consciente y voluntad esencial en manifestación objetiva, y quien haya descubierto lo que se halla detrás de los fenómenos eléctricos ha resuelto no sólo el secreto de su propio Ser, sino que conoce su lugar dentro de la esfera mayor, el Logos planetario; es consciente de la Identidad de esa Existencia cósmica que llamamos Logos solar, y sabe más o <pin lang="es">366</pin> menos el lugar que ocupa nuestro sistema y su relación eléctrica con las siete constelaciones.
+
+Corresponde ahora tratar la influencia ejercida por una fuerza que está decreciendo y perdiendo su predominio, la del sexto Rayo de Devoción o Idealismo. No será posible decir mucho acerca de éste, aparte de exponer ciertas ideas generales que serán de utilidad para alcanzar una perspectiva general de los ciclos de Rayo.
+
+<p><pin lang="en">437</pin> Estas influencias de rayo actúan, en todos los casos, a través de sus puntos focales (macro y microcósmico) constituyendo los centros etéricos. En lo que respecta a todos los seres, dichos centros son siete y están formados de entes dévicos y humanos que actúan grupalmente, o de vórtices de fuerza que contienen en latencia y mantienen en actividad ordenada células que tienen la potencialidad de manifestarse en forma humana. No ha de olvidarse la verdad esotérica de que todas las formas de existencia pasan, en alguna etapa de su carrera, por el reino humano.</p>
+
+Los Rayos cósmicos, que vienen de fuera del sistema, hacen impacto sobre, y a través de, los centros que se hallan en el segundo éter cósmico, pero en el actual estado de objetividad, se hacen visibles en el cuarto éter cósmico del sistema, el plano búdico.
+
+Uno de los Rayos cósmicos permanentes es el de nuestro Logos, y los subrayos de este rayo impregnan todo Su sistema. Otros seis Rayos cósmicos, que animan a otros sistemas, influyen sobre el nuestro y se reflejan en los subrayos de nuestro Rayo logoico. Nuestros Hombres celestiales responden a estas seis influencias cósmicas. Absorben dicha influencia puesto que son centros del cuerpo logoico, la pasan a través de Sus esquemas, la hacen circular por Sus centros (cadenas) y la transmiten a otros esquemas, coloreándola con Su matiz y cualificándola con Su nota o tono peculiar. Todo el sistema de influencia de rayo o calor irradiante, considerado tanto física como síquicamente, constituye una interacción y circulación intrincadas. La irradiación o vibración pasa, en ciclos ordenados, de su fuente original, o sea el Rayo Uno o Logos del sistema, a los diferentes centros de Su cuerpo. Desde el punto de vista físico, esta fuerza de Rayo es el factor que energetiza la materia, desde el punto de vista síquico es la facultad cualitativa. Esta fuerza o cualidad pasa y circula de un esquema a otro, de una cadena a otra, de un globo a otro, agregando y, al mismo tiempo, absorbiendo y retornando a su punto focal con dos notables diferencias: <pin lang="en">438</pin>
+
+1. El calor que irradia se intensifica.
+2. El carácter o color cualitativo aumenta.
+
+Es igualmente notable el efecto que produce sobre la forma, pues el calor o cualidad de un Rayo afecta no solo a la psiquis del <pin lang="es">367</pin> hombre, del Logos planetario y del Logos solar, sino que también tiene un efecto definido sobre la sustancia material misma.
+
+Las influencias de Rayo actúan igualmente sobre las Jerarquías dévica y humana, puesto que lo hacen en un cuerpo planetario o logoico. Se podrá aclarar la idea si tenemos presente que todas las formas son duales, tanto en la evolución como en su naturaleza esencial, producto del trabajo de los Constructores (fuerzas dévicas) y de la inteligencia activa (entes humanos); ambos son indivisibles en el divino Hermafrodita u Hombre celestial; siendo estimulados en ambos aspectos de su Ser por la influencia que ejerce el rayo. Clasificaremos estas ideas de la manera siguiente:
+
+|     | Entidad          | Centros de Fuerza                                   | Manifestación síquica                                         | Manifestación física |
+| --- | ---------------- | --------------------------------------------------- | ------------------------------------------------------------- |
+| 1   | Logos solar      | Hombres celestiales. Energetizan y son vida activa. | Devas constructores. Trabajan con materia; mantienen la vida. | Un sistema solar     |
+| 2   | Logos Planetario | Entes grupales humanos                              | Devas constructores                                           | Un esquema           |
+| 3   | Un hombre        | Siete centros etéricos                              | Constructores elementales                                     | Los cuerpos          |
+
+Cada una de estas divisiones puede ser estudiada por separado y, en el transcurso del tiempo (cuando se pueda transmitir más libremente y sin peligro la información acerca de los devas), se verá que el Señor deva de un plano, por ejemplo, actúa a través de centros de fuerza, se manifiesta objetivamente por medio del color, que es su expresión síquica, y anima la materia de <pin lang="en">439</pin> un plano así como un Hombre celestial anima Su esquema. La idea puede extenderse también a las cadenas, globos, razas y rondas. Siempre existe la dualidad -las manifestaciones humana y dévica son la suma total y siempre irán a la par la energía y la cualidad.
+
+Al desvanecerse la influencia de rayo en una raza, un planeta, un esquema o un sistema solar, no ha de suponerse que se anula por completo, simplemente ha pasado más allá de la periferia de cualquier “círculo no se pasa” que ha estado energetizando, y la fuerza de Su influencia se enfoca en otra parte. El receptor original se convierte en canal o agente transmisor y no en recipiente o absorbente. Nuevamente las palabras entorpecen y demuestran cuan inadecuadas son para expresar una idea. Lo que el estudiante debe reconocer es que, durante el ciclo de influencia de un rayo, el objeto de su atención inmediata es recibir dicha influencia y absorberla, transmutándola de acuerdo a su necesidad; por lo tanto no queda mucha influencia disponible para ser trasmitida. Cuando <pin lang="es">368</pin> el ciclo se acerca a su término se hará sentir cada vez más en otro lugar la influencia del rayo o magnetismo, hasta que, prácticamente, ésta haya pasado sin ser absorbida.
+
+Esto es, precisamente, lo que comienza a suceder en relación con el sexto Rayo de Devoción. Los Egos que se encuentran en dicho Rayo tomarán forma en otros globos y cadenas y no tanto en nuestro planeta. En lo que a nosotros respecta, las vibraciones de ese Rayo se aquietarán, aumentando su actividad en otro lugar. En otras palabras, podemos decir que nuestro planeta y todo lo que éste contiene se convertirá en positivo, ya no será receptivo, y rechazará momentáneamente este tipo particular de fuerza. Una manifestación síquica de esto puede observarse en el decreciente entusiasmo cristiano. Dicho rayo, al cual pertenece el Chohan Jesús no derramará su fuerza, como lo ha hecho hasta ahora sobre la forma que El construyó y, lógicamente, se desintegrará en forma lenta, pero segura, después de haber servido su propósito <pin lang="en">440</pin> cerca de dos mil años. Más tarde esta misma fuerza volverá a hacerse sentir y una nueva forma vendrá lentamente al ser, pero en forma más adecuada.
+
+En consecuencia, se evidencia que el conocimiento de estos ciclos y de la fuerza de la manifestación u oscuración de un Rayo, conducirán con el tiempo a actuar con la Ley y a colaborar inteligentemente con el plan de la evolución. Puede afirmarse aquí que los siete Kumaras (los cuatro exotéricos y los tres esotéricos) colaboran con esta ley y actúan, esotérica o exotéricamente, de acuerdo al Rayo que está asumiendo el poder, excepto el primer Kumara o Logos de nuestro esquema quien, por ser el punto sintetizador de todos, permanece siempre en actividad objetiva.
+
+La actividad de este sexto Rayo rige la oscuración o manifestación de un sistema y de un esquema, con todo lo que influyen tales manifestaciones. De allí el énfasis que todos los libros de ocultismo ponen en el estudio de los ciclos y en la diferenciación de los cien años de Brahma en sus partes componentes. Este conocimiento encierra el misterio del Ser, de la fuerza eléctrica y de la síntesis fohática.
+
+No haré mayores comentarios sobre los efectos futuros del Rayo que está entrando en una oscuración temporaria, en lo que a nosotros concierne. Más adelante trataremos con mayor extensión de la que se ha dado a los otros Rayos, el tema del séptimo tipo de fuerza que está asumiendo el poder, por lo tanto, es un factor vital en la evolución inmediata del hombre.
+
+El quinto principio de Manas ya empieza a manifestarse, principalmente, por medio del séptimo tipo de fuerza (el quinto, si consideramos únicamente el aspecto Brahma de la manifestación). Por <pin lang="es">369</pin> consiguiente, se evidenciará de inmediato que este Rayo entrante se halla en la actualidad en una situación peculiar y su influencia se manifestará bajo condiciones muy favorables. Está derramando su fuerza sobre el <pin lang="en">441</pin> séptimo plano, el físico, durante la quinta raza raíz y la quinta subraza, en consecuencia, la oportunidad es grande. En todo lo dicho con respecto a los Rayos es evidente que desde el presente punto de vista dos de ellos conciernen predominantemente a la evolución del hombre: El Cuarto Rayo de Armonía, que es el Rayo dominante del ciclo mayor, incluyendo la cuarta ronda y el cuarto globo, y el Séptimo Rayo de Magia Ceremonial, una de las principales influencias relacionada con todas las manifestaciones objetivas. Estos dos Rayos o la fuerza de estos dos Logos planetarios son, en gran parte, el instrumento para producir coherencia en nuestra cadena, la cuarta del cuarto esquema, y en nuestro globo físico, la Tierra. El cuarto y el séptimo actúan recíprocamente; uno actúa temporariamente como fuerza negativa y el otro como fuerza positiva.
+
+El quinto Kumara, el Señor del séptimo Rayo (porque es necesario tener en cuenta Su posición dual como uno de los vórtices de la estrella de cinco puntas de Brahma, y como uno de los triángulos del séptuple cuerpo logoico) ocupa la posición peculiar de Regente de los Devas Constructores del plano físico, los devas de los éteres en colaboración con su Señor deva, quien guía y dirige la producción de la forma, valiéndose de ciertas palabras esotéricas Trabaja por medio del cuerpo etérico de todas las formas y gracias a la fuerza que fluye de El podemos esperar ese acrecentado estímulo en la materia del cerebro etérico, la cual hará que el cerebro físico pueda recibir la reveladora verdad superior; ello pondrá en manos de los cientificos los secretos de los éteres cuarto y tercero. El desarrollo de la materia del cerebro se efectúa paralelamente a la de su analogía atómica: en la vitalización de la quinta espirilla y en la consiguiente acción refleja de la séptima, se ha de ver en qué forma la mente del hombre alcanza proporciones y realizaciones inimaginables, ni soñadas hasta ahora.
+
+<p><pin lang="en">442</pin> Podemos considerar en tres direcciones el efecto de esta fuerza entrante:</p>
+
+Primero. El tipo de fuerza o la cualidad logoica, con sus funciones y objetivos.
+
+Segundo. Su trabajo en relación con
+
+1. el reino animal,
+2. el reino humano,
+3. el reino dévico.
+
+Tercero. Los resultados que se pueden esperar durante los siglos venideros.
+
+<p><pin lang="es">370</pin> El tipo de fuerza, es decir, la naturaleza del Hombre celestial del séptimo Rayo, es fundamentalmente constructivo. Será necesario que tratemos aquí algo sobre Su carácter y el lugar que ocupa en el esquema logoico, pero advirtiendo la necesidad de abstenerse de personificar y exteriorizar. El Hombre celestial del esquema que personifica al Rayo de Magia Ceremonial es uno de los transmisores principales de la radiación del Sol al sistema, y tiene estrecha conexión con el kundalini logoico. Aquí hay una insinuación. El Señor Raja de los niveles etéricos del plano físico trabaja en estrecha asociación con Él; esto se comprenderá si tenemos en cuenta que el Señor de un plano constituye la actividad personificada de dicho plano. Es la fuerza energetizadora que se expresa como identidad unificada en la materia de un plano; por consiguiente, tendremos alguna idea de la coherencia de Su mutuo trabajo, si tenemos en cuenta que:</p>
+
+El Señor Raja de un plano es la suma total de la sustancia de ese plano.
+
+El Logos planetario, que está más estrechamente vinculado con cualquier plano determinado, constituye su cualidad y color.
+
+Todo se realiza gracias a la acción y trabajo mancomunado de ambas Entidades -el Señor de los Constructores construye <pin lang="en">443</pin> las formas que el Señor de la Vida utiliza para desarrollar la conciencia interna.
+
+La fuerza o vibración de cualquier Rayo se puede compendiar como:
+
+1. El propósito inteligente de una Entidad, un Logos planetario.
+2. Su energía vital actuando en Su cuerpo de manifestación por medio de, y sobre Él.
+3. Su radiación magnética al afectar (aunque en grado menor) a Sus Hermanos en manifestación.
+4. Su cualidad o color peculiar, su principal aspecto psicológico, manifestándose por medio de Sus propias actividades, dentro de Su propio esquema.
+5. El efecto de esa cualidad, según la influencia de Sus Hermanos, dentro del cuerpo colectivo del Logos solar.
+6. Su fuerza vital, al irradiarla más allá de su propia periferia como energía activa y actividad estimulante, por ser, literalmente, uno de los aspectos de Fohat. El aspecto actividad de un Hombre celestial es un aspecto de Fohat, así como Brahma es la suma total de Fohat. En virtud de su <pin lang="es">371</pin> manifestación física los Hombres celestiales y Sus Hermanos son Fohat.
+
+Si se tiene esto en cuenta, se verá que cada uno de los Logos planetarios, conjuntamente con un Logos solar y Sus reflejos, los seres humanos, se manifiestan por medio de aspectos.
+
+En su totalidad son la expresión del Logos encarnante; en un caso Su energía fohática construye los reinos de la naturaleza proporcionándoles un Cuerpo; en otro, les proporciona su valor síquico y, finalmente, por medio de todos ellos, se manifiesta como Existencia o Ser. Se pueden establecer clasificaciones similares respecto a un Hombre celestial y a un ser humano, haciendo resaltar siempre el desarrollo del aspecto medio o síquico.
+
+<p><pin lang="en">444</pin> Teniendo presente estas ideas se podría <pin lang="en">445</pin> percibir con mayor claridad lo que implica la entrada o salida de un Rayo como el actual. En el caso particular que consideramos tenemos la entrada de un Rayo que está íntimamente vinculado con el plano de manifestación, el físico, el cual es (dentro del ciclo mayor) responsable de la existencia misma del hombre y la fuente de su esperanza futura.</p>
+
+Este séptimo Rayo (quinto) se manifiesta siempre durante el período de transición de un reino a otro; lo cual encierra el misterio de la forma particular en que ha de prestar servicio su Logos planetario. Rige los procesos de:
+
+1. Transmutación.
+2. Encarnación.
+3. Trasferencia.
+
+En estas tres palabras está compendiado Su trabajo vital y expresada la naturaleza de esta gran Entidad que preside los procesos de mezclar, fusionar y adaptar. Dicha Entidad mediante el conocimiento del Sonido cósmico, guía a las fuerzas de vida de ciertas entidades solares y lunares de una forma a otra y constituye el vinculo existente entre el alma que espera encarnar y su cuerpo de manifestación. Esto es verdad respecto a la encarnación de un hombre, un grupo, una idea o de todas las entidades de grado menor al del Ser solar, que se manifiestan a través de un globo, o el regente del globo regido por el Logos planetario. Todas las entidades de rango superior al de este gran Ser evolutivo vienen a la encarnación mediante el trabajo vinculador de un Ser que se halla fuera del sistema. En todos los períodos de transferencia de la vida de un sistema a otro, un esquema a otro, una cadena a otra, <pin lang="es">372</pin>
+
+#### III. CLASIFICACIÓN - LOS ASPECTOS Y LA EVOLUCIÓN
+
+| Aspecto                                  | Manifestación             | Objetivamente                                                                 | Subjetivamente        | Aspecto Evolutivo                                     |
+| ---------------------------------------- | ------------------------- | ----------------------------------------------------------------------------- | --------------------- | ----------------------------------------------------- |
+| Actividad                                | Los Siete Hermanos        | Siete Centros Etéricos                                                        | Siete Tipos de Fuerza | Involución y Evolución de los reinos de la naturaleza |
+|                                          | Suma Total ..........     | Fuego por Fricción, Brahma o aspecto materia. La Madre.                       |                       |                                                       |
+| Amor-Sabiduría <br/> Dragón de Sabiduría | Siete Hombres celestiales | Siete Esquemas                                                                | Siete Rayos           | Siete tipos de Mónadas humanas y dévicas              |
+|                                          | Suma Total.............   | Fuego solar. Aspecto Vishnú. Subjetividad o psiquis. El Hijo en manifestación |                       |                                                       |
+| Voluntad                                 | Siete Entidades cósmicas  | Siete Hombres celestiales                                                     | Siete cualidades      | Siete Jerarquías                                      |
+|                                          | Suma Total...........     | Fuego Eléctrico, la Vida Una. Mahadeva. Espíritu                              |                       |                                                       |
+
+<p><pin lang="es">373</pin> esta Deidad cósmica ejerce Su poder e influencia. En todos los períodos de menor transición de la vida producida <pin lang="en">446</pin></p>
+
+1. de un globo a otro,
+2. un plano a otro,
+3. un reino de la naturaleza a otro,
+
+el Señor del séptimo Rayo desempeña una función similar. En esto reside la razón de por qué Su fuerza afluye en la actualidad, pues es necesario un profundo movimiento de realización y se está produciendo una transferencia que demanda Su tipo de energía particular. Se están transfiriendo ciertos grupos de Mónadas humanas y dévicas, del reino humano al quinto o espiritual. Durante Su ciclo, que durará más o menos dos mil quinientos años, un número específico de hombres entrarán en el Sendero de Iniciación y por lo menos recibirán la primera Iniciación, transfiriendo así su centro de conciencia de lo puramente humano a las primeras etapas de lo espiritual.
+
+Durante este mismo ciclo tendrá lugar una transferencia de unidades del reino animal al humano, en la quinta cadena, y de ésta a otra, produciendo un periodo de actividad aún mayor que la de nuestro propio globo. Similarmente, puede decirse (aunque no es posible dar más que un indicio), que la fuerza del Transferidor cósmico está entrando en actividad, debido a la transferencia, durante este ciclo, de un grupo especial de entes altamente avanzados de los reinos humano y dévico (miembros de la Jerarquía oculta) a otro esquema. También ciertos entes entre los Señores Lipikas están aprovechando esta influencia cósmica para transferir su actividad a otro sistema, dando lugar a otros, Quienes agotarán el karma de la nueva era. El poder de estos agentes impregna todo el globo y se extiende a todas las cadenas y esquemas que se encuentran en su camino. Afectará fundamentalmente al reino vegetal, oscureciendo viejas especies y trayendo nuevas; actuará en el reino mineral y dará un nuevo ímpetu a los procesos químicos, poniendo en libertad, incidentalmente, <pin lang="en">447</pin> a unidades radiactivas, con la consiguiente ampliación de los conocimientos de la ciencia. Los reinos elementales y las almas grupales que en ellos se encuentran, facilitarán la transferencia de átomos.
+
+Los efectos de este Rayo son de gran alcance tanto en los entes dévicos como en los humanos en sus diferentes mundos, lo cual creara nuevos medio ambientes para utilizar los nuevos tipos y harán que surjan características totalmente nuevas en la raza humana.
+
+Hemos considerado, en cierta medida, el tipo de fuerza que se expresará por medio del séptimo Rayo; hemos visto que es el gran <pin lang="es">374</pin> agente del Logos, que transmuta y transfiere. Hemos visto también que ejerce un poderoso efecto, tanto en los entes dévicos como en los humanos; hemos encontrado que la principal función del Logos del séptimo Rayo es, más que nada, la adaptación o modelamiento de la forma, para adecuarla a las necesidades de cualquier Entidad particular. En todo trabajo constructivo de crear formas entran ciertos factores que es necesario enumerar, porque conciernen vitalmente a este particular Hombre celestial y al plano físico, en el cual estamos sometidos a la experiencia. Estos factores son:
+
+Primero. La voluntad o propósito centralizado de alguna entidad.
+
+Segundo. El material por medio del cual la vida se propone manifestarse Dicho material, como sabemos, se encuentra en siete grados y en cuarenta y nueve sub grados dentro del “círculo no se pasa”.
+
+Tercero. Los Constructores que son el vehículo del propósito divino y moldean la materia de acuerdo a un plan determinado. Estos constructores desarrollan las formas de su propia naturaleza y sustancia
+
+Cuarto. El plan, de acuerdo al cual se desarrolla el trabajo; el plan es impartido a los Constructores y está latente en su conciencia. Desarrollan de adentro afuera la forma del Gran Hombre celestial de los Hombres celestiales de los entes humanos <pin lang="en">448</pin> y de todas las formas, y producen las Existencias autoidentificadas, de manera similar a como la madre construye y produce con materia de su propio cuerpo un Hijo consciente que evidenciará ciertas tendencias raciales; sin embargo será independiente, tendrá conciencia y voluntad propias y se manifestará en forma triple. Se ha de tener siempre en cuenta la similitud que existe entre la evolución dévica y la esencia que ellas manipulan.
+
+Finalmente. Ciertas palabras o sonidos mántricos [^24] los cuales <pin lang="en">449</pin> -emitidos por una Vida mayor- siempre impulsan a las vidas <pin lang="es">375</pin> menores a cumplir un propósito constructivo. Dichas Palabras son pronunciadas por:
+
+1. Un Logos solar. La triple Palabra da lugar a una séptuple vibración.
+2. Un Hombre celestial, que al pronunciarla lleva a Su esquema y a todo lo que contiene la objetividad evolutiva.
+3. La Mónada, cuya triple palabra da lugar a una séptuple vibración.
+4. El Ego, quien al pronunciarla en forma sonora, produce un ser humano en los tres mundos.
+
+Deberá observarse detenidamente la analogía que existe entre estos cuatro.
+
+<p><pin lang="es">376</pin> Ciertas Palabras corresponden a distintos aspectos; las Palabras del primer aspecto ponen en vibración a la materia que evoluciona a través de los siete ciclos de sistemas solares; su relación con las Palabras del presente sistema solar, es análoga a la que existe con la sustancia primordial, base de nuestra presente creación. Las Palabras del segundo aspecto nos conciernen muy de cerca, aunque las Palabras de Brahma están, en la presente etapa, más estrechamente conectadas con nuestro trabajo en el plano físico. Tales Palabras, en lo que respecta a los tres mundos, constituyen, en gran parte, un grupo de mántram, oculto en la conciencia de los Señores de los Rayos quinto y séptimo; mediante la emisión inteligente de dichas Palabras, el tercer aspecto (el aspecto Brahma o manásico) se pone en contacto con el primer aspecto y produce lo que llamamos el “Hijo Consciente” o Sol. En el plano mental las Palabras son emitidas por el Señor del quinto Rayo, causando una vibración no sólo en lo que podríamos denominar 'los niveles inferiores”, sino que produce también una respuesta en el plano primero o arquetípico <pin lang="en">450</pin> e igualmente en el plano mental cósmico. Las Palabras emitidas por el séptimo Logos, en el plano físico, producen los resultados siguientes:</p>
+
+Primero. Introducen los átomos permanentes dentro de su alma grupal, o sea la unión de la materia y la conciencia.
+
+Segundo. Conducen la corriente de vida a cualquier reino determinado, o sea la fusión de las forma y la conciencia.
+
+Tercero. Transfieren la vida consciente y sensible de una forma a otra, de un grupo a otro, de un reino a otro, dentro de las jerarquías.
+
+El quinto Rayo tuvo que actuar o ejercer su influencia, en conexión con el reino humano, a fin de producir la autoconciencia dentro de la forma consciente.
+
+En consecuencia, podrá observarse que cuando el adepto entrenado emite el sonido a través de la línea de fuerza, no sólo puede utilizar la actividad dévica para producir ciertos resultados en conexión con el aspecto forma de la manifestación, sino también impulsar a la vida interna a que desarrolle una actividad definida. De allí el gran peligro, como ya se ha dicho frecuentemente, de dar a conocer estos mántram, y la necesidad de evitar su tergiversación y mal uso. El poder que domina la forma y la fuerza, se halla en las manos de quienes han realizado tres cosas
+
+Primero. Han desarrollado la conciencia del grupo del cual forman parte.
+
+Segundo. Han aprendido el secreto de las notas y los tonos a los cuales responde dicho grupo. <pin lang="es">377</pin>
+
+Tercero. Han aprendido cierto conjunto de palabras y frases y el método adecuado de entonarlas y cantarlas.
+
+No pueden obtener resultados fuera de la periferia del grupo de cuya conciencia participan. Por ejemplo: Un adepto puede trabajar con las formas y las fuerzas dentro <pin lang="en">451</pin> del “círculo no se pasa” de su propio Logos planetario, dentro de los tres mundos, dentro del “circulo no se pasa” del polo opuesto de su Logos o del “círculo no se pasa” de los tres Logos planetarios que forman un triángulo en el sistema. Tampoco puede ejercer este poder en los planos superiores ni dentro de las esferas de los esquemas sintetizadores y neutrales. Después de la sexta Iniciación su poder se extiende a los dos planos más allá de los tres mundos, el búdico y el átmico, y dentro de las esferas de todo el aspecto Brahma, y si lo visualizamos como la totalidad de los esquemas de los cinco Kumaras, constituyen Brahma. En la séptima Iniciación, el adepto ejerce poder en los siete planos y en todos los esquemas, conoce todas las Palabras sagradas y puede trabajar con materia de todos los grados, emitir todas las notas y controlar todos los tipos de fuerza. Está en condiciones de guiar la vida hacia regiones fuera de la esfera solar de influencia. Pero en el plano físico trabaja principalmente con las palabras del séptimo Logos, clasificadas en cinco grupos:
+
+1. Mántram que se refieren a la materia etérica y controlan a los devas de los éteres.
+2. Mántram que se relacionan con la materia física densa y controlan a la evolución subhumana, por medio de ciertos grupos de devas.
+3. Palabras especialmente vinculadas a la Jerarquía humana, que están muy cuidadosamente resguardadas para que el hombre no las conozca.
+4. Palabras concernientes a la evolución dévica, las cuales controlan y someten, a diferentes grupos de devas, a la voluntad de quien las emite. Estas son, en muchos sentidos, las más peligrosas y todo conocimiento respecto a ellas no es impartido a ningún hombre cuyo rango sea inferior al de un iniciado de tercer orden.
+5. Palabras que afectan al aspecto vida de la manifestación y que introducen la vida en la forma o la extraen de ella.
+
+<p><pin lang="en">452</pin> Hay un sexto grupo, estrechamente vinculado con la manifestación eléctrica, que comienza a manifestarse en las fórmulas de los científicos y de los estudiantes de radiactividad y de fenómenos eléctricos; pero, afortunadamente para ellos, son todavía fórmulas escritas y no son revestidas de sonido.</p>
+
+<p><pin lang="es">378</pin> En esta breve dilucidación del tema de los mántram, hemos podido reconocer que “aún no ha llegado el momento” para su publicación. La difusión de las fórmulas mántricas no tendría ninguna finalidad inmediata. Inevitablemente llegará el día en que serán conocidas, pero en la actualidad su conocimiento no beneficiará a nadie por las siguientes razones:</p>
+
+1. No es suficiente conocer las cosas ocultas para utilizarlas inteligentemente.
+2. Es mucho más beneficioso para el Ego desarrollar la intuición por medio de la aspiración, el esfuerzo, el fracaso y el renovado esfuerzo, a fin de lograr el triunfo, que los rápidos resultados obtenidos mediante el empleo del sonido.
+3. Las “Palabras” se emplean para manipular la materia y moldearla en la forma, de acuerdo a la línea de evolución. Mientras la facultad interna de clarividencia no se haya desarrollado en cierta medida, el conocimiento de los mántram es prácticamente inútil, y hasta puede constituir una amenaza. Cuando un hombre ve que es necesario corregir o reajustar el vehículo de un hermano y es capaz de despertar en éste el deseo de corregir lo incorrecto puede ayudarlo inteligentemente gracias a la visión y al sonido. Reflexionen sobre esto porque explica la razón para resguardar dichas palabras.
+4. Antes de que los sonidos puedan ser comunicados ha de haber desinterés, visión y sinceridad de propósito. Algunas veces hay desinterés y sinceridad, pero el uso esotérico de la visión interna es todavía muy raro.
+
+Se ha de recordar (al estudiar el tema del Rayo entrante, los efectos que pueden esperarse de su influencia) que sólo estamos considerando el aspecto <pin lang="en">453</pin> mente de las tres evoluciones. No tengo la intención de decir mucho sobre el desarrollo humano, aparte de lo que ya se ha indicado en páginas anteriores; una insinuación será suficiente para el verdadero estudiante; sin embargo, puedo dar un amplio delineamiento de los desenvolvimientos venideros y clasificar los resultados que se han de esperar. Sólo son posibles algunas sugerencias.
+
+**Desenvolvimiento universal de la visión etérica**. Obedece a dos causas:
+
+1. Primero, al reconocimiento científico de que existen niveles etéricos lo cual liberará a las personas del temor a la opinión pública adversa, permitiéndoles revelar lo que individualmente sabían hace tiempo. Incluso hoy la visión etérica es relativamente común: pero rara vez se comenta por temor a ser criticado.
+
+2. Segundo, a la creciente actividad que despliegan los devas de los éteres, quienes infunden una mayor vibración activa a la <pin lang="es">379</pin> materia de los niveles etéricos, con la consiguiente acción refleja en el ojo del hombre.
+
+**Acrecentada actividad mental y la difusión de la educación de tipo mental concreta**. Esto dará por resultado:
+
+1. La acrecentada competencia entre entes y grupos.
+2. La organización de los negocios en líneas hasta ahora no soñadas.
+3. La fundación de grupos y conglomerados de grupos, cuyo único propósito será sintetizar todas las líneas del esfuerzo humano, a fin de unificar los esfuerzos y economizar fuerzas en los mundos científico, comercial, filosófico, educativo y religioso.
+4. La fundación de facultades de medicina, de acuerdo a las nuevas líneas, cuya finalidad será estudiar el cuerpo etérico, su relación con el físico denso y sus funciones <pin lang="en">454</pin> como receptor, acumulador y transmisor de los fluidos vitales del sistema.
+5. La fundación de una nueva Iglesia, la cual ya no tendrá sentido devocional o idealista, sino que será un retoño del antiguo idealismo manifestándose por medio de formas mentales, se basará en el reconocimiento científico de la existencia de los mundos invisibles y su debida comprensión y corroboración, por medio de un ajustado ceremonial científico. Este ceremonial de la Iglesia Universal, por cimentarse en la unidad mental de todos los pueblos, no será como el conocido actualmente, constituirá la cuidadosa y dirigida utilización científica del sonido y del color, para producir ciertos fines deseados, tales como alinear el Ego, influenciar a los grupos, establecer contacto con la Jerarquía oculta, colaborar con los devas a fin de desarrollar los fines constructivos de la evolución, y muchas otras cosas que surgirán cuando la ciencia comprenda la constitución del hombre, la naturaleza de la vibración o radiactividad, y la comprobada realidad de lo que hasta ahora sólo fueron hipótesis metafísicas y dogmas religiosos acerca del mundo invisible, del pensamiento y de la existencia espiritual.
+
+**Una acrecentada facilidad para acercarse al Sendero**. Esto tendrá su fundamento en el hecho de que muchos seres humanos poseerán un conocimiento personal de los poderes y de las fuerzas regentes y, probablemente ya se hallarán en el Sendero de Probación o serán iniciados de primer grado. De esta manera, se <pin lang="es">380</pin> desvanecerá el actual escepticismo. El peligro entonces provendrá de otra dirección, se derivará de la influencia misma de este Rayo: el peligro de cristalizarse en la forma hará que el verdadero y fervoroso espiritualista llegue a ser algo raro siendo reemplazado por el aspirante científico. <pin lang="en">455</pin> El ocultista verdadero es científico y consagrado; si ambos no se fusionan, el místico y el hombre están en peligro de practicar magia negra, pues los rige el intelecto y no el desinterés. Hay también peligros incidentales que derivan del contacto con la evolución dévica y del conocimiento de los poderes y fuerzas disponibles por intermedio de la misma.
+
+:::note Recuerda
+
+El ocultista verdadero es científico y consagrado; si ambos no se fusionan, el místico y el hombre están en peligro de practicar magia negra, pues los rige el intelecto y no el desinterés.
+
+:::
+
+**Vendrán a la encarnación un sinnúmero de antiguos magos y ocultistas** y, por consiguiente, aumentará rápidamente lo que se reconoce como poderes síquicos. Este tipo de psiquismo, al ser coloreado por la mente y por no ser una cualidad puramente astral, será mucho más peligroso que el de la época atlante, porque detrás de él habrá cierta medida de voluntad, propósito consciente y comprensión intelectual: si no va acompañado de una creciente realización espiritual, un firme control del Ego sobre la personalidad inferior, tendremos un período muy peligroso. De allí que sea necesario advertir y comprender la amenaza que se cierne y de que se proclame a todos los vientos la verdad de la vida interna y la necesidad de servir a la raza, como condiciones esenciales para el progreso.
+
+Conjuntamente con la llegada de este grupo de magos del séptimo Rayo (algunos vinculados a la Fraternidad, otros a los grupos estrictamente manásicos), se ha propuesto el advenimiento de ciertos miembros de la Jerarquía (iniciados de grado inferior a la cuarta Iniciación) y determinados discípulos y probacionistas que pertenecen a este Rayo, además de aquellos verdaderos síquicos que anhelan, por medio de sus esfuerzos, contrarrestar las vibraciones y disipar la amenaza, derivada del advenimiento del otro grupo. Allanar y preparar el camino para ellos, en los diferentes países, especialmente en Europa y Norte América, constituye la tarea en la actualidad, del Maestro R. y el Maestro H [^25].
+
+Un grupo de científicos encarnarán en el <pin lang="en">456</pin> plano físico durante los próximos setenta y cinco años, sirviendo de medio para revelar las tres próximas verdades respecto a los fenómenos eléctricos. A fines del siglo pasado los iniciados regidos por el quinto Rayo <pin lang="es">381</pin> prepararon una fórmula de la verdad, concerniente a este aspecto de la manifestación, siendo parte del intento de la Jerarquía impulsar el desarrollo evolutivo, como acostumbra hacerlo al término de cada período de cien años. Ciertas partes de la fórmula (dos quintas partes) se han desarrollado gracias a los trabajos realizados por hombres como Édison, los que participan en este tipo de esfuerzo y quienes se han ocupado del radio y de la radiactividad. Aún han de revelarse tres partes más de la misma fórmula, las cuales abarcarán todo lo que al hombre le es posible conocer sin riesgo alguno respecto a la manifestación de la electricidad en el plano físico durante la quinta subraza.
+
+Todo lo que aquí hemos considerado abarca el lapso hasta el advenimiento de la nueva subraza. Nuestra raza resumirá y llevará temporariamente a término el esfuerzo manásico de la quinta raza raíz para desarrollar la mente, trayendo resultados de estupenda importancia. Durante la sexta subraza no se recalcará tanto el desarrollo de la mente como la utilización de la mente concreta y la facultad adquirida para desarrollar los poderes del pensamiento abstracto. Quizás se haya atribuido excesiva importancia a la afirmación de algunos escritores ocultistas de que la sexta subraza será intuitiva. La intuición estará en proceso de despertar y será más pronunciada que ahora, pero la característica sobresaliente de los entes de la sexta subraza será la capacidad de pensar en términos abstractos y utilizar la mente abstracta. La función de esos entes será perfeccionar (hasta donde corresponda en esta ronda) <pin lang="en">457</pin> el antakarana grupal [^26] o el eslabón entre los planos mental y búdico. Este puente podrá ser utilizado durante la sexta raza raíz, donde la intuición dará señales reales y generales de existencia. En la actual raza raíz sólo algunos entes manifiestan signos de verdadera intuición por haber construido en su ser individual el puente necesario. En la sexta raza raíz pequeños grupos serán intuitivos.
+
+No es necesario decir nada más respecto a la influencia que ejerce el séptimo Rayo sobre los hijos de los hombres. Más adelante quizás podrá impartirse mayor información, pero ya se ha dado bastante como base de una útil especulación.
 
 
 
@@ -820,7 +1091,8 @@ entonces se comprenderá el fenómeno de los Rayos, actuando en <pin lang="en">3
 
 [^10]: Cadena -una serie de siete globos o mundos que forman el campo de evolución durante un ciclo planetario o manvantara. Los primeros tres globos -generalmente conocidos como A B y C forman un arco descendente, alcanzando la materia física densa del descenso en el D o Cuarto globo, del cual la Tierra es un ejemplo. El E o quinto globo, en el arco ascendente analogía del C en el arco descendente) generalmente pertenece al plano astral, y el F y G o sexto y séptimo (analogías del A y del B en el arco descendente) a los niveles Rupa y Arupa del plano mental; por lo tanto éstos son invisibles para la vista común.
 
-[^11]: El Cuerpo Causal.
+[^11]: 
+    El Cuerpo Causal.
 
     "Esta influencia, fuerza, resultado o como quieran llamarlo, ejercida por los antecedentes del hombre, constituye, por así decirlo, una semilla de la cual germina la planta que ha de dar frutos bunos o malos, y el hombre ha de ingerir durante su existencia posterior. (Vishnu Purana T. I, XIX, 5.) Técnicamente dicha semilla se denomina Karana Sarira o cuerpo causal (Paingala Upanishad T. II), causa de la alegría y del sufrimiento del hombre. Dicho Karana Sarira está compuesto por el quinto Kosa (Anandamaya) del hombre y se adhiere al alma durante todo el tiempo en que se halla envuelta por el cuerpo grosero o por el sutil (Sthula o Sukshama Sarira); desaparece totalmente cuando el alma se libera de ambas ataduras; entonces el alma adquiere su pureza primitiva y quema, por así decirlo, todo vestigio que quede de su alianza con el cuerpo, incluso el cuerpo causal (Karana Sarira). Esto sucede cuando el alma ya está preparada para su emancipación final, Moksha. Es lógico que hasa ese momento Karana Sarira, la semilla resultado de actividades anteriores sea eficaz y ejerza una fuerte y controladora influencia sobre los actos del hombre." Extraído de The Theosophist, T. VII, III, 59.
 
@@ -828,7 +1100,8 @@ entonces se comprenderá el fenómeno de los Rayos, actuando en <pin lang="en">3
 
     "Por la acción del raro fuego de la verdadera Sabiduría quedará reducido a cenizas el cuerpo de avidya (cuerpo causal). "Kaivalyanavanita, 1ra. Parte, 98. Extraido de The Theosophist, T. VIII.
 
-[^12]: Formas.
+[^12]: 
+    Formas.
 
     El Veda Atharva, nos instruye acerca de los principios que fundamentan equitativamente los métodos de los procesos del mundo y del átomo -un mundo en miniatura. Pueden ser considerados como procesos del mundo o del átomo, según el criterio y punto de vista de quien expone. Así como todos los mántram de este Veda reflejan la actividad del proceso mundial, también nos revela el conocimiento dentro del conocimiento, la memoria dentro de la memoria, el poder dentro del poder, el mundo dentro del mundo, el hecho dentro del hecho, la acción dentro de la acción, el deber dentro del deber, el pecado dentro del pecado, la individualidad dentro de la individualidad, ascendiendo y descendiento constante e incesantemente desde todo punto del espacio. Los átomos constituyen las moléculas; las moléculas los compuestos; los compuestos las células; las células los tejidos; los tejidos los órganos; los órganos los cuerpos; los cuerpos las comunidades; las comunidades las clases y las razas; las clases y las razas los reinos; los reinos de innumerables grados y variados círculos constituyen un planeta; los planetas un sistema solar; los sistemas solares un sistema más vasto, y así infinitamente; en ninguna parte existe la simplicidad indivisible ni tampoco la complejidad final. Todo es relativo. Pranava Vada, págs. 334-335.
 
@@ -853,7 +1126,8 @@ entonces se comprenderá el fenómeno de los Rayos, actuando en <pin lang="en">3
 
     El Séptimo, el Primario, sintetiza a los seis.
 
-[^14]: En La Doctrina Secreta se dice que:
+[^14]: 
+    En La Doctrina Secreta se dice que:
 
     El enigma del universo se fundamenta en dichas Jerarquías y en la cantidad correcta de estas Entidades.
 
@@ -888,11 +1162,15 @@ entonces se comprenderá el fenómeno de los Rayos, actuando en <pin lang="en">3
 
 [^15]: D. S. I, 128.
 
-[^16]: Pitris
+[^16]: 
+    
+    Pitris
 
     "Lo que denominé constitución espíritu-ideal es aquello que se conoce como swarga en nuestras obras sánscritas, y las entidades que allí actúan son conocidas como Pitris, que lógicamente quiere decir padres. Estos Pitris en nuestros puranas están descritos como si fueran la antítesis de los Devas, lo cual ha conducido a algunos hindúes incluso a muchos teósofos, a creer que los Devas y los Pitris constituyen dos esferas distintas de vida. Los Pitris y los Devas siempre existen juntos; los devas proporcionan la conciencia, y los Pitris forman el cuerpo. Ambos son términos relativos. Si los Pitris son el agua, los Devas son el fuego en el agua. Si los Pitris son el fuego, los Devas son las llamas de ese fuego. Si los Pitris son las llamas, los Devas son el principio consciente que activa esa llama y le proporciona el poder de iluminar al mundo y hacerlo existir como un factor en nuestra conciencia. Desde el plano de la vida más elevado hasta el más inferior, los Pitris constituyen el aspecto objetivo y los Devas el aspecto subjetivo; la vida misma constituye la corriente que forma la línea intermedia...Cuando el cosmos en lugar de estar dividido en tres lokas está dividido con mayor exactitud en siete, podrán adjudicársele las tres superiores a los Devas y las inferiores a los Pitris, y la intermedia a la corriente de la vida, la cual puede concebirse como el punto donde la esencia dévica se convierte en esencia pítrica, o lo que no es loka se capacita para aparecer como loka en lo inferior, o lo inmanifestado se convierte en lo manifestado." Some Thoughts on the Gita, pág. 56.
 
-[^17]: Diversidad que surge de la unidad.
+[^17]: 
+
+    Diversidad que surge de la unidad.
 
     "Según los Adeptos de la antigua Aryavarta, siete principios surgen de estas tres entidades primarias. El Álgebra enseña que el sin fin de combinaciones de cosas, ya sea una, dos, tres, etc., por vez es igual a 2n-1. Aplicando esta fórmula al caso actual, la cantidad de entidades surgidas de las diferentes combinaciones de estas tres causa primarias, es la siguiente: 23-1=8-1=7. Por regla general cuando se mencionan siete entidades en las antiguas ciencias ocultas de la India, en la relación que sea, se ha de suponer que vienen a la existencia provenientes de tres entidades primarias, que a su vez surgen de una sola entidad o Mónada." The Theosophist. T. VIII, pág. 449.
 
@@ -907,3 +1185,25 @@ entonces se comprenderá el fenómeno de los Rayos, actuando en <pin lang="en">3
 [^22]: La Trinidad. "Maha-Vishnu preside el resumen y la totalidad de todo esto. En cada Brahmanda la actividad es cuádruple, y sus principales funcionarios son Brahma, Vishnu y Shiva. Las subdivisiones de sus funciones dan origen a los nombres y cargos de Narayana, etc.
 
     Entre estas funciones, la de hacer o crear va a la par de la actividad y le corresponde a Brahma. Es decir, "lo que ha sido hecho se sostiene por medio del conocimiento"; dicho sostén o preservación constituye el trabajo de Vishnu. Además, debido a que es necesario que desaparezca lo que ha aparecido, debe existir, por lo tanto, un destructor, y este es Shiva que, vinculado al deseo, primero afirma, luego niega, actúa y reacciona , ahora atrae y después repele, anhela algo y después de saciarse indignado rechaza el objeto. Precede a la acción o Brahma como deseo de manifestarse; después de haber mantenido y gozado de la manifestación sucede el conocimiento o Vishnu, como sentimiento de fatiga, acrecentada inercia y necesidad de descansar, dando fin a la manifestación." De Pranava-Vada, 82, 84,311.
+
+[^23]: D.S. I, 128.
+
+[^24]: "Existe en la India un antiguo sistema de enseñanza síquica denominada Yoga que prescribe la recitación de ciertos mántram o versículos sánscritos. Se dice que es muy importante la forma en que se pronuncia la palabra mística Om o Aum. Brahmanes eruditos me han dicho que el ilimitado poder síquico de los mántram o versículos sánscritos sólo puede extraerse siguiendo determinadas reglas exactas de pronunciación (swara). Dicen que pronunciando correctamente las palabras se inicia una vibración en el "akaz", esa zona del éter del espacio que envuelve a nuestro globo, convirtiendo al hombre en el amo de todos los espíritus que habitan en los distintos reinos de la naturaleza. Primeramente se produce una reacción en el cuerpo etérico del hombre, purificando su densidad, estimulando los poderes síquicos que se hallan en latencia, fortificándolo gradualmente hasta dominar las fuerzas más refinadas de la naturaleza." The Theosophist, T. XIII, págs. 229, 613.
+
+    "El primitivo sonido (Aum u Om) es la palabra más elevada de poder y conocimiento que se ha pronunciado. En verdad, constituye el Brahman mismo. La regulación del aliento es la principal disciplina-tapas. No existe un mántram más elevado que Savitri. La verdad es más elevada que el silencio.
+
+    El creador acumuló la esencia pura de los Tres Vedas en las tres letras que forman la Palabra Sagrada, en las tres enunciaciones que dan nombre y forma a los tres mundos, y en las tres partes del versículo védico que invoca al sol. Cada parte la extrajo de un Veda. Quien reflexiones sobre ellas, mañana y tarde, habiendo aprendido previamente a los Vedas, estudia verdadera y diariamente la totalidad de los Vedas, portales que nos conducen a Brahman.
+
+    "El que busca a Brahma, concentrándose continuamente sobre su significado, sintonizando su deseo y modelando su pensamiento de acuerdo a ese significado, sin duda logrará la perfección aunque no cumpla otro deber, pues el nombre Brahma significa "amigo de Todas las criaturas"(Gayatri es la oración que implora para todas las criaturas la bendición del explendoroso Padre en los Cielos, el Sol)." Anónimo.
+
+    Existen fórmulas específicas conocidas por los iniciados de cierto grado (y también por muchos que no han alcanzado dicho grado, que conocen y emplean un sinnúmero de ellas - a veces la emplean tanto que perjudican al que las usa sin tener suficiente instrucción), y cualquiera de ellas está específicamente adaptada para producir la mayor parte de los efectos imaginables...
+
+    Bien se dice en Isis Sin Velo que los "sonidos y colores" son guarismos espirituales, pero esto no es todo, porque también los olores, los metales y las plantas constituyen guarismos espirituales. Cada planeta (o plano espiritual) está relacionado con un metal o un color. Éstos a su vez tienen correlación con el correspondiente olor y sonido
+
+    La esfera áurica que circunda a todo ser humano contiene un importante "pliegue" o "estrato" que posee invariablemente el color del metal y del planeta con los cuales el individuo tiene mayor afinidad; sobre dicho pliego el magnetismo de los colores y las vibraciones sonoras hacen impacto." The Theosophist, T. VII, pág. 218.
+
+[^25]: El Maestro húngaro, R. o Rakoczi vive actualmente en Hungría y es el Regente de Europa y América, perteneciendo a la "gran Fraternidad". Trabaja a través de distintas organizaciones o movimientos, incluyendo la masonería. Este Maestro es uno de los que aceptan discípulos.
+
+El Maestro cretense, H. o Hilarión, se halla interesado en el momimiento espiritista y es autor del libro Luz en en Sendero.
+
+[^26]: Antakarana es manas inferior, la senda que comunica la personalidad con manas superior o alma humana. H. P. Blavatsky.
