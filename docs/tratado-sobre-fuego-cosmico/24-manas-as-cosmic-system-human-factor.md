@@ -1207,12 +1207,89 @@ La atención de los estudiantes de medicina y ciencias será enfocada en el cuer
 
 El desarrollo de la visión etérica y el consiguiente reconocimiento dévico, dará lugar a un cambio misterioso en la actitud de los hombres y mujeres hacia la cuestión sexual, el matrimonio y la procreación. Este cambio se deberá a la comprensión de la verdadera naturaleza de la materia o aspecto madre, y el efecto que produce el Sol sobre la sustancia. La unidad de la vida será reconocida como hecho científico, y la vida en la materia dejará de ser una teoría para convertirse en un fundamento de la ciencia. Sobre esto no podemos extendernos aquí.
 
+### 3. Manas en las Rondas Finales.
 
+a **El proceso transmutador**. La transmutación es un tema que, desde las primeras épocas, ha ocupado la atención de los estudiosos, los científicos y los alquimistas. Como bien se sabe, el poder de producir cambios aplicando el calor, es reconocido universalmente; pero la clave del misterio o el secreto de la fórmula del sistema esta deliberadamente resguardada de todos los investigadores, y sólo es revelada gradualmente después de la segunda Iniciación. El tema es tan formidable que solo es posible indicar, en líneas generales, en qué forma podemos encararlo. El público piensa, lógicamente, en transmutar los metales en oro, a fin de aliviar su pobreza. La mente científica busca el solvente universal que reduzca la materia a su sustancia primordial, libere la energía, revelando así el proceso de la evolución que permitirá al buscador (utilizando la base primordial) construir para sí mismo las formas deseadas. La mente del alquimista <pin lang="en">476</pin> busca la Piedra filosofal, ese eficaz agente transmutador que proporcionará la revelación y dará al químico el poder de imponer su voluntad sobre las fuerzas elementales que trabajan en, por, y mediante, la materia. El hombre religioso, especialmente el cristiano, reconoce la cualidad síquica de este poder transmutador; frecuentemente en los libros sagrados se dice que el alma está sometida siete veces a la prueba del fuego. Desde su punto de vista restringido todos estos estudiosos e investigadores reconocen una gran verdad, pero la verdad total no se halla en uno ni en otro, sino en el conjunto.
 
+En sentido oculto, podríamos decir que la transmutación consiste en pasar de un estado de ser a otro por la acción del fuego. Su debida comprensión se funda en ciertos postulados, principalmente <pin lang="es">396</pin> en cuatro de ellos. Dichos postulados deben expresarse en términos del Antiguo Comentario, cuyas palabras están dispuestas de tal manera que revelarán el conocimiento a quienes tengan ojos para ver, pero resultarían enigmáticas para quienes no están preparados o utilizarían el conocimiento obtenido con fines egoístas. Las frases son las siguientes:
 
+1. Quien transfiere la vida del Padre a los tres inferiores, busca el agente del fuego oculto en el corazón de la Madre. Trabaja con los Agnichaitas que ocultan, queman y producen así la humedad necesaria.
+2. Quien transfiere la vida extrayéndola de los tres inferiores y llevándola al cuarto, busca el agente del fuego oculto en el corazón de Brahma. Trabaja con las fuerzas de los Agnishvattas que emanan, mezclan y producen el calor necesario.
+3. Quien transfiere la vida al quinto que está en formación, busca el agente del fuego oculto en el corazón de Vishnu. Trabaja con las fuerzas de los Agnisuryas que inflaman, liberan la esencia y producen así el brillo necesario.
+4. Primero la humedad lenta y omni envolvente: luego el calor que se acrecienta y arde intensamente; después la fuerza que oprime, impele y concentra. Así se produce <pin lang="en">477</pin> el brillo, la exudación, la mutación, el cambio de forma. Finalmente se libera y escapa la esencia volátil, volviendo el residuo a la sustancia primordial.
 
+Quien reflexione sobre estas fórmulas y medite sobre los métodos y el proceso que ellos sugieren, captará una idea general del proceso evolutivo de transmutación, que será para él de más valor que las fórmulas por las cuales los devas transmutan los diversos minerales.
 
+:::note Recuerda
 
+La transmutación consiste en pasar de un estado de ser a otro por la acción del fuego.
+
+:::
+
+Transmutación concierne a la vida del átomo, y se halla oculta en el conocimiento de las leyes que gobiernan la radiactividad. Es interesante observar cómo en la expresión científica “radiactividad” tenemos el concepto oriental de Visnú-Brahma, o los Rayos de Luz vibrando a través de la materia. De allí que la interpretación comúnmente aceptada del término “átomo” debe extenderse desde el átomo químico hasta incluir a:
+
+1. Todos los átomos o esferas en el plano físico.
+2. Todos los átomos o esferas en los planos astral y mental.
+3. Los seres humanos en encarnación.
+4. El cuerpo causal del hombre en su propio plano.
+5. Todos los planos como esferas “entificadas”.
+6. Todos los planetas, cadenas y globos dentro del sistema solar.
+7. Todas las Mónadas en su propio plano, ya sean mónadas humanas u Hombres celestiales,
+8. El “círculo no se pasa” solar, conjunto de todos los átomos menores.
+
+En todos estos átomos inmensos o diminutos, micro o macrocósmicos, la vida central corresponde a la carga positiva de fuerza <pin lang="es">397</pin> eléctrica, afirmada por la ciencia, ya sea la vida de una Entidad cósmica, tal como el Logos solar o la vida minúscula elemental en el átomo físico. Estos átomos menores, que giran alrededor de su centro positivo, a los cuales la ciencia llama ahora electrones, son el aspecto negativo, y esto no sólo es verdad respecto al átomo del plano físico, sino también a los átomos humanos, retenidos por su punto central de atracción, un Hombre celestial o las <pin lang="en">478</pin> formas atómicas que en conjunto forman el conocido sistema solar. Todas las formas están construidas de manera análoga; la única diferencia consiste -según enseñan los libros de texto- en la disposición y en el número de electrones [^30]. Con el tiempo se descubrirá que el electrón es una minúscula vida elemental.
+
+El segundo punto que trataré de explicar es: **La irradiación es transmutación en proceso de realización**. Siendo la transmutación el proceso de liberar la esencia a fin de que busque un nuevo centro, podemos reconocer aquí el proceso de la radiactividad, técnicamente entendida y aplicada a todos los cuerpos atómicos sin excepción.
+
+Si la ciencia recién ahora ha descubierto el radio (ejemplo del proceso de transmutación) es culpa de ella. Cuando esto sea mejor comprendido se verá que todas las irradiaciones, tales como el magnetismo y la exhalación síquica, sólo son el proceso de transmutación, desarrollándose en gran escala. Se ha de comprender que cuando el proceso transmutador es eficaz, constituye superficialmente el resultado de factores externos. Fundamentalmente es el resultado producido por el núcleo positivo interno de fuerza o vida alcanzando un grado de vibración tan enorme que con el tiempo expele los electrones o puntos negativos que componen su esfera de influencia, desparramándolos a tal distancia que la Ley de Repulsión domina. Entonces, ya no son atraídos a su centro original sino que buscan otro. La esfera atómica (si puedo expresarlo así) se disipa: los electrones caen bajo la Ley de Repulsión, y la esencia central escapa y busca en sentido esotérico una nueva esfera.
+
+Debe recordarse que todo lo que se halla dentro del sistema solar es dual y que en sí mismo es tanto negativo como positivo; positivo respecto a su propia forma, negativo respecto a la esfera mayor. Por lo tanto, todo átomo es <pin lang="en">479</pin> a la vez positivo y negativo, un electrón a la vez que un átomo.
+
+Por consiguiente, el proceso de transmutación es doble y requiere una etapa preliminar de aplicación de los factores externos que avivan, cuidan y desarrollan el núcleo positivo interno, un período sistemático de incubación o de alimentación de la llama interna y una elevación del voltaje. Luego, hay una etapa secundaria donde <pin lang="es">398</pin> los factores externos no son de gran importancia y al centro interno de la energía del átomo le es permitido realizar su propio trabajo. Estos factores pueden aplicarse igualmente a todos los átomos -a los del mineral, que han ocupado tanto la atención de los alquimistas; al átomo llamado hombre, quien sigue el mismo procedimiento general al estar regido por las mismas leyes, y a todos los átomos mayores tales como un Hombre celestial o un Logos solar. Podemos clasificar el proceso de la manera siguiente:
+
+1. La vida toma forma primitiva.
+2. La forma es sometida al calor externo.
+3. El calor, actuando sobre la forma, produce exudación y sobreviene el factor humedad.
+4. La humedad y el calor desarrollan su acción al unísono.
+5. Las vidas elementales cuidan de las vidas menores.
+6. Los devas colaboran regidos por reglas, órdenes y sonidos.
+7. El calor interno del átomo aumenta.
+8. El calor del átomo aumenta rápidamente y sobrepasa al calor externo de su medio ambiente.
+9. El átomo irradia,
+10. La pared esferoidal del átomo se derrumba con el tiempo.
+11. Los electrones o entes negativos buscan un nuevo centro.
+12. La vida central escapa para fusionarse con su polo opuesto, convirtiéndose en polo negativo que busca el positivo.
+
+Esto, en sentido oculto, es oscuración, extinción temporaria la luz, hasta que nuevamente emerge y resplandece.
+
+No es posible ni recomendable dar mayores explicaciones.
+
+Por lo tanto, es evidente, <pin lang="en">480</pin> desde el punto de vista de cada reino de la naturaleza, que podemos ayudar en el proceso de transmutación de todos los átomos menores. Esto ocurre, aunque no nos demos cuenta de ello. Sólo cuando se ha llegado al reino humano es posible para una entidad realizar, consciente e inteligentemente, dos cosas:
+
+Primero: Ayudar a transmutar su propio centro atómico positivo, desde lo humano a lo espiritual.
+
+Segundo: Ayudar a trasmutar:
+
+1. Las formas minerales inferiores en superiores.
+2. Las formas minerales en vegetales.
+3. Las formas vegetales en animales.
+4. Las formas animales en humanas, o producir consciente y definitivamente la individualización.
+
+Esto todavía no se hace por el peligro que implica dar el conocimiento necesario. Los Adeptos comprenden el proceso transmutador en los tres mundos y en los cuatro reinos de la naturaleza, lo cual los convierte temporariamente en el tres esotérico y en el cuatro exotérico.
+
+<p><pin lang="es">399</pin> Oportunamente, el hombre trabajará con los tres reinos, pero sólo cuando la fraternidad sea una práctica y no un mero concepto. Tres puntos se han de considerar a este respecto:</p>
+
+1. La manipulación consciente de los fuegos.
+2. Los devas y la transmutación.
+3. El sonido y el color en la transmutación.
+
+Es necesario advertir, como ya se hizo con otras cuestiones, que sólo es posible exponer ciertos hechos; el trabajo detallado del proceso no puede exponerse porque la raza no es todavía capaz de actuar con altruismo. Debido a ello reinó mucha incomprensión en los primeros días del esfuerzo jerárquico al exponer por escrito los fundamentos de la Sabiduría. Esto es tratado valientemente <pin lang="en">481</pin> por H. P. B. [^31] [^32] El peligro persiste aún, y entorpece grandemente el esfuerzo de Quienes, internamente, consideran que los <pin lang="es">400</pin> pensamientos de los hombres debieran elevarse desde las modalidades de la existencia física hasta llegar a conceptos y visiones más amplios y a una comprensión sintética. Sólo es posible hacer indicaciones, pues no es permitido dar aquí las fórmulas transmutadoras ni los mántram para manipular la materia del espacio. Sólo se puede indicar el camino a quienes están preparados o a los que están recuperando <pin lang="en">482</pin> antiguos conocimientos (adquiridos por el acercamiento al Sendero o permanecen latentes debido a experiencias pasadas en la época atlante); las señales indicadoras son suficientes guías que les permitirá penetrar más profundamente en los arcanos del conocimiento. El peligro subyace en el hecho de que todo el tema de la transmutación concierne a la forma material y a la sustancia dévica. El hombre como todavía no domina la sustancia de sus propias envolturas ni es capaz de controlar la vibración de su tercer aspecto, se halla en peligro cuando concentra su atención en el no-yo. Únicamente puede hacerlo sin riesgo cuando el mago conoce Cinco cosas:
+
+1. La naturaleza del átomo.
+2. La nota clave de los planos.
+3. El método para trabajar desde niveles egoicos, mediante el control consciente, el conocimiento de las fórmulas, los sonidos protectores y un esfuerzo puramente altruista.
+4. La interacción de los tres fuegos, las palabras lunares, las palabras solares y más tarde una palabra cósmica.
+5. El secreto de la vibración eléctrica, que sólo es comprendido en forma elemental cuando el hombre conoce la nota clave de su propio Logos planetario.
 
 
 
@@ -1397,3 +1474,38 @@ El desarrollo de la visión etérica y el consiguiente reconocimiento dévico, d
     En el Mahabarata estas cinco esencialidades kármicas se dividen en dos grupos: 1, las acciones actuales del hombre (que incluyen las primera cuatro esencialidades) y 2, el resultado de sus acciones pasadas (que constituye la quinta esencialidad).
 
     "También se ha de recordar que la existencia humana no es el trabajo de un día, ni siquiera de un ciclo, sino la totalidad de las acciones realizadas durante incontables existencias anteriores. Cada acción podrá ser tan sutil como pueda imaginarse y parecerse a diminutos filamentos de algodón- un solo soplo basta para hacer volar a cientos de ellos; sin embargo cuando dichos filamentos se unen y retuercen juntos, forman una cuerda tan pesada y fuerte que sirve para tirar de un elefante o remolcar un navío, de la misma manera las acciones kármicas del hombre, por triviales que sean, se combinan estrechamente debido al proceso natural de acrecentamiento, constituyendo una formidable "Pasa" (cuerda) para remolcar al hombre, es decir, influenciar su conducta para el bien o el mal." The Theosophist, T. VII, pág. 60.
+
+[^30]: Átomo o Electrón. Véase La Conciencia del Átomo. págs. 31-34.
+
+[^31]: H.P.B. se refiere en La Doctrina Secreta a la dificultad que existe para enseñar la Religión de la Sabiduría:
+
+    1. Se ha de reservar toda opinión porque:
+       1. La información completa sólo se da a los iniciados.
+       2. Sólo se imparten fragmentos del significado esotérico
+       3. Sólo los Adeptos pueden hablar con autoridad. D. S. I, 196-198;III,64,95.
+       4. Las enseñanzas se ofrecen como hipótesis. D. S. IV, 19
+    2. No se ha de perder de vista:
+       1. Las personalidades.
+       2. Las creencias dogmáticas.
+       3. Las religiones especiales. D. S. I, 46-47.
+    3. No debemos tener ningún prejuicio. D. S. III.Tampoco debemos ser
+       1. vanidosos
+       2. egoistas y debemos estar
+       3. preparados para aceptar una verdad comprobada.
+    4. Debemos buscar el significado más elevado posible. D. S. VI, 125-126
+    5. No debemos ser sectarios. D.S. V, 111.
+    6. Debemos recordar el obstáculo que representa el lenguaje. D. S. I, 205, 283, 285.
+    7. Debemos llegar a ser discípulos. D. S. I, 196; III, 232; V, 127.
+    8. Debemos oportunamente desarrollar poderes. D. S. II, 178; III, 90.
+    9. Debemos llevar una vida de Fraternidad. D. S. I, 198
+    10. Debemos recordar que H. P. B. no pretende ser infalible. D. S. III, 37, llamada 1, 254; I, 285.
+
+    H.P. B. dice: "Hablo con absoluta certeza" en lo que respecta a mis creencias personales. Aquellos que no tienen el mismo justificativo para sus creencias serían crédulos o tontos al aceptarlo ciegamente...Yo creo:
+
+    1. En la Ininterrumpida tradición oral revelada a ciertos seres elegidos entre los hombres por vivientes hombres divinos durante la infancia de la humanidad.
+    2. Que ésta ha llegado a nosotros sin sufrir alteraciones.
+    3. Que los Maestros son muy versados en la ciencia funda en esa enseñanaza ininterrumpida." Lucifer, T. V, pág. 157.
+
+    "La Doctrina Secreta no constituyen en sí una "autoriadas"; pero como contiene gran profusión de citas y textos extraídos de las Sagradas Escrituras y de las filosofías de casi todas las grandes religiones y escuelas, aquellos que pertenecen a cualquiera de ellas podrán confirmar las afirmaciones contenidas en cualquiera de sus páginas. Sin embargo existen teósofos entre los más devotos y mejores que tienen debilidad por la autoriad." Lucifer, T. III, pág. 147.
+
+[^32]: Véase Prefacio e Introducción de La Doctrina Secreta, T. I.
