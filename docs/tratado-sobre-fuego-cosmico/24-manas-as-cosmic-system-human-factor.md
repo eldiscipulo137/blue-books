@@ -1117,6 +1117,97 @@ El tercer efecto que produce la entrada de este rayo quizá sea el de rechazo, c
 
 <p><pin lang="es">388</pin> El tema que debemos encarar ahora se relaciona con la <pin lang="en">466</pin> evolución dévica y el efecto que produce el rayo entrante sobre ella.</p>
 
+Lo primero que debemos observar es que esta influencia afecta, en la actualidad, principalmente, a los devas del plano físico, a los devas de los éteres o de las sombras, como a veces se los denomina, pero no en la misma medida a los devas de los planos astral o mental. Cada rayo afecta en grado mayor o menor, al plano o subplano de su equivalencia numérica; el estudiante debe tener esto en cuenta y recordar que, a los fines de la investigación en la actualidad el Rayo séptimo o de Magia Ceremonial tendrá poderosa influencia sobre:
+
+1. El séptimo o plano físico, considerado como unidad.
+2. El séptimo subplano o el inferior de los planos físico, astral y mental.
+3. El séptimo o principio humano inferior: el prana en el cuerpo etérico,
+4. Las Mónadas en encarnación que pertenecen al séptimo Rayo. Un grupo peculiar de devas, que son los agentes o “mediadores entre los magos (blancos o negros) y las fuerzas elementales. A este grupo se lo conoce esotéricamente como “El Séptimo Mediador”, y se clasifica en dos grupos:
+   1. Los que trabajan con las fuerzas evolutivas.
+   2. Los que trabajan con fuerzas involutivas.
+
+Uno de estos grupos es el agente de propósito constructivo y el otro de propósito destructivo. No es necesario decir mas acerca de este grupo porque no es fácil, afortunadamente para el hombre, ponerse en contacto con él y sólo puede hacerse mediante un particular ritual grupal ejecutado con precisión, algo aún prácticamente desconocido. Los masones serán oportunamente uno de los principales agentes de contacto, pero como los hombres no están todavía preparados para utilizar el poder que se pondrá en sus manos, <pin lang="en">467</pin> la verdadera masonería se desarrollará muy lentamente. No obstante, bajo la fuerza magnética de este séptimo Rayo, es inevitablemente seguro al acrecentamiento de la Masonería.
+
+Este Rayo de Magia Ceremonial tendrá, en consecuencia, un profundo efecto sobre el plano físico, pues no sólo este plano está entrando bajo su fuerza cíclica sino que, en todo momento, su Logos planetario produce un efecto especial sobre él; ocultamente el Señor Raja de este plano es denominado “Reflejo en el Agua del Caos” del Logos planetario. De allí que en la materia de este plano <pin lang="es">389</pin> (el cuerpo del Señor Raja) ocurran ciertos acontecimientos definidos que -aunque invisibles para el hombre común- son evidentes al ojo del hombre espiritual o adepto.
+
+La materia del plano se hace receptiva a la fuerza positiva; pues el aspecto femenino o dévico, por ser negativo, responde a la energía positiva del Hombre celestial. Esta energía, al hallar su línea de menor resistencia, afluye a la sustancia del plano o al cuerpo sustancial de los Señores de los Devas. Debido a la condición receptiva de este cuerpo, sigue ciertas líneas y produce, definidamente, resultados constructivos.
+
+Estos resultados se manifiestan en la materia etérica negativa del plano y en los cuatro subplanos superiores. En los tres planos inferiores se produce un efecto contrario; la energía del Hombre celestial traerá la destrucción de la forma, previamente al trabajo constructivo. La construcción siempre tiene su origen en, y procede de, niveles etéricos. Durante los próximos mil años se producirán cataclismos de extensión mundial; serán sacudidos los continentes; aparecerán y desaparecerán tierras, lo cual culminará en un gran desastre material que sobrevendrá hacia fines de la quinta raza, rama de la sexta subraza. Esto introducirá la infantil sexta raza raíz.
+
+Los devas de los éteres, los que más nos interesan, <pin lang="en">468</pin> serán afectados de diversas maneras, y producirá en las otras evoluciones resultados de vastas proporciones. Debemos recordar siempre que los devas son cualidades y atributos de la materia, constructores activos que trabajan en el plano, consciente o inconscientemente. Quisiera advertir que todos los devas, en los niveles superiores del plano mental por ejemplo, y los devas de los planos del sistema y de allí al central (el plano divino, el del Logos, llamado a veces Adi) colaboran conscientemente; son de elevado rango en el sistema; ocupan una posición equivalente a todos los rangos y grados de la Jerarquía, ascendiendo desde un iniciado de primer grado hasta, sin incluirlo, el Señor dei Mundo. Debajo de estos niveles superiores, allí donde se hace contacto con lo concreto, tenemos grados inferiores de devas que trabajan inconscientemente, exceptuando las siguientes fuerzas y entidades conscientes de grado elevado:
+
+1. El Señor Raja de un plano
+2. Siete devas que trabajan bajo Su dirección, entes que animan la materia de los siete subplanos.
+3. Catorce representantes de los rayos, que cíclicamente entran y salen del poder, de acuerdo al crecimiento y decrecimiento de la fuerza del rayo.
+4. Cuatro devas que representan en dicho plano a los cuatro <pin lang="es">390</pin> Maharajáes (los Señores del Karma) y constituyen los puntos focales de la influencia kármica en relación con el hombre. Los cuatro Maharajáes adjudican el karma a los Hombres celestiales y lógicamente a las células, centros y órganos de Sus cuerpos; pero todo el sistema trabaja por medio de representantes graduados; las mismas leyes rigen para los agentes del karma de dicho plano, gobiernan también el karma del sistema y del cosmos y, durante la manifestación del plano, son los únicos entes que poseen forma <pin lang="en">469</pin> y se les permite ir más allá del “círculo no se pasa” del plano. Todas las demás unidades manifestadas en un plano tienen que abandonar el vehículo mediante el cual funcionan, antes de pasar a niveles más sutiles.
+
+:::note Recuerda
+
+Debemos recordar siempre que los devas son cualidades y atributos de la materia, constructores activos que trabajan en el plano, consciente o inconscientemente.
+
+:::
+
+b. **Tipos de Karma**. Podríamos enumerar los diferentes tipos de KARMA, aunque no disponemos de tiempo necesario para extendernos sobre el tema. Ni un libro de vastas proporciones podría contener todo cuanto pueda decirse sobre ello. Debemos tener en cuenta que el KARMA lo impone la entidad animante, por medio de la materia o la sustancia misma (coloreada por aquélla) y que dicha materia o sustancia es materia inteligente compuesta de esencia dévica.
+
+1. **Karma cósmico**. Impuesto al Logos solar, desde fuera del sistema
+2. **Karma del sistema**. El Logos lleva a cabo los efectos que puso en acción en kalpas anteriores e influencia al tipo de Cuerpo que posee actualmente.
+3. **Karma planetario**. El karma individual de un Hombre celestial tan diferente al de otro Hombre celestial como el karma de los diferentes miembros de la familia humana.
+4. **Karma de una cadena**, ligado a la experiencia de la vida de la Entidad que anima una cadena, siendo un centro en el cuerpo de un Hombre celestial, así como el Hombre celestial, dentro de Su esquema, es un centro en el cuerpo del Logos solar.
+5. **Karma del globo**. Destino individual de la Entidad, quien es un centro en el cuerpo de la Vida animante de una cadena.
+
+Las cinco existencias enumeradas aquí, sobre las cuales actúa el karma, son Señores cósmicos y solares de Luz, quienes adquirieron inteligencia y pasaron por el reino humano hace muchos kalpas.
+
+6. **Karma del plano**, se halla inextricablemente mezclado con el <pin lang="en">470</pin> karma del Logos planetario y con el del Señor Raja y depende de la interacción que existe entre los dos polos opuestos, los aspectos masculino y femenino del divino Hermafrodita.
+7. <pin lang="es">391</pin> El **Karma de un subplano**, o el destino de ciertas entidades menores que se manifiestan por medio de estos planos.
+
+En estos dos tipos de karma tenemos lo que podemos denominar el “Karma de las jerarquías”, producido desde la manifestación del sistema solar. Es el resultado del pasado de nuestro sistema y no precisamente el producto de los efectos originados en sistemas solares anteriores.
+
+8. El **Karma de los reinos de la naturaleza** tal como los conocemos en nuestro planeta:
+   1. El reino mineral,
+   2. El reino vegetal,
+   3. El reino animal.
+ 
+ Este karma lógicamente, corresponde a los diferentes Señores lunares que animan a tales reinos y desarrollan sus propósitos por medio de ellos. Se observará que hemos mencionado el karma cósmico, el solar y el lunar. En el último se halla oculto el gran misterio de la luna y su lugar en el esquema planetario.
+
+9. El **Karma de la Jerarquía humana** [^27] [^28] [^29] con sus siete <pin lang="es">392</pin> grupos y el de las mónadas individuales. Esto en sí es un tema vasto y complicado y -durante el ciclo particular del globo terrestre- puede definirse como: <pin lang="en">471</pin>
+   1. Karma mundial (las siete razas raíces).
+   2. Karma racial o el destino y propósito de cada raza raíz.
+   3. Karma sub racial; cada subraza tiene su propio destino que desarrollar.
+   4. Karma nacional.
+   5. Karma familiar.
+   6. Karma individual.
+
+Estos distintos tipos de karma están entremezclados y ligados en forma inconcebible e inextricable <pin lang="en">472</pin> para el hombre; ni siquiera los adeptos pueden desentrañar el misterio que está más allá de los grupos afiliados a ellos; mientras que los Chohanes de grados superiores trabajan con el karma de grupos más numerosos (el conjunto de grupos inferiores).
+
+Todos los grados inferiores de devas, “La Hueste de la Voz” de cada plano, los constructores menores y los millares de <pin lang="es">393</pin> elementales, trabajan inconscientemente guiados y dirigidos por palabras y sonidos. De esta manera los Constructores conscientes establecen vibraciones en la esencia de los planos.
+
+Muy poco puede agregarse a esta altura, acerca de la evolución dévica. Mucho que podría decirse se mantiene forzosamente reservado, debido al peligro que ofrece el conocimiento superficial cuando no va acompañado por la sabiduría y la visión interna. Otros tres puntos podrían agregarse a los cuatro ya dados, los cuales conciernen, en primer lugar, a la futura relación de los devas con el hombre y a su aproximación a éste, gracias al nuevo tipo de fuerza que está entrando. Esta aproximación, aunque inevitable, no tendrá resultados totalmente benéficos para la Jerarquía humana, y hasta que no se comprenda el verdadero método de hacer contacto y se emplee inteligentemente la asociación consiguiente, mucho sufrimiento sobrevendrá y se pasarán amargas experiencias. Si recordamos que los devas, en su totalidad, constituyen el aspecto madre, los grandes constructores de la forma, y que nutren aquello que es incapaz de valerse por sí mismo, cualquier tentativa del hombre por volver a depender íntimamente de los devas, sería como si un hombre maduro volviera al cuidado de su madre, perdiendo la confianza en sí mismo a cambio de un beneficio material. Los devas son la madre de la forma; pero la unidad autoconsciente HOMBRE debería comprender que es independiente de la forma y ha de seguir el Sendero de la autoexpresión. Se ha de reflexionar sobre esto, porque en días venideros cuando los entes se pongan en contacto con los devas e inevitablemente paguen la penalidad, será útil <pin lang="en">473</pin> que el hombre comprenda la razón y se dé cuenta de que es necesario separarse de estas Esencias de los tres mundos. El acercamiento entre estas dos líneas de evolución puede ser efectuado en el plano búdico, pero únicamente constituirá el acercamiento entre dos esencias y no entre lo concreto y la esencia. Mientras el hombre funciona mediante formas sustanciales y materiales en los tres mundos, no puede trasponer la línea divisoria entre las dos evoluciones. Únicamente, en los planos del fuego solar o en los niveles etérico cósmicos, se puede hacer contacto; pero en los planos del plano denso físico cósmico (nuestros planos mental, astral y físico) dicho contacto ocasionaría un desastre. Me he ocupado de esto porque el peligro es muy real y está muy cercano.
+
+:::warning Recuerda
+
+ Si recordamos que los devas, en su totalidad, constituyen el aspecto madre, los grandes constructores de la forma, y que nutren aquello que es incapaz de valerse por sí mismo, cualquier tentativa del hombre por volver a depender íntimamente de los devas, sería como si un hombre maduro volviera al cuidado de su madre, perdiendo la confianza en sí mismo a cambio de un beneficio material. Los devas son la madre de la forma; pero la unidad autoconsciente HOMBRE debería comprender que es independiente de la forma y ha de seguir el Sendero de la autoexpresión. Se ha de reflexionar sobre esto, porque en días venideros cuando los entes se pongan en contacto con los devas e inevitablemente paguen la penalidad, será útil que el hombre comprenda la razón y se dé cuenta de que es necesario separarse de estas Esencias de los tres mundos.
+
+:::
+
+La evolución dévica, mediante la fuerza del séptimo Rayo, tendrá mucho que ver con la transmisión de prana a los entes de los tres reinos superiores de la naturaleza, y esta sencilla transmisión (desde los niveles etéricos del plano físico) irá a la par de la correspondiente y sencilla transmisión de fuerza espiritual o síquica <pin lang="es">394</pin> desde el cuarto éter cósmico, el plano búdico. Dicha transmisión pránica dará por resultado cuerpos más sanos para los hijos de los hombres. Esto no ha de esperarse en la actualidad; comenzará a observarse solo dentro de trescientos años, cuando los Egos que corresponden al séptimo Rayo sean suficientemente numerosos para ser reconocidos como el tipo que prevalecerá durante determinado período. Los cuerpos físicos de dichos Egos, por estar construidos para la fuerza del séptimo Rayo, responderán mucho más fácilmente que otros, aunque los Egos del primero y quinto Rayos se beneficiarán grandemente por esta influencia. Los devas etéricos construirán durante un período peculiarmente favorable; la característica de los cuerpos físicos construidos será:
+
+1. Elasticidad.
+2. Gran magnetismo físico. <pin lang="en">474</pin>
+3. Capacidad para rechazar el magnetismo falso.
+4. Capacidad para absorber los rayos solares.
+5. Gran fuerza y resistencia
+6. Apariencia delicada y refinada desconocida hasta ahora.
+
+En los niveles etéricos de dicho plano habrá intensa y acrecentada actividad y en forma lenta pero segura, a medida que transcurren las décadas el hombre llegará a ser consciente de esos niveles y de sus moradores El efecto inmediato de esta mayor energía etérica se evidenciará por la existencia de un grupo muy numeroso de personas que poseerán visión etérica y podrán vivir consciente, normal y naturalmente en los niveles etéricos. La mayoría de los hombres sólo actúan conscientemente en los tres niveles inferiores del físico -gaseoso, líquido y denso-, pero los niveles etéricos están vedados para ellos como lo están los astrales. En siglos venideros, el hombre vivirá en todos los planos del plano físico ascendiendo hasta el segundo subplano pero sin incluirlo. Los niveles cuarto y tercero etéricos le serán tan familiares como los paisajes físicos comunes a los cuales está acostumbrado.
+
+La atención de los estudiantes de medicina y ciencias será enfocada en el cuerpo etérico, y el cuerpo físico será reconocido como dependiente del etérico. Esto cambiará la actitud de la profesión médica, y la curación magnética y el estímulo vibratorio reemplazarán a los métodos actuales de cirugía y asimilación de drogas. Como la visión del hombre será entonces normalmente etérica, le obligará a reconocer lo que ahora se llama “mundo invisible” o suprafísico. Se podrá ver el cuerpo etérico del hombre y comunicarse con él y se reconocerá y estudiará a los devas y a los elementales de los éteres. Cuando esto suceda, el verdadero empleo del ritual ceremonial, como protección y salvaguardia del hombre asumirá el lugar que le corresponde.
+
+<p><pin lang="es">395</pin> <pin lang="en">475</pin> Se reconocerá también la tarea de los devas, en conexión con los reinos animal y vegetal: muchas cosas que ahora se hacen, debido a la ignorancia, serán consideradas imposibles y anticuadas. Llegará el momento que cambiará la actitud del hombre hacia el reino animal, y desaparecerán la matanza, el mal trato y la crueldad denominada deporte.
+</p>
+
+El desarrollo de la visión etérica y el consiguiente reconocimiento dévico, dará lugar a un cambio misterioso en la actitud de los hombres y mujeres hacia la cuestión sexual, el matrimonio y la procreación. Este cambio se deberá a la comprensión de la verdadera naturaleza de la materia o aspecto madre, y el efecto que produce el Sol sobre la sustancia. La unidad de la vida será reconocida como hecho científico, y la vida en la materia dejará de ser una teoría para convertirse en un fundamento de la ciencia. Sobre esto no podemos extendernos aquí.
+
+
 
 
 
@@ -1273,6 +1364,36 @@ El tercer efecto que produce la entrada de este rayo quizá sea el de rechazo, c
 
 [^25]: El Maestro húngaro, R. o Rakoczi vive actualmente en Hungría y es el Regente de Europa y América, perteneciendo a la "gran Fraternidad". Trabaja a través de distintas organizaciones o movimientos, incluyendo la masonería. Este Maestro es uno de los que aceptan discípulos.
 
-El Maestro cretense, H. o Hilarión, se halla interesado en el momimiento espiritista y es autor del libro Luz en en Sendero.
+    El Maestro cretense, H. o Hilarión, se halla interesado en el momimiento espiritista y es autor del libro Luz en en Sendero.
 
 [^26]: Antakarana es manas inferior, la senda que comunica la personalidad con manas superior o alma humana. H. P. Blavatsky.
+
+[^27]: Karma y Reencarnación, cuarta y quinta doctrinas de la religión de la Sabiduría. Ambas constituyen en realidad el abc de la religión de la Sabiduría; Karma es la suma total de los actos realizados en esta vida y en nacimientos anteriores, siendo de tres tipos:
+
+    1. Sanchita
+    2. Prarabdha
+    3. Agami
+
+    "Karma Sanchita incluye los méritos y deméritos acumulados en todos los nacimientos, para el nacimiento posterior. Prarabdha se denomina esa parte de Karma Sanchita destinada a influenciar la vida humana en una de las reencarnaciones o en la actual. El tercer tipo de karma es el resultado de los méritos o deméritos que pueden tener las acciones actuales.Agami abarca toda palabra, pensamiento y acto. Lo que se piensa, dice o hace, así como cualquier resultado que los pensamientos, palabras y actos puedan producir sobre uno mismo y aquellos a quienes también afecta, constituye el karma actual, y con toda seguridad influenciará el resto de sus vidas ya sea en beneficio o perjuicio del futuro desarrollo." The Theosophist. T. X, pág. 235.
+
+[^28]: "Karma (acción) es de tres tipos:
+
+    1. Agami: Acciones corporales buenas y malas -realizadas después de haber adquirido conocimiento discriminativo. Sri Sankaracharya's Tatwa Bodh, pregunta 34.
+    2. Sanchita: Acciones posteriores que sirven de simiento para incontables nacimientos; preservan la acumulación de acciones anteriores. Idem, pregunta 35.
+    3. Prarabdha: Los actos de su cuerpo (por ejemplo, nacimiento) que producen placer o dolor únicamente en esta vida." Idem, pregunta 36.
+
+    Te Theosophist, T. VIII, pág. 170
+
+[^29]: Karma: "Debe recordarse que en toda acción realizada por el hombre la influencia de su karma anterior constituye un elemento muy importante. Shri Krishna dice que se necesitan cinco esencialidades para desarrollar toda acción:
+
+    1. El actor.
+    2. Una determinante voluntad.
+    3. La ayuda complementaria para realizar la acción, es decir, las manos , la lengua, etc.
+    4. La utilización de dichos complementos.
+    5. La influencia de la conducta anterior
+
+    El trabajo que desempeña un hombre mediante el cuerpo, el lenguaje y la mente, ya sea en forma justa o injusta, en dicha acción emplea estas cinco esencialidades para realizarla." B. Gita, XVIII, 13 ,14, 15.
+
+    En el Mahabarata estas cinco esencialidades kármicas se dividen en dos grupos: 1, las acciones actuales del hombre (que incluyen las primera cuatro esencialidades) y 2, el resultado de sus acciones pasadas (que constituye la quinta esencialidad).
+
+    "También se ha de recordar que la existencia humana no es el trabajo de un día, ni siquiera de un ciclo, sino la totalidad de las acciones realizadas durante incontables existencias anteriores. Cada acción podrá ser tan sutil como pueda imaginarse y parecerse a diminutos filamentos de algodón- un solo soplo basta para hacer volar a cientos de ellos; sin embargo cuando dichos filamentos se unen y retuercen juntos, forman una cuerda tan pesada y fuerte que sirve para tirar de un elefante o remolcar un navío, de la misma manera las acciones kármicas del hombre, por triviales que sean, se combinan estrechamente debido al proceso natural de acrecentamiento, constituyendo una formidable "Pasa" (cuerda) para remolcar al hombre, es decir, influenciar su conducta para el bien o el mal." The Theosophist, T. VII, pág. 60.
