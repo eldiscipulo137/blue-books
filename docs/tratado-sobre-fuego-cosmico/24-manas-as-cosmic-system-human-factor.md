@@ -1291,6 +1291,65 @@ Es necesario advertir, como ya se hizo con otras cuestiones, que sólo es posibl
 4. La interacción de los tres fuegos, las palabras lunares, las palabras solares y más tarde una palabra cósmica.
 5. El secreto de la vibración eléctrica, que sólo es comprendido en forma elemental cuando el hombre conoce la nota clave de su propio Logos planetario.
 
+Todo este conocimiento, por estar relacionado a los tres mundos, se halla en manos de los Maestros de Sabiduría permitiéndoles trabajar con energías o fuerzas, y no con lo que comúnmente se entiende por la palabra “sustancia”. Trabajan con la energía eléctrica, con la electricidad positiva o con la energía del núcleo positivo de fuerza dentro del átomo, ya sea el átomo químico o el átomo humano. Se ocupan del alma de las cosas. El mago negro <pin lang="es">401</pin> trabaja con el aspecto negativo, con los electrones (si así puedo denominarlos) con las envolturas y no con el alma. Se ha de tener en cuenta esta diferencia. Contiene la clave de por qué <pin lang="en">483</pin> toda la Fraternidad no interviene en cuestiones y asuntos materiales, concentrándose en el aspecto fuerza, los centros de energía. Llegan al todo a través de algunos centros de la forma. Con este preámbulo entraremos ahora a considerar:
+
+### La Manipulación Consciente de los Fuegos
+
+Será evidente que todo el proceso de transmutación, tal como podemos encararlo en la actualidad, concierne a los dos fuegos, los cuales alcanzaron un elevado estado de perfección en un sistema solar anterior:
+
+1. El fuego de un átomo en su doble aspecto, interno e irradiante.
+2. Los fuegos de la mente.
+
+Desde el punto de vista humano la transmutación se relaciona con éstos. El fuego del Espíritu no será considerado en esta etapa.
+
+La manipulación consciente de los fuegos es prerrogativa del hombre, cuando ha alcanzado cierto grado de evolución; el presentimiento de esto ha conducido lógicamente al alquimista a intentar la transmutación en el reino mineral. Algunos de los antiguos estudiantes han comprendido, en el transcurso de las épocas, que el inmenso esfuerzo de transmutar los metales comunes en oro ha sido sólo preliminar y simbólico, un paso representativo, alegórico y concreto. El trabajo de la Jerarquía en los tres departamentos de este planeta abarca todo el tema de la transmutación; si estudiáramos este amplio punto de vista jerárquico podríamos tener alguna idea de la amplitud del trabajo, obteniendo con ello un concepto de la tarea realizada a fin de ayudar en el proceso evolutivo. Dicho trabajo consiste en transferir la vida de una etapa de existencia atómica a otra, lo cual implica tres pasos distintos, que pueden ser vistos y seguidos por medio de la clarividencia superior y desde planos superiores. Dichos pasos o etapas son los siguientes: <pin lang="en">484</pin>
+
+1. El estado ígneo, el período de mezclar, fusionar y quemar, por el cual atraviesan todos los átomos durante la desintegración de la forma.
+2. El estado solvente, en el cual se disipa la forma y la sustancia se mantiene en solución, disolviéndose el átomo en su dualidad esencial.
+3. El estado volátil, el cual concierne principalmente a la cualidad esencial del átomo y a la evasión de esa esencia, para tomar más tarde, una nueva forma.
+
+<p><pin lang="es">402</pin> Quizás las palabras radiactividad, solución praláyica y volatilidad esencial, expresen la idea. En todo proceso de transmutación se siguen, sin excepción estos tres pasos. Ocultamente expresados en El   Antiguo Comentario se halla descrito así:</p>
+
+> Las vidas ígneas arden en el seno de la Madre.
+> El centro ígneo se extiende hasta la periferia del círculo y sobreviene la disipación y la paz praláyica.
+> El Hijo retorna al seno del Padre, y la Madre descansa tranquila.
+
+Los Maestros, al unísono con los grandes Devas, se ocupan del proceso de transmutación. Puede decirse que cada departamento se ocupa de una de las tres etapas:
+
+1. El departamento del Mahachohan en sus cinco divisiones se ocupa de quemar las vidas ígneas.
+2. El departamento del Manu se ocupa de la forma o del “círculo no se pasa” que encierra las vidas que se queman.
+3. El departamento del Bodhisattva se ocupa del retorno del Hijo al seno del Padre.
+
+Dentro del departamento del Mahachohan se desarrolla una división secundaría que podemos delinear de la manera siguiente:
+
+1. Los Rayos séptimo y quinto se ocupan del retorno del hijo al Padre, y están abocados en gran parte, a hacer fluir fuerza energetizadora, cuando se ha de transferir la vida del Hijo de una forma vieja a una nueva, de un reino de la naturaleza a otro, en el Sendero de Retorno
+2. <pin lang="en">485</pin> Los Rayos tercero y sexto se ocupan de quemar las vidas ígneas
+3. El Rayo cuarto fusiona los dos fuegos dentro de la forma atómica. Un detenido estudio de estas subdivisiones evidenciará cuán íntima es la colaboración que existe entre los diferentes grupos y cuán interrelacionadas se hallan sus actividades. El trabajo de la Jerarquía puede ser interpretado siempre en términos de alquimia; sus actividades se relacionan con una triple transmutación Esta tarea es desarrollada conscientemente por la Jerarquía, produciéndose en virtud de Su propia emanación.
+
+Un Maestro transmuta en los tres mundos y se ocupa principalmente de ese proceso en los dieciocho subplanos el gran campo de la evolución humana, y hace pasar la vida por todo el cuerpo físico denso del Logos. Los Chohanes de la sexta Iniciación trabajan en los éteres cuarto y quinto del cuerpo etérico logoico (los planos búdico y átmico) y se ocupan de hacer pasar la vida del Espíritu de una forma a otra en dichos mundos, teniendo por objeto la transmutación de los entes del reino espiritual al monádico. Los que se encuentran en un nivel aún superior (los Budas y Sus Cofrades de los Rayos primero y tercero) se ocupan de hacer pasar la vida a los planos subatómico y atómico del físico cósmico. Lo dicho se aplica <pin lang="es">403</pin> a cualquier esfuerzo jerárquico realizado en todos los esquemas y globos, pues la unidad de esfuerzo es universal. En todos los casos el dominio consciente autoinducido o la autoridad, precede a la capacidad de transmutar. Los Iniciados, después de la tercera Iniciación, aprenden a transmutar y a supervisar el paso de la vida del reino animal al humano; durante las primeras etapas de la iniciación se les comunica las fórmulas que controlan a los devas menores, dando por resultado la fusión de los reinos segundo y tercero. Trabajan salvaguardados y supervisados.
+
+El hombre intelectual avanzado debiera ser capaz de colaborar en la síntesis del trabajo y ocuparse de la transmutación <pin lang="en">486</pin> de los metales, porque su desarrollo intelectual, respecto a los elementos minerales y a los constructores a quienes ha de controlar, es igual al de los casos y grados de conciencia ya mencionados, pero debido a los desastrosos desarrollos de la época atlante y al consiguiente embotamiento de la evolución espiritual, por un tiempo, hasta que el karma se reajuste, el arte se ha perdido, mejor dicho, el conocimiento ha sido salvaguardado hasta haber alcanzado un período de progreso racial en que el cuerpo físico adquiera la suficiente pureza como para soportar las fuerzas con las cuales se ha de poner en contacto, y salga del proceso de transmutación química, no sólo enriquecido en conocimiento y experiencia, sino fortalecido en su fibra interna.
+
+A medida que transcurra el tiempo, el hombre hará gradualmente cuatro cosas:1
+
+1. Recuperará el conocimiento del pasado y los poderes desarrollados en la época atlante.
+2. Producirá cuerpos que resistan a los elementales del fuego de orden inferior, los cuales trabajan en el reino mineral.
+3. Comprenderá el significado interno de la radiactividad, o la liberación del poder inherente a todos los elementos, a todos los átomos de la química y a todos los minerales verdaderos.
+4. Reducirá a SONIDO las fórmulas de los futuros químicos y científicos, y no simplemente formulará sus ensayos sobre el papel. En esta afirmación se halla (para aquellos que pueden percibir) la insinuación más iluminadora que ha sido posible impartir hasta ahora sobre este tema.
+
+Quizás les parezca que no he dado mucha información respecto a la consciente manipulación de los fuegos. Ello se debe a la incapacidad del estudiante de leer el trasfondo esotérico de lo antedicho. La transmutación consciente sólo es posible cuando el hombre haya transmutado los elementos de sus propios vehículos; sólo entonces se le puede confiar los secretos de la divina alquimia. <pin lang="en">487</pin> Una <pin lang="es">404</pin> vez que, por medio de los fuegos latentes internos de la materia de sus propias envolturas, haya transmutado los átomos químico y mineral de dichas envolturas, entonces sin peligro -en virtud de la afinidad de sustancia- podrá ayudar en el trabajo de transmutación mineral de primer orden. Únicamente cuando (por medio de los fuegos irradiantes de las envolturas) haya transmutado lo que es análogo al reino vegetal en su propio organismo puede realizar el trabajo de alquimia de segundo orden. Sólo cuando los fuegos de la mente dominan, el hombre puede trabajar en el proceso transmutador de tercer orden, el de transferir la vida a formas animales. Sólo cuando el Yo interno, o el Ego en el cuerpo causal, controla a su triple personalidad, se le permite ocultamente al hombre ser un alquimista de cuarto orden y trabajar en la transmutación de la mónada animal al reino humano, conjuntamente con todo el vasto conocimiento que ello incluye. Mucho debe realizarse todavía, pero la comprensión de la magna tarea que tenemos por delante no debiera ser causa de desaliento, porque el inteligente delineamiento del futuro y la cautelosa divulgación del conocimiento respecto a las necesarias etapas a alcanzar, inducirá a muchos aspirantes a desarrollar un tenaz esfuerzo objetivo, y durante el proceso evolutivo vendrán aquellos que son capaces de realizarlo.
+
+Constituye un verdadero problema hablar claramente del tema de la transmutación debido a su amplitud y a que en dicho proceso, el mago o el alquimista trabaja con esencia dévica, controlado por los Constructores menores en colaboración con los grandes Devas. Por consiguiente a fin de esclarecer el pensamiento y dar consistencia a las conjeturas a este respecto, deseo principalmente presentar ciertos postulados que se han de tener muy en cuenta cuando se considera este tópico. Los postulados son cinco, y conciernen específicamente al campo en el cual el proceso de transmutación se desarrolla. El estudiante debe <pin lang="en">488</pin> recordar aquí la diferencia establecida entre el trabajo del mago negro y el del blanco. Sería útil, antes de continuar que consideremos estas diferencias en lo que concierne a este tema:
+
+Primero. El Hermano blanco trabaja con energía eléctrica positiva. El Hermano negro, trabaja con energía eléctrica negativa.
+
+Segundo El Hermano blanco se ocupa del alma de las cosas. El Mago negro concentra su atención en la forma.
+
+Tercero. El Mago blanco desarrolla la energía inherente a la esfera implicada (humana, animal, vegetal o mineral) y obtiene resultados por medio de actividades autoinducidas de la vida central, subhumana, humana o superhumana. El Mago negro obtiene resultados valiéndose de fuerzas <pin lang="es">405</pin> foráneas a la esfera implicada y produce la transmutación valiéndose de resolventes (si puedo denominarlos así) o por el método de reducción de la forma, en vez de la irradiación como lo hace el Mago blanco.
+
+Se han de considerar muy cuidadosamente estas diferencias de método y visualizar su reacción respecto a los diferentes elementos, átomos y formas. Volveremos sobre los cinco postulados presentados respecto a la transmutación de la sustancia, la disolución de la vida o la transferencia de la energía en las diferentes formas.
+
+#### LOS CINCO POSTULADOS
 
 
 
