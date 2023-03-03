@@ -1351,6 +1351,62 @@ Se han de considerar muy cuidadosamente estas diferencias de método y visualiza
 
 #### LOS CINCO POSTULADOS
 
+1er. Postulado. Toda materia es materia viviente o sustancia vital de entidades dévicas. Por ejemplo, un plano y todas las formas construidas con sustancia de ese plano particular, constituye la forma material o envoltura de un gran deva, quien es la esencia de la manifestación y el alma del plano. <pin lang="en">489</pin>
+
+2do. Postulado. Todas las formas, cualquiera sea la nota en que vibran, son construidas por los devas constructores con la materia de sus propios cuerpos. Por eso se los denomina el gran aspecto Madre, pues producen la forma con su propia sustancia.
+
+3er. Postulado. Los devas constituyen la vida que produce la cohesión de la forma, son el tercero y el segundo aspectos fusionados, y se los puede considerar como la vida de todas las formas subhumanas. El mago que practica la transmutación en el reino mineral trabaja prácticamente con esencia dévica en su forma más primitiva, la cual se halla en el arco ascendente de la evolución; deben recordarse tres cosas:
+
+1. El efecto que produce la retro atracción de las vidas involutivas que se hallan detrás del mineral, o su herencia.
+2. La séptuple naturaleza del peculiar grupo de devas, que constituye su ser en sentido oculto.
+3. La siguiente etapa de transición al reino vegetal, o el efecto esotérico del segundo reino sobre el primero.
+
+4to. Postulado. Todas las esencias y constructores dévicos del plano físico son peculiarmente peligrosos para el hombre, porque trabajan en niveles etéricos y, como ya indiqué anteriormente, son los transmisores de prana o la sustancia vital animante; de allí que descarguen sobre el ignorante y el desprevenido, esencia ígnea que quema y destruye.
+
+5to. Postulado. Los devas no trabajan como unidades individualizadas conscientes, con propósitos autoiniciados como en el hombre, el Hombre celestial o el Logos solar (considerados como Egos), sino que trabajan en grupos, sujetos a: <pin lang="es">406</pin>
+
+1. Impulso inherente o inteligencia activa latente.
+2. Órdenes dictadas por los Constructores mayores.
+3. Rito o compulsión, inducidos por el color y el sonido.
+
+<p><pin lang="en">490</pin> Si se tiene en cuenta y consideran estos hechos, se obtendrá alguna comprensión del papel que los devas desempeñan en el proceso de transmutación. La posición que el fuego ocupa en el proceso es de peculiar interés aquí, porque define claramente los diferentes métodos aplicados por dos escuelas.</p>
+
+En el proceso transmutador, tal como lo desarrolla la Fraternidad. se estimula, nutre y fortalece el fuego interno que anima al átomo, a la forma o al hombre, hasta que (debido a su propia potencia, interna) quema sus envolturas y escapa por radiación de su “círculo no se pasa”. Esto puede observarse en forma notable que ocurre durante el proceso de las iniciaciones finales, cuando el cuerpo causal es destruido por el fuego. Este fuego interno quema todo, escapándose el fuego eléctrico. Por consiguiente, el verdadero alquimista del futuro procurará, en todos los casos, estimular la radiactividad del elemento o átomo con el cual trabaja y centrará su atención en el núcleo positivo, pues acrecentando la vibración, actividad y positividad de tal núcleo, obtendrá el fin que desea. Los Maestros hacen lo mismo en conexión con el Espíritu humano y no se preocupan en lo más mínimo de su aspecto dévico. La misma regla básica se aplica al mineral como al hombre.
+
+:::note Recuerda
+
+el verdadero alquimista del futuro procurará, en todos los casos, estimular la radiactividad del elemento o átomo con el cual trabaja y centrará su atención en el núcleo positivo, pues acrecentando la vibración, actividad y positividad de tal núcleo, obtendrá el fin que desea.
+
+:::
+
+El proceso, tal como lo desarrolló la Fraternidad Negra, es opuesto al anterior. Centra su atención sobre la forma y trata de desintegrar y dispersar la forma o combinación de átomos, a fin de que la vida eléctrica central pueda escapar. Obtienen resultados valiéndose de agentes externos y aprovechando la naturaleza destructiva de la sustancia (esencia dévica). Queman y destruyen la envoltura material, tratando de aprisionar la esencia volátil que se escapa a medida que se desintegra la forma. Esto entorpece el plan evolutivo de la vida implicada, retrasa su consumación, interfiere el ordenado proceso de desarrollo y coloca a todos <pin lang="en">491</pin> los factores que intervienen, en mala posición. La vida (o entidad) implicada sufre un retroceso; los devas trabajan en forma destructiva y sin participar de los fines del plan, y el mago se halla en peligro debido a la Ley del Karma y a la materialización de su propia sustancia mediante su afinidad con el tercer aspecto. Este tipo de magia negra se infiltra en todas las religiones, precisamente por la destrucción de la forma mediante agentes externos y no por la liberación de la vida mediante la preparación y el desarrollo interno. Esto se debe a los males que produce el Hatha Yoga en la India y a los métodos similares practicados por todas las religiones y <pin lang="es">407</pin> órdenes ocultas de Occidente. Ambos trabajan con materia de cualquier plano de los tres mundos, practicando el mal para que resulte el bien; controlan a los devas y tratan de obtener fines específicos, manipulando la materia de la forma. La Jerarquía trabaja con el alma dentro de la forma y produce resultados inteligentes, auto-inducidos y permanentes. Cuando la atención se centra en la forma y no en el Espíritu, existe la tendencia a rendir culto a los devas, hacer contacto con ellos y a practicar magia negra; porque la forma está hecha de sustancia dévica en todos los planos.
+
+Esto se ha de tener muy en cuenta en relación con todas las formas, pues encierra la clave de muchos misterios.
+
+Hemos visto que en esta cuestión de transferir la vida de una forma a otra, el trabajo se realiza bajo ley y orden, efectuándose mediante la colaboración de los devas en el primer caso, por la aplicación de agentes externos al átomo o a la forma involucrada y, en el segundo caso (la etapa más importante y prolongada del procedimiento), mediante la consiguiente reacción dentro del átomo mismo, produciéndose la intensificación del centro positivo ardiente y el consiguiente escape (por radiactividad) de la esencia volátil.
+
+En las diversas etapas los elementales del fuego desempeñan su parte ayudados por los devas del fuego, los agentes <pin lang="en">492</pin> controladores. Esto ocurre en todos los planos que nos conciernen principalmente en los tres mundos -diferentes grupos de devas entran en acción de acuerdo a la naturaleza de la forma implicada y al plano en el cual la transmutación se ha de llevar a cabo. El fuego eléctrico pasa de un átomo a otro de acuerdo a la ley, y el “fuego por fricción”, fuego latente del átomo o su aspecto negativo, responde; el proceso se desarrolla por medio del fuego solar, Aquí se halla el secreto de la transmutación y su aspecto más misterioso. El fuego por fricción, la electricidad negativa de la sustancia, ha sido, durante algún tiempo, el tema de atracción de la ciencia exotérica y la investigación de la naturaleza de la electricidad positiva se ha hecho gracias al descubrimiento del radio.
+
+Como H. P. B. ha insinuado [^33],  J. W. Keely había avanzado en este camino, y sabía aún más de lo que expuso; otros se han acercado o se están acercando al mismo objetivo. El próximo paso que la ciencia debe dar es en esta dirección, y debería ocuparse de la fuerza potencial del átomo encauzándola para uso del hombre. Esto liberará en el mundo una incalculable cantidad de energía. Sólo cuando se comprenda el tercer factor y la ciencia acepte la acción del fuego mental, personificado por ciertos grupos de devas, estará a disposición del hombre la fuerza de la triple energía y sin <pin lang="es">408</pin> embargo una, en los tres mundos. Todo esto se halla muy distante y sólo será posible hacia fines de esta ronda; estas potentes fuerzas no se utilizarán plenamente ni se conocerán totalmente hasta mediados de la otra ronda. Entonces, se dispondrá de mucha energía y se eliminarán todas las obstrucciones. En relación con el hombre esto se efectuará durante la separación en el Día del Juicio, y producirá también resultados en otros reinos de la naturaleza. Una parte del reino animal entrará en oscuración temporaria y liberará energía para que <pin lang="en">493</pin> la utilice la parte restante, produciendo resultados como los indicados por el profeta de Israel [^34] al referirse al “lobo durmiendo con el cordero”; su comentario “un niño los guiará” es, en gran parte, la enunciación esotérica del hecho de que tres quintas partes de la humanidad se hallará en el Sendero; “niño” es la denominación dada a los probacionistas y discípulos. En los reinos vegetal y mineral habrá una demostración similar, pero de naturaleza demasiado confusa para nuestra comprensión.
+
+El factor central del fuego solar, en el trabajo de transmutación, será comprendido por el estudio de los devas y elementales del fuego, quienes son fuego y, en sí mismos (esencialmente y por activa radiación magnética), el calor externo o vibración, que produce:
+
+1. La fuerza que actúa sobre la pared esferoidal del átomo.
+2. La respuesta dentro del átomo, produciendo a su vez la radiación o el escape de la esencia volátil.
+3. Expresándolo en términos del cosmos, y considerando el sistema solar como átomo cósmico, se diría que:
+   1. Las abstracciones o entidades que moran en la forma son “fuego eléctrico”.
+   2. La sustancia material encerrada dentro del “círculo no se pasa”, considerada como un todo homogéneo, es “fuego por fricción”.
+   3. Los devas del fuego del plano mental cósmico (de los cuales Agni e Indra son las Personificaciones, junto con otro cuyo nombre no se da) son los agentes externos que llevan adelante la transmutación cósmica.
+
+Esta triple afirmación puede aplicarse a un esquema, a una cadena y también a un globo, teniendo presente que, en relación <pin lang="en">494</pin> con el hombre, el fuego, que es su tercer aspecto, emana desde el plano mental del sistema.
+
+Hemos tratado de manera amplia y general esta cuestión de la electricidad y vimos que la esencia del fuego o sustancia se disuelve mediante la actividad interna y el calor externo de tal <pin lang="es">409</pin> modo que el fuego eléctrico, en el centro del átomo, se libera y busca una nueva forma. Ésta es la finalidad del proceso transmutador; el hecho de que los alquimistas, trabajando en el reino mineral, no hayan conseguido su objeto, se debe a tres cosas:
+
+1. Primero. Incapacidad de establecer contacto con la chispa eléctrica central. Ello se debe a que ignoran ciertas leyes de la electricidad y, sobre todo, la fórmula establecida que abarca la esfera de influencia eléctrica de dicha chispa.
+2. Segundo. Incapacidad de crear el necesario canal o “sendero” por el cual la vida que escapa puede entrar en su nueva forma: Muchos han logrado destruir la forma permitiendo escapar la vida, pero no han sabido encauzarla ni guiarla, por lo tanto, todo su trabajo se ha perdido.
+3. Tercero. Incapacidad de controlar a los elementales del fuego, que son el fuego externo y afecta la chispa central a través del medio ambiente. Esta incapacidad es esencialmente característica de los alquimistas de la quinta raza raíz, prácticamente incapaces de ejercer tal control, por haber perdido las Palabras, las fórmulas y los sonidos. Esto es consecuencia del injustificado éxito alcanzado en la época atlante cuando los alquimistas de esa época, por medio del color y del sonido, consiguieron dominar de tal modo a los elementales, que los utilizaron para fines egoístas y empresas ajenas a sus actividades legitimas. Este conocimiento de las fórmulas y sonidos se puede adquirir con relativa <pin lang="en">495</pin> facilidad cuando el hombre haya desarrollado el oído espiritual interno. En este caso, sin embargo, el proceso de tipo más burdo de transmutación (tal como el implicado en la fabricación de oro puro) no le interesará en lo más mínimo; su atención se concentrará en las formas más sutiles de actividad, relacionadas con la trasferencia de la vida de una forma a otra de grado superior.
+
+
 
 
 
@@ -1568,3 +1624,7 @@ Se han de considerar muy cuidadosamente estas diferencias de método y visualiza
     "La Doctrina Secreta no constituyen en sí una "autoriadas"; pero como contiene gran profusión de citas y textos extraídos de las Sagradas Escrituras y de las filosofías de casi todas las grandes religiones y escuelas, aquellos que pertenecen a cualquiera de ellas podrán confirmar las afirmaciones contenidas en cualquiera de sus páginas. Sin embargo existen teósofos entre los más devotos y mejores que tienen debilidad por la autoriad." Lucifer, T. III, pág. 147.
 
 [^32]: Véase Prefacio e Introducción de La Doctrina Secreta, T. I.
+
+[^33]: D. S. I, 182, 252-256.
+
+[^34]: La Biblia, Isaías XI, 6.
