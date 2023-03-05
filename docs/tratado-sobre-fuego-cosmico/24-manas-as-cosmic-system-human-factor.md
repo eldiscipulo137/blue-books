@@ -1406,8 +1406,108 @@ Hemos tratado de manera amplia y general esta cuestión de la electricidad y vim
 2. Segundo. Incapacidad de crear el necesario canal o “sendero” por el cual la vida que escapa puede entrar en su nueva forma: Muchos han logrado destruir la forma permitiendo escapar la vida, pero no han sabido encauzarla ni guiarla, por lo tanto, todo su trabajo se ha perdido.
 3. Tercero. Incapacidad de controlar a los elementales del fuego, que son el fuego externo y afecta la chispa central a través del medio ambiente. Esta incapacidad es esencialmente característica de los alquimistas de la quinta raza raíz, prácticamente incapaces de ejercer tal control, por haber perdido las Palabras, las fórmulas y los sonidos. Esto es consecuencia del injustificado éxito alcanzado en la época atlante cuando los alquimistas de esa época, por medio del color y del sonido, consiguieron dominar de tal modo a los elementales, que los utilizaron para fines egoístas y empresas ajenas a sus actividades legitimas. Este conocimiento de las fórmulas y sonidos se puede adquirir con relativa <pin lang="en">495</pin> facilidad cuando el hombre haya desarrollado el oído espiritual interno. En este caso, sin embargo, el proceso de tipo más burdo de transmutación (tal como el implicado en la fabricación de oro puro) no le interesará en lo más mínimo; su atención se concentrará en las formas más sutiles de actividad, relacionadas con la trasferencia de la vida de una forma a otra de grado superior.
 
+También pueden señalarse los siguientes hechos:
 
+Primero. Cada reino de la naturaleza tiene su nota o tono, siendo dicha nota la clave o nota fundamental de los sonidos mántricos, que conciernen a cualquier proceso transmutador de un reino.
 
+Segundo. La nota del reino mineral constituye la nota fundamental de la sustancia misma. En gran parte la pronunciación de la nota o las combinaciones, basadas en esta clave, traen los grandes cataclismos mundiales causados por la acción volcánica. Cada volcán emite dicha nota; para quienes han desarrollado la visión, el sonido y el color (entendidos ocultamente) de un volcán es algo verdaderamente maravilloso. Cada gradación de esa nota se <pin lang="es">410</pin> encuentra en el reino mineral, el que se halla dividido en tres reinos principales:
+
+1. Los metales comunes tales como el plomo y el hierro, con todos los metales afines
+2. Los metales patronos tales como el oro y la plata, que desempeñan una parte vital en la vida de la raza y son la manifestación mineral del segundo aspecto.
+3. Los cristales y piedras preciosas, el primer aspecto según actúa en el reino mineral -la consumación del trabajo de los devas minerales y el producto de sus esfuerzos incansables.
+
+Cuando los científicos sepan plenamente qué es lo que produce la diferencia entre el zafiro y el rubí, habrán descubierto una de las etapas <pin lang="en">496</pin> del proceso transmutador; sin embargo no lo obtendrán hasta que haya sido controlado el cuarto éter y descubierto su secreto. A medida que transcurra el tiempo, la transmutación, por ejemplo, del carbón en brillantes, del plomo en plata o de ciertos metales en oro, no tendrá atracción para el hombre, porque se reconocerá que tal acción tendrá como consecuencia la deterioración de las normas de vida, trayendo pobreza en vez de riqueza; el hombre comprenderá oportunamente que la adaptación de la energía atómica a sus necesidades o la inducción de la creciente radiactividad es, para el, la senda hacia la prosperidad y la riqueza. En consecuencia, concentrará su atención en esta forma superior de trasferencia de la vida y mediante
+
+1. el conocimiento de los devas.
+2. la presión externa y la vibración.
+3. el estimulo interno,
+4. el color aplicado como estímulo y vitalización y
+5. los sonidos mántricos.
+
+descubrirá el secreto de la energía atómica, latente en el reino mineral y utilizará tan inconcebible poder y fuerza en la solución de los problemas de la existencia. Únicamente cuando se comprenda mejor la energía atómica y en cierta medida, el cuarto éter alcanzaremos el dominio del aire que, inevitablemente, tenemos por delante.
+
+:::note Recuerda
+
+Cuando los científicos sepan plenamente qué es lo que produce la diferencia entre el zafiro y el rubí, habrán descubierto una de las etapas del proceso transmutador; sin embargo no lo obtendrán hasta que haya sido controlado el cuarto éter y descubierto su secreto. A medida que transcurra el tiempo, la transmutación, por ejemplo, del carbón en brillantes, del plomo en plata o de ciertos metales en oro, no tendrá atracción para el hombre, porque se reconocerá que tal acción tendrá como consecuencia la deterioración de las normas de vida, trayendo pobreza en vez de riqueza; el hombre comprenderá oportunamente que la adaptación de la energía atómica a sus necesidades o la inducción de la creciente radiactividad es, para el, la senda hacia la prosperidad y la riqueza. En consecuencia, concentrará su atención en esta forma superior de trasferencia de la vida y mediante
+
+1. el conocimiento de los devas.
+2. la presión externa y la vibración.
+3. el estimulo interno,
+4. el color aplicado como estímulo y vitalización y
+5. los sonidos mántricos.
+
+descubrirá el secreto de la energía atómica, latente en el reino mineral y utilizará tan inconcebible poder y fuerza en la solución de los problemas de la existencia. Únicamente cuando se comprenda mejor la energía atómica y en cierta medida, el cuarto éter alcanzaremos el dominio del aire que, inevitablemente, tenemos por delante.
+
+:::
+
+Tercero. Por el descubrimiento de la nota característica del reino vegetal, por su conjunción con otras notas de la naturaleza y por su adecuada emisión en distintas claves y combinaciones, vendrá la posibilidad de producir maravillosos resultados en dichos reinos y estimular las actividades de los devas que trabajan con flores, frutos, árboles y hierbas. <pin lang="es">411</pin>
+
+Cada raza raíz tiene su propio tipo particular de vegetación, es decir, ciertas formas y diseños básicos que pueden encontrarse en todos los países donde la raza se localiza. Estos <pin lang="en">497</pin> resultados se producen por la interacción entre la nota fundamental del reino vegetal y la nota característica de le raza de hombres que evolucionan simultáneamente. La unión de estas dos notas produce la vegetación característica. **Se ha de tener en cuenta que cuando la nota humana predomina excesivamente, puede expulsar la vida de las formas de este segundo reino**. Los devas que trabajan en este reino constituyen un grupo especial, y su relación con el mismo es más íntima y peculiar que la de los constructores o devas de otros reinos. El proceso transmutador en el reino vegetal se efectúa con mayor facilidad que en los demás, debido precisamente al factor mencionado y también al incentivo dado a este segundo reino y a su proceso evolutivo mediante el advenimiento de los Señores de la Llama, del segundo globo o Venus -el globo con el cual este reino tiene preeminentemente una misteriosa conexión. Si puedo expresarlo en otras palabras diré que, la Entidad cósmica, la vida del segundo globo y su principio animante, tiene íntima conexión con la entidad solar, vida animante de todo el reino vegetal. Esta analogía se puede comparar en conexión con otros reinos, globos y formas, y explica, en cierto modo, el hecho de que este cuarto globo [^35] [^36] es, sobre todos los demás, el de la evolución humana en este esquema; nos da también la clave del misterio de la Presencia del gran Kumara Mismo en la Tierra. Estas ideas merecen detenida consideración. <pin lang="en">498</pin> La nota del reino humano, emitida en cuádruple intensidad en este globo, ha producido acontecimientos portentoso. Sugiero a todos los investigadores ocultistas el detenido estudio o escrutinio de las siguientes manifestaciones en tiempo y espacio: <pin lang="es">412</pin>
+
+|     |                              |                                      |
+| --- | ---------------------------- | ------------------------------------ |
+| 1   | La cuarta Jerarquía creadora | La humana.                           |
+| 2   | El cuarto esquema            | Nuestro esquema terrestre.           |
+| 3   | La cuarta cadena             | La cadena terrestre.                 |
+| 4   | El cuarto globo              | Nuestro planeta.                     |
+| 5   | El cuarto reino              | El humano.                           |
+| 6   | La cuarta ronda              | La primera estrictamente humana.     |
+| 7   | Los cuatro Kumaras           | Personifican a la humanidad.         |
+| 8   | El cuarto plano              | El búdico, la meta humana.           |
+| 9   | El cuarto éter               | La analogía física del plano búdico. |
+
+Todos estos diversos factores responden a un sonido fundamental, constituye la nota causante de su existencia y la base de su ser. Si la búsqueda de esta nota tiene éxito, se establecerá una estrecha alianza entre todos estos factores, hasta que se fusionen en una gran unidad oculta, trayendo igualmente la colaboración de un grupo de devas, esencias del cuarto principio humano.
+
+b. **Síntesis**. Hemos visto que podemos esperar cierto desarrollo bien definido respecto al desenvolvimiento manásico de las razas y subrazas venideras; es digno de observar que, particularmente en lo que respecta a la evolución de manas en esta ronda, se podrá esperar su elevada fructificación durante los próximos quinientos años. El advenimiento de las dos razas raíces finales marca el punto de síntesis y la utilización gradual de lo que se ha conseguido manásicamente; esto se alcanzará mediante el desarrollo del pensamiento abstracto y el reconocimiento intuitivo. En otras palabras, manas (durante las tres razas raíces pasadas) se utilizó principalmente para comprender la existencia objetiva y para adaptar al Morador de la forma a su <pin lang="en">499</pin> medio ambiente en el plano físico. De ahora en adelante, su actividad estará dirigida a comprender el aspecto subjetivo de la manifestación y la psiquis de la vida individual, divina, planetaria o humana. En la próxima ronda, se recapitularán las etapas anteriores y manas se manifestará en forma aún inconcebible para la conciencia semi-despierta del hombre. En dicha ronda tres quintas partes de la familia humana serán plenamente conscientes y actuarán con ininterrumpida continuidad de memoria en los planos físico, astral y mental inferior. Durante la evolución manásica se hará hincapié sobre el logro de la conciencia causal y la construcción científica del puente que ha de unir el vehículo causal y el átomo permanente manásico en los niveles abstractos.
+
+Durante la sexta y séptima rondas, tendremos nuevamente el proceso Sintetizador en acción, de manera análoga a como lo tendrán la sexta y séptima razas raíces en esta ronda.
+
+Para expresar todo el tema en términos más amplios diré que: <pin lang="es">413</pin>
+
+El Hombre celestial alcanzará la conciencia de su cuerpo causal en niveles cósmicos, con la consiguiente reacción, repolarización y alineamiento de Su cuerpo de manifestación. De acuerdo a la Ley, esto se desarrollará como dualidad demostrada y propósito inteligente ordenado en todos los reinos de la naturaleza, y producirá en tales reinos resultados unificadores, de tipo inexplicable para el hombre en su actual etapa de desarrollo manásico. Por lo tanto, no los consideraremos, porque la concepción mental del hombre no está a la altura de la magnitud del tema.
+
+Resumiendo lo que he escrito sobre la facultad discriminadora, la actividad inteligente, la naturaleza adaptable y el poder transmutador de manas, quiero hacer notar que dichos desarrollos tienen tal alcance que cada sector de la naturaleza, tanto macro <pin lang="en">500</pin> como microcósmico, expresará dichos aspectos, haciéndolo de nueve maneras distintas, antes de que pueda lograrse la consumación y de que el hombre encuentre su derrotero.
+
+En consecuencia, consideraremos brevemente la manifestación microcósmica, dejando que el estudiante desarrolle, hasta donde le sea posible, ideas análogas en relación con el Hombre celestial y el Logos solar:
+
+#### Características Manásicas y los Planos
+
+1. En el Plano Físico la cualidad se manifiesta como:
+   1. Poder selectivo de los átomos del cuerpo.
+   2. Adaptabilidad de la forma física a su medio ambiente y a las circunstancias.
+   3. Propósito ordenado de la Vida animante, según afecte a la forma y a los átomos físicos.
+   4. Poder transmutador, inherente al hombre que lo ha llevado, aunque todavía no lo reconozca, desde el hombre animal al actual estado de existencia física. Concierne también a la trasferencia de la vida en los niveles manásicos.
+2. En el Plano Astral la cualidad se manifiesta como:
+   1. Poder discriminador del hombre para elegir entre los pares de opuestos.
+   2. Adaptabilidad del hombre a las condiciones emocionales y su poder para alcanzar oportunamente el equilibrio.
+   3. Poder del hombre, mediante el propósito consciente, para purificar su cuerpo astral de toda materia extraña y asegurar su transparencia. <pin lang="es">414</pin>
+   4. Poder transmutador inherente, que transmuta o transfiere, con el tiempo, la vida a las formas búdicas.
+3. En el Plano Mental la cualidad se manifiesta como:
+   1. Poder selectivo del hombre para elegir la forma por medio de la cual se ha de manifestar. <pin lang="en">501</pin>
+   2. Adaptabilidad del hombre a corrientes y vibraciones mentales y su utilización para controlar las formas inferiores.
+   3. Desenvolvimiento del propósito, mediante los dos vehículos inferiores. El impulso emana del plano mental.
+   4. Poder transmutador, que transforma todo el triple hombre inferior en una nueva forma, el cuerpo causal. El proceso transmutador se desarrolla en la serie de encarnaciones.
+4. En los Niveles Abstractos del Plano Mental la cualidad se manifiesta como:
+   1. Capacidad del Ego para discriminar sobre los factores de tiempo y espacio en los tres mundos.
+   2. Adaptación egoica de la materia y de las circunstancias de tiempo y medio ambiente a la necesidad específica de acuerdo a la Ley del Karma.
+   3. “Propósito inteligente” que subyace detrás de toda objetividad física y se desarrolla en toda vida.
+   4. Transmutación o transferencia de la vida del Ego a la Tríada a medida que actúa en el cuerpo causal. Esto da por resultado la desvinculación de la manifestación en los tres mundos. Para efectuar esta transmutación (algo que a veces se pasa por alto) el Pensador, en el vehículo causal, debe hacer tres cosas:
+      1. Construir y equipar el cuerpo causal.
+      2. Establecer la conexión o control consciente de la triple naturaleza inferior por medio de los átomos permanentes.
+      3. Salvar el intervalo entre el cuerpo causal, en su propio nivel, y el átomo manásico permanente. <pin lang="en">502</pin>
+5. En los Niveles Búdicos la cualidad se manifiesta como:
+   1. Poder discriminador, manifestado como capacidad para distinguir entre lo abstracto y lo concreto e independientemente del mecanismo común -el cuerpo mental y el cerebro físico- llegar a conclusiones. <pin lang="es">415</pin>
+   2. Adaptabilidad al esfuerzo jerárquico, manifestado por el Iniciado o Maestro, y Su receptividad a los impulsos de la vida y a las corrientes espirituales procedentes del Logos planetario de Su rayo; algo que en esta etapa es imposible lograr conscientemente.
+   3. Propósito ordenado que guía al Maestro para elegir uno de los siete Senderos de esfuerzo. De esta manera la elección se funda en el CONOCIMIENTO y no en el deseo.
+   4. Transmutación consciente emprendida por Él al transferir gradualmente Su propia vida y la de Su grupo al aspecto monádico reflejado en el búdico, durante el trabajo de la evolución.
+6. En los Niveles Atmicos la cualidad se manifiesta como:
+   1. Trabajo seleccionador del Adepto, en relación con la manifestación planetaria y el poder discriminador, que guía toda acción relacionada con Su propio planeta y con los otros dos asociados a la Tierra y forman un triángulo del sistema.
+   2. Adaptación de los grupos (devas y humanos) a ciertas clases de influencias y vibraciones procedentes de fuera del sistema, que, desde elevados niveles cósmicos, actúan sobre ellos fomentando ciertos atributos para los cuales no tenemos aún terminología.
+   3. Trabajo sintetizador del aspecto Brahma que se lleva a cabo al fusionarse los cuatro rayos menores en el tercero mayor. <pin lang="en">503</pin>
+   4. Transmutación, cuyo resultado es la oscuración planetaria en conexión con cinco de los Hombres celestiales y que -como sucedió en el trabajo anterior de síntesis- concierne a la evolución microcósmica en la cual participa el hombre. He de llamarles la atención sobre un punto interesante: a medida que aumentan las Mónadas, vuelven nuevamente a su fuente de origen, produciéndose la gradual oscuración de un Hombre celestial de cuyo cuerpo son las células. Aunque esto pueda parecer para la percepción humana un período excesivamente prolongado, desde el punto de vista de la conciencia universal o grupal, ello está ocurriendo AHORA. Por ejemplo, la oscuración en la manifestación del Logos del esquema terrestre ya está en proceso, y comenzó en la época Lemuriana. <pin lang="es">416</pin>
+7. No es necesario que nos extendamos respecto a la discriminación, adaptabilidad, propósito y poder transmutador monádicos.
+
+Estos conceptos e ideas sólo tienen valor en la medida que puedan producir en el Pensador una apreciación más inteligente de la grandiosidad del plan divino, la apropiación de energía y fuerza que le pertenecen por derecho al participar en los procesos de la manifestación, y la inteligente colaboración en el progreso del plan evolutivo, en aquello que lo afecta individualmente a él y a sus grupos.
 
 
 
@@ -1628,3 +1728,7 @@ Hemos tratado de manera amplia y general esta cuestión de la electricidad y vim
 [^33]: D. S. I, 182, 252-256.
 
 [^34]: La Biblia, Isaías XI, 6.
+
+[^35]: La Cuarta Ronda. La actual (nuestra) constituye la Ronda intermedia (entre la 1ra., 2da. y 3ra. y la 5ta., 6ta. y 7tma.), y donde se produce el reajuste y equiparamiento final entre el Espíritu y la materia. En resumen, el reino de la verdadera materia (tan desconocida para la ciencia como su polo opuesto - la materia homogénea o sustancia) tiene allí su estado más denso, terminando y llegando a su fin. Desde ese momento el hombre físico comienza a desprenderse de "una envoltura tras otra" y también de sus moléculas materiales para beneficio y subsiguiente formación o revestimineto del reino animal, quien, a su vez lo hace en bien del vegetal y éste en bien del mineral. Habiendo el hombre evolucionado en la primera ronda de la etapa animal, a través de los otros dos reinos, es lógico que en la ronda actual aparezca antes que el reino animal en este período manvantárico. Véase La Doctrina Secreta para mayores detalles. Lucifer, T. III, pág. 253.
+
+[^36]: D. S.I, 128.
