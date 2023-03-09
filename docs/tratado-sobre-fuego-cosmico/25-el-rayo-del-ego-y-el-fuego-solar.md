@@ -118,8 +118,43 @@ Por lo tanto, no se ha de olvidar la importancia relativa que tiene el átomo pe
 
 Este proceso es repetido por el microcosmos siguiendo la línea de su ser, y análogamente lo lleva a la encarnación o a la unión mística con la forma.
 
+b. **El triángulo atómico**. Para el vidente la envoltura causal es una esfera de sustancia vibrante y viviente; dentro de ella pueden verse tres puntos ígneos. En el corazón de la esfera hay una llamarada de luz central que emite <pin lang="en">514</pin> rayos; estos son siete y actúan sobre dichos puntos o círculos (análogos a los electrones de los átomos de la ciencia) produciendo en esta etapa un gran efecto sobre el átomo astral permanente. El átomo físico permanente está situado relativamente cerca del centro positivo; a través de él actúa la fuerza que pasa al átomo astral permanente, formando cinco rayos de luz semi-coloreada que al mezclarse con el tono intenso y vívido del átomo astral permanente aumenta su intensidad, hasta que la llamarada es tan fuerte que los dos puntos o electrones parecen fusionarse, produciendo tal intensidad de luz que aparentan disolverse. La unidad mental, que ocupa dentro del cuerpo causal un lugar análogo al del planeta más apartado del sol, comienza a vibrar en forma similar, y los otros dos puntos (considerados ahora uno) inician una interacción con la unidad mental, en la que se origina y continúa aplicando un proceso similar hasta que los dos puntos -circulando alrededor de su centro positivo- también se acercan, mezclan, fusionan y disuelven. El centro positivo de vida reúne o sintetiza los tres puntos, así los tres fuegos de la personalidad repiten en pequeña escala el procedimiento microcósmico observado en la síntesis del fuego eléctrico, del fuego solar y del fuego por fricción, quedando únicamente una unidad flamígera, la cual, por medio del calor combinado de su ser, consume el cuerpo causal y <pin lang="es">425</pin> se escapa y regresa a los planos de la abstracción. De esta manera el hombre es el Sendero mismo y el peregrino en el Sendero, así se quema, constituyendo también el suelo ardiente.
 
+Esta analogía es aplicable al caso del microcosmos, observado desde niveles monádicos cuando se manifiesta como Mónada, Ego y personalidad; el mismo proceso se lleva a cabo en lo que atañe al Hombre celestial y también a un Logos solar. Si el cerebro pudiera captar el concepto, <pin lang="en">515</pin> percibiría que es el mismo proceso utilizado en los niveles cósmicos respecto a existencias tan elevadas como los siete Rishis de la Osa Mayor y ese Ser aún más elevado, AQUEL SOBRE QUIEN NADA PUEDE DECIRSE.
 
+### 3. Las Espirillas y el Rayo del Ego.
+
+Ahora nos abocaremos al tema de las espirillas, que se hallan dentro del átomo permanente, y observaremos en qué forma son afectadas por el rayo egoico, recordando siempre que las consideramos como:
+
+Primero. La economía interna del germen de la vida en los tres planos concernientes al hombre en los tres mundos; segundo, los siete principios de cada una de las tres envolturas: tercero, el núcleo positivo de la fuerza que mantiene unida la materia de las tres envolturas.
+
+Por lo tanto, estudiaremos dos cosas:
+
+1. La composición del átomo permanente.
+2. La diferencia que existe entre la unidad mental y los átomos permanentes astral y físico.
+
+A fin de esclarecer esto y de extraer algún concepto definido de esas oscuras regiones de la abstracción, hagamos la siguiente clasificación:
+
+a. **La composición del átomo permanente**. El átomo permanente de los planos astral y físico es una esfera de sustancia astral o física, compuesta de materia atómica y caracterizada por las cualidades siguientes:
+
+*Respuesta*. Es el inherente poder de responder a la vibración de cualquiera de los Hombres celestiales y se transmite por intermedio del aspecto Brahma o dévico de Su triple naturaleza. El átomo permanente encuentra su lugar dentro de la esfera de influencia de uno de los grandes devas, los Señores Rajas de un plano.
+
+*El poder de construir formas*. Estos devas pronuncian dos letras de la palabra microcósmica, y cada una constituye (en su propio plano) el agente coherente que reúne <pin lang="en">516</pin> la sustancia. produce la forma y atrae materia con el propósito de objetivarla. El sonido <pin lang="es">426</pin> astral produce al microcósmico “Hijo de la necesidad”, y cuando reverbera en el plano físico produce la encarnación y la repentina aparición de los siete centros en los niveles etéricos. La construcción del físico denso es el resultado de la consiguiente acción automática de la esencia dévica, pues no debe olvidarse que el hombre es esencialmente (respecto al plano físico) un ser etérico y que su cuerpo físico denso es considerado esotéricamente como que se halla “debajo del umbral” y no constituye un principio.
+
+*Permanencia relativa*. En el séptimo principio de todas las entidades que se manifiestan se van acumulando y desarrollando las facultades los dones y la memoria atómica, en otras palabras, la herencia del Pensador, desde el punto de vista físico y emocional. Las envolturas no son permanentes; están construidas en formas provisorias y son desintegradas cuando el Pensador ha agotado todas sus posibilidades pero el séptimo principio de cada una de las envolturas recoge para sí las cualidades adquiridas y las acopia (bajo la Ley del Karma) para ser desarrolladas nuevamente, expresándolas como impulso del plano en cada nuevo ciclo de manifestación. Dicha permanencia es también relativa, pues cuando el fuego Interno del átomo arde con mayor fuerza y los fuegos externos del ego o fuego solar, hacen impacto sobre el átomo con acrecentada intensidad, entonces el átomo a su debido tiempo es consumido. y la llamarada interna llega a ser tan poderosa que destruye el muro que la encierra.
+
+*Calor*. Aquí se encuentra la diferencia que existe entre los átomos de todos los planos y la materia atómica de la cual forman parte. No es fácil dilucidar esta diferencia, ni tampoco es conveniente hacerlo en esta época: los hechos reales constituyen uno de los secretos de la iniciación pero la diferencia que existe entre el átomo permanente y la materia atómica podría más o menos llegar a comprenderse si decimos que: <pin lang="en">517</pin>
+
+1. El átomo permanente es aquel del cual se ha apropiado una de las vidas que forman los centros del cuerpo de un Señor solar, mientras que la materia atómica en sí se emplea para formar otras partes de Su gran cuerpo de luz.
+2. El átomo permanente es aquel que ha quedado bajo el poder atractivo del segundo aspecto, en cambio la materia atómica misma es vitalizada por la vida del tercer aspecto.
+3. El átomo permanente sigue la línea de fuerza de menor resistencia y va quedando fuera del control del Señor de los Devas y entra bajo el control de la vida positiva. Esto concierne a la evolución de la conciencia de la sustancia.
+4. El átomo permanente queda bajo el control directo de los tres grupos inferiores de los Señores Lipikas y constituye el <pin lang="es">427</pin> agente a través del cual Ellos imponen el karma correspondiente a un ente determinado que pudiera estar empleándolo. Trabajan directamente con los átomos permanentes de los hombres y logran resultados mediante la forma, hasta agotar la capacidad vibratoria de un átomo determinado; cuando esto ocurre el átomo entra en una etapa de oscuración, como lo hace el séptimo principio de cualquier envoltura. Queda así bajo la influencia del primer aspecto que se manifiesta como el Destructor.
+
+Recuerden que al hacer estas afirmaciones nos referimos al microcosmos y a los átomos permanentes relacionados con el mismo; respecto al Logos solar manifestado en el sistema, nos ocupamos de uno de los átomos permanentes, siendo Su átomo físico permanente. Resultará evidente que en el átomo físico permanente del Logos solar se halla oculta la facultad de responder conscientemente a las vibraciones de todos los planos, el secreto del propósito kármico de Su encarnación <pin lang="en">518</pin> y también el misterio de Su actividad funcional; pero no podemos desentrañar todavía el secreto de Sus tres átomos permanentes inferiores al funcionar como una unidad dentro de Su vehículo causal. Hasta que no logremos esto es inútil hacer conjeturas respecto a su Ser fundamental.
+
+**La diferencia que existe entre ellos**. La unidad mental tiene, respecto al hombre, una posición peculiar y única, la de **Pensador en el cuerpo causal**. Esto lo estudiaremos luego, por ahora sólo diré que el misterio de la unidad mental se halla oculto en la naturaleza de los Hombres celestiales. La siguiente analogía contiene la clave de este misterio, pero sólo puede insinuarse, dejando que el estudiante descubra la verdad por si mismo. En los tres planos de la manifestación logoica -los tres superiores- se manifiestan los tres aspectos: en el plano búdico, el cuarto éter cósmico, se manifiestan los centros logoicos etéricos, o sea esos vórtices de fuerza que animan a los tres planos inferiores de la manifestación físico densa. En conexión con los Hombres celestiales tenemos también una manifestación secundaria, y en el plano búdico se halla Su tercer aspecto, dejando el plano cósmico gaseoso o manásico para la expresión principal de Su fuerza; Ellos constituyen esencialmente los Pensadores divinos, los Manasaputras. Por lo tanto, en conexión con el microcosmos, considerado como parte de un centro del cuerpo de un Hombre celestial, hay un descenso menor dentro de la manifestación gaseosa o ígnea de un Señor solar. Esto atañe a los tres subplanos superiores, que podrían considerarse como la manifestación de los tres aspectos superiores del Hombre en materia mental, mientras que en el cuarto subplano tenemos los centros mentales del hombre dentro de la periferia de su cuerpo <pin lang="es">428</pin> mental del cual la unidad mental constituye el factor unificador. Como ya se ha dicho anteriormente, éste es un profundo misterio y no puede dilucidarse más extensamente.
+
+b. **Los planos y la energía ígnea**. Seria bueno <pin lang="en">519</pin> considerar aquí las analogías de cada plano [^5], con sus siete subplanos, recordando al estudiante que estamos hablando de los planos no sólo como el campo para el desarrollo del hombre, sino como el campo de evolución de un Logos solar. En el sistema solar tenemos:
 
 
 
@@ -143,3 +178,47 @@ Este proceso es repetido por el microcosmos siguiendo la línea de su ser, y an�
      5. Los siete planetas y sus entidades que les dan forma.
      6. Los siete planos y sus principios animadores.
      7. Amor-Sabiduría es la manifestación de la naturaleza astral (o de deseos) del Logos solar. D. S. I, 125.
+
+[^5]: 1.  Los siete planos del sistema son:
+
+     |     |             |        |                   |
+     | --- | ----------- | ------ | ----------------- |
+     | 1.  | Divino      | Logos  | 1er. éter cósmico |
+     | 2.  | Monádico    | Mónada | 2do. éter cósmico |
+     | 3.  | Espiritual  |        | 3er. éter cósmico |
+     | 4.  | Intuicional |        | 4to. éter cósmico |
+     | 5.  | Mental      | Ego    | plano gaseoso     |
+     | 6.  | Astral      |        | plano líquido     |
+     | 7.  | Físico      |        | denso             |
+
+     2. Las siete diferenciaciones en términos de energía ígnea, constituyen:
+     
+     |     |                              |                |              |
+     | --- | ---------------------------- | -------------- | ------------ |
+     | a.  | El plano de la vida divina   | Padre          | Mar de fuego |
+     | b.  | El plano de la vida monádica | Hijo           | Akasha       |
+     | c.  | El plano átmico              | Espíritu Santo | Éter         |
+     | d.  | El plano búdico, intuición   | Central        | Aire         |
+     | e.  | El plano de la mente         |                | Fuego        |
+     | f.  | El plano del deseo           |                | Luz Astral   |
+     | g.  | El plano físico              |                | Éter         |
+
+     Pensamiento......Formas Mentales.....Materialización
+     Microcosmos...............Macrocosmos
+
+     |                                  |                  |
+     | -------------------------------- | ---------------- |
+     | Los planos de evolución logoica  | los siete planos |
+     | Los planos de evolución del Hijo | los seis planos  |
+     | Los planos de evolución monádica | los cinco planos |
+     | Los planos de evolucion humana   | los tres mundos  |
+
+     Siete es el número de toda manifestación.
+     Tres es el número de la conciencia.
+     Uno es el número de la Vida o Espíritu.
+
+     |                |             |                    |
+     | -------------- | ----------- | ------------------ |
+     | Fuego elétrico | Fuego solar | Fuego por fricción |
+     | Padre          | Hijo        | Espíritu Santo     |
+     | Espíritu       | Conciencia  | Materia            |
