@@ -265,6 +265,64 @@ No es posible explayarse más sobre este misterio.
 
 Antes de continuar, sería conveniente resumir algunos de los hechos respecto a las espirillas y al átomo, y luego encarar el tema del cuerpo causal y del hombre, el individuo. <pin lang="en">531</pin>
 
+1. Las cuatro espirillas inferiores están definidamente influenciadas por el Rayo de la personalidad.
+2. Las espirillas quinta y sexta están más específicamente influenciadas por el Rayo del ego, cualquiera sea ese Rayo.
+3. La quinta espirilla tiene un valor peculiar porque sintetiza las cuatro inferiores. Constituye la tercera cuando enumeramos las corrientes de fuerza espiral desde el ángulo del polo atómico. Vibra de acuerdo a cinco tipos de fuerza.
+4. Textualmente, las espirillas son diez, tres mayores y siete menores, pero desde el punto de vista de la unidad, constituyen las cuatro y las tres mayores; las tres restantes se cuentan como una, conjuntamente con sus mayores, pues constituyen reflejos directos.
+5. Los átomos permanentes no tienen forma de corazón, según los ilustran ciertos libros. Una cantidad de átomos son de ese tipo, pero no constituyen átomos permanentes, los cuales son más definidamente esferoidales, ligeramente aplanados en la parte superior, y análogamente aplanados en la parte inferior, encontrándose en ello la analogía de la depresión polar.
+6. El orden de las espirillas, dentro de los átomos permanentes, varía en cada plano, y las que con más frecuencia se mencionan son las espirillas del plano físico. El orden de estos minúsculos vórtices de fuerza y su economía interna en cada plano constituye <pin lang="es">438</pin> uno de los secretos de la iniciación y no puede ser revelado. Sólo es posible hacer una sugerencia para guiar al estudiante: El átomo astral permanente posee corrientes internas de fuerza, ordenadas de tal modo que las espirillas se asemejan a la figura del corazón, pero sin terminar en punta. El átomo búdico permanente contiene espirillas ordenadas que forman aproximadamente el número ocho, con una corriente central que secciona la doble espiral.El orden de las espirillas, dentro de los átomos permanentes, varía en cada plano, y las que con más frecuencia se mencionan son las espirillas del plano físico. El orden de estos minúsculos vórtices de fuerza y su economía interna en cada plano constituye <pin lang="es">438</pin> uno de los secretos de la iniciación y no puede ser revelado. Sólo es posible hacer una sugerencia para guiar al estudiante: El átomo astral permanente posee corrientes internas de fuerza, ordenadas de tal modo que las espirillas se asemejan a la figura del corazón, pero sin terminar en punta. El átomo búdico permanente contiene espirillas ordenadas que forman aproximadamente el número ocho, con una corriente central que secciona la doble espiral.
+7. Cuanto más se acercan a la realidad, más sencillo se hallará el ordenamiento de las espirillas. Estas corrientes de fuerza evidencian un ordenamiento septenario en los <pin lang="en">532</pin> tres átomos permanentes inferiores del hombre, mientras que los tres superiores contienen sólo tres espirillas -las tres mayores.
+8. Debe observarse que existen únicamente seis átomos permanentes vinculados, a la evolución humana, mientras que el Hombre celestial posee cinco, y uno de ellos se halla en el sistema solar. (Aún no ha sido revelado el misterio de un planeta y su vida central, que está vinculado a otra manifestación de la cual nada sabemos.)
+9. Se ha de recordar que estamos tratando de la encarnación física de estas grandes Entidades y que Sus átomos permanentes, excepto el físico, están fuera del sistema.
+10. El cuerpo causal del Hombre celestial se halla en el tercer subplano del plano cósmico mental, mientras que el del Logos solar y el de las tres Personas de la Trinidad logoica están en el primer subplano.
+11. Los átomos permanentes de los hombres se hallan en el subplano atómico de cada plano, excepto en el mental; los de los animales en el segundo subplano; los de los vegetales en el tercer subplano, y los de los minerales en el cuarto subplano. Existe, por lo tanto, una estrecha analogía entre estos puntos focales de fuerza del grupo sea o no humano -de una cadena, un globo, una ronda- debidamente aplicado llega el esclarecimiento. La suma total de los átomos permanentes de cualquier reino determinado forman las corrientes de fuerza o espirillas de los grandes átomos que pertenecen a las entidades solares o lunares, mientras que la suma total de los átomos permanentes del hombre en el reine espiritual (los tres átomos de la tríada, atma-budi-manas) forman las corrientes espirales de fuerza dentro de ciertos centros.
+12. A medida que los átomos permanentes llegan a ser radiactivos, durante la evolución, producen dentro del centro un notable acrecentamiento de la vibración.
+13. Los átomos permanentes tienen que ver con los entes solares cuando se hallan en, o por encima del mental superior. <pin lang="es">439</pin> <pin lang="en">533</pin> Conciernen a los entes lunares del mental inferior, en los planos astral y físico.
+14. Se ha de observar que en el sistema solar los entes enumerados a continuación se manifiestan a través de:
+    1.  Un átomo permanente        el físico.
+        1.  Un Logos solar.
+        2.  Los tres Rayos mayores o Señores de Aspecto.
+        3.  Los siete Hombres celestiales.
+        4.  Los cuarenta y nueve Regentes de las cadenas planetarias.
+    2.  Dos átomos permanentes        el físico y el astral.
+        1.  Los siete Señores que pertenecen a los globos de cada cadena.
+        2.  Los cuarenta y nueve Manu-Raíces.
+        3.  Los setenta y siete formadores de las formas -grupos de Señores solares que se dedican a construir formas, trabajando principalmente en el primer Rayo.
+        4.  Algunos Avatares, elegidos por el Logos a fin de contener cierto tipo de fuerza en determinados intervalos y así acrecentar la evolución de la psiquis.
+    3.  Tres átomos permanentes        físico, astral y mental.
+        1.  Los Señores del tercer reino, el reino animal. Son siete Entidades cuyos cuerpos están formados por almas animales; así como los Hombres celestiales personifican para el hombre el principio búdico, análogamente esos Señores personifican para el reino animal el principio manásico que constituye para dicho reino la meta del proceso evolutivo.
+        2.  Ciertas grandes Entidades que personifican toda una serie de existencias en cinco planetas, de los cuales la Tierra no forma parte, pero con el tiempo se comprobará que ejercen un poderoso efecto sobre el hombre en la Tierra, mediante los tres Budas de Actividad. Un indicio sobre esta influencia esotérica le llega al hombre debido al estrecho vínculo que existe entre la Tierra y Mercurio. No es posible extenderme más por ahora.
+        3.  Las entidades que son la suma total de esas almas grupales que contienen tríadas permanentes definidas. Nueve tríadas constituyen el cuerpo de una de estas entidades.
+    4.  Por intermedio de cuatro átomos permanentes        físico, astral, mental y búdico.
+        1.  Ocho grupos de Entidades solares que constituyen la vida subjetiva de los siete centros en el cuerpo de Brahma, considerado como una Entidad cósmica separada, <pin lang="en">534</pin> disociado de Sus dos hermanos. Son los siete Hijos de Fohat, incluyendo el octavo Hijo, y la diferenciación final de los cuarenta y nueve fuegos, anteriores a Su unión con el fuego de Eros. Así lo expresa H. P. B. [^10]
+        2.  Esa Entidad que actúa por intermedio de la FORMA de una <pin lang="es">440</pin> Jerarquía planetaria oculta, empleándola como Su cuerpo de manifestación y considerándola como el centro por intermedio del cual Su fuerza puede fluir. Debe recordarse que dichos grupos constituyen, en cada planeta, un vehículo mediante el cual se expresa la vida de un gran Individuo, quien da a esa Jerarquía su coloración característica y su nota clave particular.
+        3.  Un número de Deidades solares que irradian el magnetismo solar y constituyen la vida de la forma.
+        4.  Un grupo peculiar de Seres conectados con cierta constelación y el Dragón menor; quienes tienen su morada en Neptuno y trabajan con el sexto principio del sistema solar. Toman forma física, están animados por el deseo puro y controlados por la mente, e imparten amor-sabiduría en ciertas “Aulas de Sabiduría” en los diversos planetas. Las palabras “Aulas de Sabiduría” en su significado esotérico no describen un lugar sino una etapa de conciencia.
+         
+         :::note Recuerda
+
+         Las palabras “Aulas de Sabiduría” en su significado esotérico no describen un lugar sino una etapa de conciencia.
+
+         :::
+
+    5. Por intermedio de cinco átomos permanentes ... físico, astral, mental, búdico y átmico.
+        1. Los Señores de ciertos subplanos que trabajan dirigidos por el Señor Raja de un plano y constituyen en si vibración y actividad.
+        2. Los Hombres celestiales menores en el nivel búdico, que reflejan a Sus prototipos superiores en el segundo plano del sistema.
+        3. Las entidades que constituyen la suma total de la conciencia grupal en niveles egoicos; se ha de recordar que estos grupos están diferenciados, compuestos y agrupados en siete, hasta formar cuarenta y nueve grupos de siete vehículos egoicos, formando a su vez un grupo que constituye el cuerpos de esta Deidad solar menor. Existe una multiplicidad de estos grupos de cuarenta y nueve unidades. Esto ya fue mencionado anteriormente cuando se <pin lang="en">535</pin> anunció que un Maestro y Su conjunto particular de discípulos e iniciados forman un grupo o centro de fuerza. Estos grupos tienen sus átomos permanentes como lo tienen todas las vidas que intentan expresarse objetivamente
+        4. Las entidades que constituyen la suma total del reino vegetales en sus diversas manifestaciones en los diferentes globos, cadenas y esquemas.
+    6. Por intermedio de seis átomos permanentes ... físico, astral, dos mentales, búdico y átmico.
+       1. El Hombre
+
+Todo lo que aquí se enuncia es una ampliación de los informes dados sobre “La Hueste de la Voz” [^11] en un esfuerzo por demostrar que muchas vidas distintas (personificando todas las vidas menores, o que se hallan personificadas en vidas mayores) se encuentran dentro de los diferentes esquemas. Sólo nos ocupamos de esas <pin lang="es">441</pin> vidas superhumanas o humanas, las cuales han sido o son HOMBRES.
+
+No hemos tratado las vidas subhumanas, los señores lunares o pitris menores, pues su día no ha llegado aún, progresando inconsciente y no autoconscientemente a medida que avanza el progreso evolutivo. Ya han sido consideradas estas entidades y sus átomos permanentes en relación a su manifestación en un sistema solar; no nos hemos extendido más allá del “círculo no se pasa” solar.
+
+Todos los átomos permanentes se relacionan. con la materia física y la manifestación. El átomo permanente superior del hombre, el átmico, después de todo es un átomo del tercer éter cósmico, y esto debe ser estudiado y meditado. También fueron comentadas las distintas personalidades (la palabra “personalidad” se aplica deliberadamente, pues ¿Qué son Ellas, sino personalidades o Seres en encarnación física?), en primer lugar desde Su punto de fuerza inferior. Hemos considerado al átomo permanente como el punto donde se establece contacto con la fuerza de un plano, de un planeta, de una cadena, de un esquema o de un sistema. Esto debe tenerse siempre presente.
+
+Se ha de tener en cuenta que gran parte de lo antedicho <pin lang="en">536</pin> podrá parecer incomprensible, pero lo que aquí se expone se esclarecerá cuando los científicos lleguen a comprender y a regular la fuerza, entonces se verá que hemos tratado con la fuerza positiva de todas las formas negativas que se hallan por encima del reino humano e incluyendo a éste.
+
+
+
 
 [^1]: D.S. V, 138.
 
@@ -366,3 +424,7 @@ Antes de continuar, sería conveniente resumir algunos de los hechos respecto a 
         5. Los Dioses involutivos y evolutivos
         6. Los átomos de la sustancia en todos los planos.
      7. Todas las formas son destruídas períodicamente. Léase cuidadosamente La Doctrina Secreta, II, 78-82.
+
+[^10]: D. S. I, 155; 159-160.
+
+[^11]: D. S. I, 140.
