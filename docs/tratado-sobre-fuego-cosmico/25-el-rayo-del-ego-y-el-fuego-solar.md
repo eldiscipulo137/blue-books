@@ -156,8 +156,114 @@ Recuerden que al hacer estas afirmaciones nos referimos al microcosmos y a los �
 
 b. **Los planos y la energía ígnea**. Seria bueno <pin lang="en">519</pin> considerar aquí las analogías de cada plano [^5], con sus siete subplanos, recordando al estudiante que estamos hablando de los planos no sólo como el campo para el desarrollo del hombre, sino como el campo de evolución de un Logos solar. En el sistema solar tenemos:
 
+Primero, los tres planos superiores, correctamente denominados los planos de los tres aspectos; segundo, el séptimo principio logoico que se halla en el primer plano y puede considerarse como el impulso de la materia física que produjo Su cuerpo objetivo.
 
+En el segundo plano se hallan los siete Hombres celestiales que constituyen Sus centros principales de fuerza. Existen otros pero de Ellos no nos ocuparemos, porque han logrado ya una meta determinada, y <pin lang="en">520</pin> personifican los centros que ahora se hallan en <pin lang="es">429</pin> estado pasivo o fuera de manifestación, pues el kundalini logoico ha dirigido su atención hacia otra parte. Según otra clasificación constituirían los diez que corresponden a la vida esotérica, pudiendo también clasificarse como doce, formando así el Loto de doce pétalos o centro cardíaco del Cuerpo de AQUEL SOBRE QUIEN NADA PUEDE DECIRSE.
 
+En el cuarto éter cósmico, el plano búdico, se encuentran los centros etéricos del Logos. Allí están también los planetas esotéricos y el Sol, considerados como el centro de los principios búdicos; desde allí el Logos anima a Su manifestación física densa.
+
+Finalmente, en los tres planos inferiores tenemos Sus cuerpos o envolturas gaseosa, líquida y densa, que peculiarmente forman en conjunto una unidad; constituyen un todo coherente, así como los tres planos superiores forman análogamente la triple expresión unificada de las tres personas de la Trinidad.
+
+Existe una analogía similar en los subplanos de cada plano del sistema, y ésta se hará más evidente a medida que el hombre vaya adquiriendo una visión más clara y pueda conscientemente comprobar por si mismo la verdad respecto a la vida subjetiva. Nos ocuparemos brevemente de estos planos y estudiaremos la vida o manifestación de fuerza en cada uno, dándole más importancia a los cuatro inferiores por ser los planos que conciernen más de cerca al hombre.
+
+El Plano Logoico. Los subplanos primero, segundo y tercero del primer éter cósmico responden específicamente a la vibración de uno de los tres aspectos o a esas Entidades cósmicas cuya influencia llega desde más allá del sistema hasta la materia de los planos. En el cuarto subplano se obtiene una mezcla elemental de las tres Vidas ígneas que produce, en forma arquetípica, esa manifestación de fuerza de la electricidad que oportunamente hace surgir, en el plano siguiente, a los Hijos de la Luz. En esta connotación eléctrica tenemos los tres planos superiores personificando siempre al triple aspecto Espíritu; los tres <pin lang="en">521</pin> inferiores personificando al triple aspecto sustancia, el plano de unificación donde se logra un acercamiento que, en el Sendero de Retorno, señala el momento de la realización y del triunfo. A esto le sigue un período de oscuración. De allí que en todos los planos del sistema solar exista un cuarto plano donde se lucha por obtener la iluminación perfecta, lográndose en consecuencia la liberación, el campo de batalla, el Kurukshetra. Aunque para el hombre, el cuarto plano o búdico, es el lugar de triunfo y la meta de sus esfuerzos, para el Hombre celestial constituye el campo de batalla y para el Logos solar el suelo ardiente.
+
+La diferenciación de los subplanos de los planos del sistema <pin lang="es">430</pin> en tres superiores, tres inferiores y un plano central de armonía, ocurre únicamente desde el punto de vista del fenómeno eléctrico y no del Espíritu puro, o sustancia pura, considerado separadamente. Esto concierne al misterio de la electricidad y a la producción de la luz. Los tres planos superiores tienen que ver con las Fuerzas o Vidas centrales, los tres inferiores conciernen a las Fuerzas o Vidas inferiores. Esto debemos tenerlo muy presente, recordando que, para el ocultista, no existe tal cosa como sustancia, sino únicamente Fuerza en distintos grados, Energía de cualidad diferenciada, Vidas que emanan de diferentes fuentes, cada una distinta y separada, y Conciencia que produce un efecto inteligente por intermedio del espacio.
+
+Les indicaré que en el subplano atómico de cada plano el Señor Agni manifiesta Su ardiente vida; se demuestra como fuego solar en el segundo, tercero y cuarto, y como “fuego por fricción” en el quinto, sexto y séptimo. Desde el punto de vista del microcosmos, la Chispa en la Llama, el hombre, se manifiesta como fuego eléctrico en el segundo plano o segundo éter cósmico; como fuego solar en los planos tercero y cuarto y en los tres subplanos superiores del quinto; <pin lang="en">522</pin> como fuego por fricción en los subplanos inferiores del quinto, sexto y séptimo.
+
+c. **Los planos y Los tres fuegos**. Hablando en forma relativa, en cada plano tenemos:
+
+1. Fuego eléctrico manifestándose como el estado primitivo de los tres superiores.
+2. Fuego por fricción como el factor más significativo de los tres inferiores.
+3. Fuego solar que surge como llamarada producida por la unión en el plano central.
+
+Esto puede observarse en el sistema solar en conexión con un Hombre celestial en el plano búdico, donde dichos Fuegos surgen como llamaradas a través de Sus centros etéricos. Relacionada con el hombre en el plano mental, existe una condición similar: los tres subplanos superiores conciernen al aspecto Espíritu del cuerpo causal y los tres inferiores conciernen principalmente a la envoltura mental o fuego por fricción; en el cuarto subplano se hallan los centros de fuerza del cuerpo mental. Lo mismo sucede en el plano físico respecto al hombre -sus centros etéricos se hallan ubicados en la materia del cuarto éter.
+
+Cada una de las tres Personas de la Trinidad se manifiesta igual que el hombre, Espíritu, Alma o Ego y Sustancia. Relacionándolo con Brahma tenemos el aspecto Espíritu o primer aspecto, animando a los tres subplanos superiores de cada plano. Su aspecto <pin lang="es">431</pin> alma se halla en el cuarto subplano de cada plano donde están situados los centros etéricos de todos los entes manifestados. En los tres subplanos inferiores es donde primeramente hace contacto con Su aspecto sustancia. De allí que existan cuarenta y nueve fuegos de materia o lo siete fuegos de cada plano; la unión de los tres superiores y los tres inferiores producen esa llamarada que denominamos ruedas de fuego o centros, en el cuarto subplano de cada plano.
+
+Vinculada al segundo aspecto existe una condición <pin lang="en">523</pin> similar. En el segundo plano el fuego solar surge en su aspecto eléctrico, haciéndolo también en el tercero y cuarto planos, pero su manifestación central se efectúa en los niveles manásicos brillando a través del vehículo causal de los grupos egoicos. Sólo quedan dos planos y medio donde puede manifestarse el aspecto fuego por fricción, dieciocho subplanos en total que conciernen al tercer aspecto de la segunda Persona de la Trinidad logoica.
+
+Para el hombre, el microcosmos, es posible establecer una diferenciación similar; su Mónada y su aspecto egoico pueden estudiarse en sus triples esencias y en sus propios planos; el aspecto Brahma del Ego se halla dentro de los átomos permanentes. Por lo tanto debería estudiarse con cuidado lo siguiente:
+
+1. **Los Planos**. Manifestación de Brahma, aspecto sustancia o tercer aspecto, debería aplicarse a esta Entidad la misma constitución triple que se evidencia en las otras dos. Deben estudiarse detenidamente los planos del fuego eléctrico, los de su naturaleza inferior y el punto donde surge como llamarada o, para él, conflagración (los centros etéricos). Brahma es la vida positiva de la materia, la revelación de la sustancia y la llamarada que puede percibirse.
+2. **La Vibración**. Manifestación del segundo aspecto. Las vibraciones de la conciencia constituyen los tres mundos mayores, suma total de la vida egoica, los tres menores que rigen el tercer aspecto del Ego y el acorde de unificación que emite su sonido actualmente.
+
+Los tres aspectos del Espíritu, tal como pueden ser percibidos, sólo es posible expresarlos en nuestro sistema solar, en términos de los otros dos, y en lo que respecta a su naturaleza, foránea al sistema, nada puede decirse que resulte de valor en esta etapa del conocimiento.
+
+Las ideas anteriores respecto a los planos y a las nueve naturalezas de todo lo que existe, nos conduce a regiones que todavía se hallan muy lejos de la comprensión del hombre; sin embargo, el <pin lang="es">432</pin> científico se aproximará a la verdad <pin lang="en">524</pin> y comprenderá la naturaleza de los fenómenos eléctricos, sólo cuando estudie la triple naturaleza del aspecto sustancia; únicamente entonces la electricidad será dominada y utilizada por el hombre como unidad, no sólo en uno de sus aspectos como lo ha hecho hasta ahora; lo único que se ha logrado extraer hasta hoy, para fines comerciales, es la electricidad negativa del planeta. Debe recordarse que aquí se emplea el término negativo en relación con la electricidad solar. Cuando el hombre haya descubierto la forma de extraer y utilizar la electricidad positiva combinada con la electricidad planetaria negativa, se producirá una situación muy peligrosa, constituyendo uno de los factores que oportunamente provocará la destrucción, mediante el fuego, de la quinta raza raíz. En ese grandioso cataclismo “los cielos pasarán con grande estruendo, y los elementos ardiendo serán deshechos”, [^6] como dice la Biblia. Esto sucederá, aún en mayor grado, en la próxima ronda, y mediante el fuego serán destruidas las formas de aquellos hombres que han fracasado, lo cual liberará en gran escala las vidas, quedando así la Tierra “purificada” momentáneamente de elementos que tiendan a obstaculizar el proceso evolutivo. A medida que pasan los ciclos se logrará gradualmente el equilibrio de estas corrientes ígneas, produciéndose una condición planetaria armónica y una cualidad esotérica que proporcionará un ambiente ideal para el hombre armonioso.
+
+Solo cuando los sicólogos estudien la triple naturaleza esencial del aspecto forma se revelará el misterio de la conciencia, y la naturaleza de los tres grupos magnéticos, sus distintas subdivisiones y la consiguiente radiación efectiva se convertirán en un factor de la vida diaria. Esto tiene que ver con el desarrollo definitivo de la psiquis de acuerdo a la ley la expansión científica de la conciencia, produciendo oportunamente esas condiciones en que el trabajo preliminar a la primera iniciación, no formará parte de un proceso esotérico sino <pin lang="en">525</pin> que será estrictamente exotérico. A su debido tiempo se hallará que los esfuerzos autoinducidos por los cuales el hombre prepara conscientemente sus centros para que le sea aplicado el Cetro de la Iniciación, en la primera Iniciación, serán tratados en los libros y conferencias y formarán parte del pensamiento común de las masas. También esto conducirá a que se separen los dos grupos a mediados de la quinta ronda. Debe recordarse que dicha separación formará parte de un proceso natural y no será una drástica medida impuesta contra la voluntad de los pueblos. Los CONOCEDORES y los estudiantes del Conocimiento -impulsados por la conciencia de grupo y actuando conscientemente- reunidos en grupos, se apartarán de aquellos que no poseen <pin lang="es">433</pin> conocimiento ni se preocupan por poseerlo. Dicha separación será autoinducida y constituirá un desarrollo lógico de la vida grupal; tendrá en sí mismo un carácter temporario, porque el objetivo fundamental consistirá en lograr oportunamente una fusión más estrecha: se establecerá primordialmente la línea de demarcación entre los cuatro Rayos inferiores y los tres superiores. Este misterio también se halla oculto en la relación existente entre los cuatro Kumaras exotéricos [^7] y los tres esotéricos, y desde el punto de vista del hombre, separa a quienes están desarrollando la conciencia de la Tríada de aquellos que aún viven la vida del Cuaternario.
+
+Involucra a los que responden a los Señores solares, distinguiéndolos de los que todavía sólo reconocen el control de los Señores lunares. Lo expondré en términos de Fuego: a quienes calienta el fuego por fricción y no responden al fuego solar permanecen dentro de la caverna y viven en la oscuridad, mientras que aquellos sobre cuyo ser irradia el Sol de la Sabiduría y se exponen a los rayos del calor solar, viven en la luz, gozan de una libertad cada vez mayor y llevan una existencia vital.
+
+El verdadero significado de los tres aspectos del Espíritu recién comienza a percibirlo el iniciado de alto grado, <pin lang="en">526</pin> no pudiendo ser expresado en palabras ni captado por el hombre hasta no haber pasado del reino humano al espiritual. Por lo tanto, es innecesario detenernos para elucidarlo más extensamente.
+
+Podríamos resumir esta cuestión, que tan frecuentemente citaba H. P. B. en los términos del Antiguo Comentario:
+
+> Los Benditos Seres ocultan Su triple naturaleza, pero revelan Su triple esencia por medio de los tres grandes grupos de átomos. Tres son los átomos, triple su radiación. El interno núcleo de fuego se oculta a sí mismo y sólo es conocido a través de lo que irradia y por aquello que irradia. El fuego puede conocerse sólo cuando desaparece la llama y ya no se siente el calor.
+
+Ahora podemos reasumir nuestro estudio del misterio de la unidad mental y observar en qué difiere de los demás átomos permanentes; entonces podríamos condensar brevemente el cúmulo de información esotérica respecto a los átomos permanentes, lo cual será suficiente durante muchos años como base de investigación para los estudiantes de ocultismo. Los átomos permanentes y su economía interna continuarán siendo un misterio durante mucho tiempo, sólo podrán darse aquí unas pocas indicaciones generales.
+
+La diferencia fundamental existente entre la unidad mental y los otros dos átomos permanentes consiste en que aquélla sólo contiene cuatro espirillas en lugar de siete. Esto ocurre debido al hecho mismo de la evolución, pues la unidad mental es el primer <pin lang="es">434</pin> aspecto de la triada, de la personalidad o del hombre, al actuar en el reino humano en los tres planos inferiores. Cuando el hombre pasa al reino espiritual, estos tres aspectos -los cuerpos mental, astral y físico- se sintetizan en el superior mediante un proceso dual:
+
+1. Cambia su polarización, pasando de los tres átomos inferiores a los de la Tríada.
+2. La fuerza que estos átomos generan y personifican se mezcla y fusiona en los puntos superiores de fuerza.
+
+<p>
+<pin lang="en">527</pin> Átomo permanente es el núcleo positivo o sustancia germen de la envoltura donde éste se encuentra. Es aquello que constituye la base para la construcción de formas y, textualmente, es un punto vibrante de fuerza que emana del segundo aspecto de la Mónada y acumula en sí el aspecto negativo o tercero, con el cual construye la forma. Debe recordarse que este segundo aspecto es dual y que al considerar los átomos permanentes tratamos del aspecto femenino de la segunda Persona. En consecuencia, las espirillas no son más que corrientes de fuerza, o el segundo aspecto vital que circula geométricamente dentro del muro que circunda a la sustancia, compuesto de la fuerza o sustancia del tercer aspecto. Lo que se ha dicho de la objetividad o del átomo cósmico también puede decirse del átomo permanente del hombre, el microcosmos:
+</p>
+
+“El rayo primordial es el vehículo del Rayo divino.” [^8] La fuerza negativa constituye un receptáculo para la fuerza positiva. Los átomos son centros de fuerza, y los centros, tal como los conocemos, el conjunto de puntos de fuerza que han alcanzado un grado específico en la evolución y responden, en cierta medida al primer gran aspecto o fuego eléctrico.
+
+Debe reflexionarse detenidamente sobre este concepto pues oculta mucha información para el estudiante, y cuando sea captado debidamente, se verterá, sobre el problema de la manifestación, la luz del conocimiento El lugar que ocupan y la parte que desempeñan los diferentes reinos de la naturaleza dentro del cuerpo logoico, concierne al secreto de la posición, pues todo depende del tipo de fuerza animadora, de la interacción de esa fuerza en la sustancia, del aspecto dual, triple o unificado de la fuerza, y de la manifestación septenaria en la construcción de formas.
+
+Cada átomo es un punto focal de fuerza, fuerza de la sustancia misma, vida o vitalidad del tercer aspecto, la <pin lang="en">528</pin> vida de esa Entidad cósmica que constituye para el Logos el aspecto negativo de la electricidad. <pin lang="es">435</pin>
+
+Cada forma [^9] y conglomerado de átomos son simplemente centros generados por la acción de la fuerza positiva y su interacción con la energía negativa. La vitalidad del segundo aspecto, actuando conjuntamente con el tercero, produce -en tiempo y espacio- esa ilusión o maya que surge momentáneamente y atrae la atención, creando la impresión de que la materia es algo concreto. En realidad no existe nada concreto; <pin lang="en">529</pin> sólo existen distintas <pin lang="es">436</pin> clases de fuerza y el efecto producido en la conciencia mediante su interacción.
+
+:::note Recuerda
+
+La vitalidad del segundo aspecto, actuando conjuntamente con el tercero, produce -en tiempo y espacio- esa ilusión o maya que surge momentáneamente y atrae la atención, creando la impresión de que la materia es algo concreto. En realidad no existe nada concreto; <pin lang="en">529</pin> sólo existen distintas <pin lang="es">436</pin> clases de fuerza y el efecto producido en la conciencia mediante su interacción.
+
+:::
+
+Detrás de toda forma y sustancia (poco conocidas y comprendidas aún) se encuentra un tercer tipo de fuerza, que utiliza los otros dos factores para producir armonía eventual, y en su propio plano constituye la suma total del segundo. Podría llamársele:
+
+1. Vida sintetizadora.
+2. Fuego eléctrico.
+3. Punto de equilibrio.
+4. Unidad o armonía.
+5. Espíritu puro.
+6. Voluntad dinámica.
+7. Existencia.
+
+Fuerza que actúa por medio de la doble manifestación de la fuerza diferenciada, mediante la energía de la materia y la coherencia de las formas, por intermedio de los centros y los puntos de fuerza, siendo la triple manifestación de FOHAT, del cual la última o tercera manifestación es aún desconocida o inconcebible.
+
+Esto me lleva a considerar el hecho citado anteriormente de que la unidad mental sólo posee cuatro de las siete corrientes de fuerza. Cada corriente de fuerza de los átomos permanentes vibra de acuerdo a la nota de un determinado subplano, y sirve como medio para vitalizar la materia del subplano, con la cual se construye cualquier cuerpo alrededor de un átomo permanente. Constituye la fuerza del Hombre celestial cuando anima las células de Su forma y las mantiene en coherencia como una unidad. Se ha de recordar, desde el punto de vista del microcosmos, que el aspecto del Espíritu puro o Fuego eléctrico permanece en este sistema solar como una abstracción. Un hombre puede lograr conciencia grupal: vibrar de acuerdo a la nota del Hombre celestial de cuyo cuerpo es una célula; manifestar con relativa perfección el fuego por fricción y el fuego solar, pero corresponde a un mahamanvántara posterior la revelación <pin lang="en">530</pin> de la verdadera naturaleza del Espíritu. Por lo tanto, en lo que respecta al hombre que actúa en la familia humana, es evidente este hecho y su analogía. Hasta que no se retira de los tres mundos y se convierte en un Maestro de Sabiduría, la verdad sobre estos tres aspectos se halla oculta para él. El mental no es un átomo permanente septenario, sino que responde a cuatro tipos de fuerza y no a toda la gama de vibraciones. Aquí tenemos la razón de la tolerancia. Hasta que el hombre no comience conscientemente a ser controlado por el Ego y empiece a percibir la vibración del átomo manásico permanente, es inútil esperar que responda a ciertos ideales o capte ciertos aspectos de la verdad.
+
+:::note Recuerda
+
+Aquí tenemos la razón de la tolerancia. Hasta que el hombre no comience conscientemente a ser controlado por el Ego y empiece a percibir la vibración del átomo manásico permanente, es inútil esperar que responda a ciertos ideales o capte ciertos aspectos de la verdad.
+
+:::
+
+<p>
+<pin lang="es">437</pin> La unidad mental cubre sus necesidades y no existe un puente entre ésta y el átomo manásico permanente.
+</p>
+
+Dos planos y medio del cuarto reino se dedican a la evolución de cada hombre, quien sólo comienza a trascenderlos cuando se acerca y recorre el Sendero. Desde el ángulo del hombre común en encarnación física, la conciencia egoica, dentro de la periferia causal, es tan abstracta como lo es el Logos cuando lo vemos como el Morador dentro del sistema. Estos dos planos y medio son de especial interés para el Logos porque personifican:
+
+1. Aquello que para Él se halla debajo del umbral de la conciencia.
+2. Aquellos centros desde los cuales el kundalini logoico retorna.
+3. Aquello que no es considerado un principio.
+4. Aquello que gradualmente entra en la oscuración.
+
+No es posible explayarse más sobre este misterio.
+
+### 4. Resumen.
+
+Antes de continuar, sería conveniente resumir algunos de los hechos respecto a las espirillas y al átomo, y luego encarar el tema del cuerpo causal y del hombre, el individuo. <pin lang="en">531</pin>
 
 
 [^1]: D.S. V, 138.
@@ -222,3 +328,41 @@ b. **Los planos y la energía ígnea**. Seria bueno <pin lang="en">519</pin> con
      | Fuego elétrico | Fuego solar | Fuego por fricción |
      | Padre          | Hijo        | Espíritu Santo     |
      | Espíritu       | Conciencia  | Materia            |
+
+[^6]: La Biblia. Pedro, II, 3:10.
+
+[^7]: D. S. I, 136; II, 158; III, 113, 146.
+
+[^8]: D.S. I, 126.
+
+[^9]: Formas.
+
+     1. La Divina ideación pasa de lo abstracto a lo concreto o forma visible.
+        1. Lo objetivo constituye la emanación de lo subjetivo. D. S. II, 86-87.
+        2. Impulso es la energía del espíritu que causa la objetividad. D. S. II, 38-39, 316
+        3. El Logos objetiva un pensamiento que se halla oculto. D. S. III, 39.
+     2. Tres cosas se requieren antes de que cualquier forma de energía pueda objetivarse. D. S. I, 113.
+        1. Privación...Separación. Impulso inicial. Energía. Voluntad.
+        2. Forma.......Cualidad o figura. Naturaleza. Amor.
+        3. Materia.....Esfera objetiva. Actividad inteligente.
+     3. La Vida precede a la forma. D. S. I, 242.
+        1. El Pensador siempre permanece. D. S. III, 39
+        2. La transformación del pensamiento del Logos en Energía, constituye la fuerza de la vida. D. S. V, 168.
+     4. El Espíritu evoluciona a través de, y fuera de la forma. D. S. II, 314.
+        1. El espíritu debe adquirir plena autoconciencia. D. S. I, 219.
+        2. La forma aprisiona al espíritu. D. S. IV, 290.
+        3. La forma constituye el principio limitador. D. S. VI, 194-195.
+        4. El espíritu da forma a todas las envolturas. D. S. II, 305 nota.
+        5. El Espíritu pasa por el ciclo del Ser. D. S. I, 173.
+     5. Los devas son el origen de la forma. D. S. II, 154.
+        1. Existen dos grandes grupos:
+           1. Los Ah_hi son el vehículo del pensamiento divino. D. S. I, 97.
+           2. La Hueste de la Voz. D. S. I, 140. Constituyen la suma total de la sustancia de los cuatro planos superiores y de los tres inferiores.
+     6. Existe una forma que contiene todas las formas. D. S. I, 102, 137. Esta forma es la suma total de todo lo manifestado o de toda la esfera solar o sistema. Contiene:
+        1. Los diez esquemas planetarios y su contenido.
+        2. Todos los cuerpos interplanetarios menores.
+        3. Las evoluciones humanas y dévicas
+        4. Todos los reinos de la naturaleza
+        5. Los Dioses involutivos y evolutivos
+        6. Los átomos de la sustancia en todos los planos.
+     7. Todas las formas son destruídas períodicamente. Léase cuidadosamente La Doctrina Secreta, II, 78-82.
