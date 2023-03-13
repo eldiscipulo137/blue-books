@@ -321,7 +321,18 @@ Todos los átomos permanentes se relacionan. con la materia física y la manifes
 
 Se ha de tener en cuenta que gran parte de lo antedicho <pin lang="en">536</pin> podrá parecer incomprensible, pero lo que aquí se expone se esclarecerá cuando los científicos lleguen a comprender y a regular la fuerza, entonces se verá que hemos tratado con la fuerza positiva de todas las formas negativas que se hallan por encima del reino humano e incluyendo a éste.
 
+## EL LOTO EGOICO. [^12]
 
+Ahora encararemos el tema del cuerpo causal en su propio plano desde el punto de vista del FUEGO. Lo hemos estudiado brevemente desde el ángulo más común y en sentido materialista, <pin lang="es">442</pin> considerándolo como un vehículo de sustancia sutilizada que contiene en sí mismo el séptimo principio de cada una de las dos envolturas inferiores del microcosmos y de la unidad mental. Esta última personifica el primer aspecto en manifestación y es análoga al primer aspecto logoico -el cual, en el sistema solar, no llega a expresarse plenamente.
+
+Quisiera señalar que al estudiar el sistema solar, como la manifestación física de un Logos solar, estamos investigando:
+
+1. El átomo permanente físico de un Logos solar, contenido dentro del cuerpo causal logoico en su propio plano.
+2. Los siete tipos de fuerza, o las siete espirillas logoicas dentro de ese átomo permanente. Si esto llega a ser comprendido <pin lang="en">537</pin> se obtendrá una nueva perspectiva respecto al tema de la vibración del plano.
+3. La estrecha analogía que existe entre los planos y las siete espirillas en el átomo permanente de un Logos solar.
+4. Han sido consideradas muy brevemente estas espirillas y su función, ahora encararemos el tema del Rayo del Ego y del fuego de la mente desde el punto de vista subjetivo, o en términos de fuego.
+
+### 1. Centros o Ruedas de Energía.
 
 
 [^1]: D.S. V, 138.
@@ -428,3 +439,20 @@ Se ha de tener en cuenta que gran parte de lo antedicho <pin lang="en">536</pin>
 [^10]: D. S. I, 155; 159-160.
 
 [^11]: D. S. I, 140.
+
+[^12]: El Loto Egoico. "... las leyes del karma son justas y su clave puede encontrarse cuando se denominen los dieciséis rayos del Ego, para los cuales se imparten dieciséis mántram o palabras, sin embargo, sólo los iniciados pueden pronunciarlas correctamente." Kali Upanishad.
+
+     "El misterio de los dieciseis rayos del Ego será develado cuando la fuerza de las Sagradas Tétradas se fusione con la de los Santos Doce." El Antiguo Comentario.
+
+     El primordial es el Rayo y la emanación directa de los primeros Cuatro Sagrados. D. S. I, 135-136.
+
+     Los Cuatro Sagrados son:
+
+     |                                       |            |                 |                                                                        |
+     | ------------------------------------- | ---------- | --------------- | ---------------------------------------------------------------------- |
+     | Padre                                 | Espíritu   | Existencia      | Unidad                                                                 |
+     | Hijo                                  | Alma       | Amor-Sabiduría. | Dualidad.                                                              |
+     | Madre                                 | Materia    |                 | La Trinidad                                                            |
+     | La manifestación conjunta de los tres | constituye |                 | el sistema solar activo evolucionante, el "círculo no se pasa" logoico |
+
+     Este es el Macrocosmos.
