@@ -228,6 +228,88 @@ Ampliando estas ideas hasta el Logos solar, surgirán probablemente sugestivos i
 
 Muchas ideas surgirán como las anteriores, y por el estudio de las mismas el hombre aprende las leyes de la existencia.
 
+### 2. Las Leyes del Pensamiento.
+
+Existen tres grandes leyes que podríamos considerar como las leyes fundamentales del cosmos, ese sistema mayor (reconocido por todos los astrónomos) del cual formamos parte, y las siete leyes innatas del sistema solar. Deberíamos considerarlas secundarias aunque desde el punto de vista de la humanidad, son las más importantes.
+
+a. **Tres leyes cósmicas**. La primera de ellas es la **Ley de Síntesis**. Para quienes no han desarrollado la facultad búdica les resulta casi imposible comprender el alcance de esta ley. Demuestra que todas las cosas -abstractas y concretas- existen como una sola; rige la forma mental de ese Logos cósmico <pin lang="en">568</pin> en cuya conciencia nuestro sistema y nuestro centro mayor desempeña su parte. Presentimos que nuestro sistema en evolución es una unidad de Su pensamiento que constituye en su totalidad una forma mental, un todo concreto y no un proceso diferenciado. Es la suma total y el centro, la periferia y el círculo de manifestación considerados como una unidad.
+
+La siguiente es la **Ley de Atracción y Repulsión**. La ley describe fundamentalmente la fuerza compulsiva de atracción que <pin lang="es">466</pin> mantiene unido nuestro sistema solar al del Sirio; a nuestros planetas girando alrededor de nuestra unidad central, el Sol; a los sistemas menores de materia atómica y molecular circulando alrededor de un centro en el planeta; a la materia de todos los cuerpos del plano físico, y a la de los cuerpos sutiles coordinados alrededor de su centro microcósmico.
+
+La tercera es la **Ley de Economía** que ajusta todo lo relativo a la evolución material y espiritual del cosmos para el mejor beneficio y el menor desgaste de fuerzas. Hace perfecto a cada átomo de tiempo y período eterno, y “lleva a cabo” todas las cosas hacia adelante, hacia arriba y a su conclusión con el menor esfuerzo posible, exacto equilibrio y necesario grado de vibración. La disparidad de ritmo es realmente una ilusión del tiempo y no existe en el centro cósmico. Debemos meditar sobre esto pues encierra el secreto de la paz; es necesario llegar a comprender el significado de la palabra conclusión, pues describe la próxima expansión de conciencia racial y tiene un significado oculto.
+
+La nomenclatura de estas leyes no explica todo, pues es poco menos que imposible expresar abstracciones mediante el lenguaje, sin perder en el proceso el sentido interno. En estas leyes tenemos nuevamente demostrada la triple idea, rigiendo la analogía, como es de esperarse. <pin lang="en">569</pin>
+
+|                     |                      |               |
+| ------------------- | -------------------- | ------------- |
+| La Ley de Síntesis  | El Aspecto Voluntad  | 1er. Aspecto. |
+| La Ley de Atracción | El Aspecto Amor      | 2do. Aspecto. |
+| La Ley de Economía  | El Aspecto Actividad | 3er. Aspecto. |
+
+b. **Siete leyes del sistema**. Subsidiarias a las tres leyes principales tenemos las siete leyes de nuestro sistema solar. Nuevamente hallamos que la ley de analogía aclara y las tres se convierten en siete como en cualquier parte del esquema logoico. Cada una de estas siete leyes tiene una correlación interesante con los siete planos, ellas son:
+
+1. **La Ley de Vibración**, base de la manifestación que empieza en el primer plano. Es la ley atómica del sistema, así como en cada uno de nuestros planos el primer subplano es el plano atómico.
+2. **La Ley de Cohesión**. La cohesión se evidencia primeramente en el segundo plano; es el primer plano molecular del sistema y el hogar de la Mónada, manifestándose allí coherencia divina.
+3. **La Ley de Desintegración**. En el tercer plano, el quíntuple superhombre llega a desprenderse, finalmente, de todas las envolturas. Un Chohan de la sexta Iniciación descarta las envolturas de grado inferior al vehículo monádico, desde la envoltura átmica hasta la física.
+4. **La Ley de Control Magnético** mantiene su dominio predominante en el plano búdico; cuando se va adquiriendo el control de esta <pin lang="es">467</pin> ley, ocultamente la Mónada adquiere también el control de la personalidad por medio del cuerpo egoico.
+5. **La Ley de Fijación** se demuestra principalmente en el plano mental, y tiene una estrecha relación con manas, el quinto principio. La mente controla y estabiliza, trayendo como resultado la coherencia.
+6. **La Ley del Amor** es la ley del plano astral. Su objetivo es transmutar la naturaleza de deseo, vinculándola con el magnetismo superior del aspecto amor en el plano búdico.
+7. **La Ley de Sacrificio y Muerte** es el factor que controla en el plano físico la destrucción de la forma, a fin de que pueda progresar la vida evolucionante, es uno de los métodos fundamentales de la evolución.
+
+**La Ley intermedia del Karma**. Existe también una ley intermedia, ley sintética del sistema <pin lang="en">570</pin> de Sirio. Dicha ley se denomina en término genérico Ley del Karma y, realmente, describe el efecto que el sistema de Sirio tiene sobre nuestro sistema solar. Cada uno de los dos sistemas, en lo que se refiere a su economía interna, es independiente en tiempo y espacio o, en otras palabras, en su manifestación. Prácticamente no producimos ningún efecto sobre nuestro sistema paterno, siendo la acción refleja tan tenue que es casi insignificante, pero se sienten efectos muy definidos en nuestro sistema por causas que surgen de Sirio. Dichas causas, cuando se experimentan como efectos, las denominamos la Ley del Karma, e iniciaron originalmente el Karma del sistema que, una vez que ha entrado en efecto, constituye lo que se denomina Karma en la literatura ocultista y oriental.
+
+Cada uno de los Señores Lipikas y los Señores del Karma de nuestro sistema están regidos por un Señor más elevado del sistema de Sirio.
+
+Tenemos por consiguiente:
+
+1. Las tres leyes cósmicas de Síntesis, Atracción y Economía,
+2. La Ley siria del Karma.
+3. Las siete leyes del sistema solar.
+
+Como ya se ha dicho, nuestras siete vibraciones principales son las del plano cósmico inferior; allí se halla nuestra morada. Nuestro Logos Mismo, corazón de Su propio sistema, se encuentra en el plano astral cósmico, estando allí polarizado. Así como los entes de la cuarta Jerarquía creadora, la humana, evolucionan empleando cuerpos físicos, aunque están polarizados actualmente en sus vehículos astrales, de la misma manera hemos visto que el sistema solar objetivo forma el cuerpo físico del Logos, pero Su polaridad reside en Su cuerpo astral. Es significativo que en este manvantara mayor, el Logos está por recibir la cuarta Iniciación cósmica. Un dato iluminador radica en la analogía que existe entre este <pin lang="es">468</pin> enunciado y el <pin lang="en">571</pin> desarrollo de la cuarta raza raíz y la actual cuarta ronda o astral. [^2]
+
+El sistema del Logos de Sirio se halla en el plano mental cósmico, en forma sutil e incomprensible para nosotros, nuestro Logos, con Su sistema, forma parte de un Logos aún mayor. Esto no implica una pérdida de identidad, aunque la cuestión sea demasiado abstrusa para poder expresarla más adecuadamente. En esta analogía puede encontrarse la idea fundamental de toda la enseñanza dada sobre el gran Hombre celestial. Todo el concepto de estas leyes está ligado a esta idea. Tenemos las tres leyes de los planos superiores cósmicos, abarcando en la belleza de la síntesis a los sistemas mayor y menor. Luego tenemos la gran Ley de Sirio, la Ley de Karma, en el tercer subplano del plano mental cósmico, que realmente controla a nuestro Logos y Sus acciones, de la misma manera que el ego -en el transcurso de la evolución- controla a la personalidad humana.
+
+Deberíamos recordar que de acuerdo a la Ley de Analogía o Correspondencia, tendríamos en el Cosmos una relación similar a la que existe en el microcosmos entre el ego y la personalidad. Gran parte del contenido de esta sugerencia podría considerarse benéfico. Sin embargo, no debemos llevar la analogía demasiado lejos, pues no hemos evolucionado bastante como para tener conciencia planetaria y mucho menos del sistema, por lo tanto ¿Cómo puede pretenderse llegar a concebir el a b c de la verdad cósmica? Hasta ahora sólo es posible dar datos superficiales, conceptos amplios y generalizaciones. De una cosa podemos estar seguros y es que la identidad siempre permanece.
+
+Permítaseme explicar por medio de una ilustración
+
+Cada uno de nosotros, durante el proceso de evolución, forma parte de uno de los Hombres celestiales, quienes a su vez forman los <pin lang="en">572</pin> siete centros en ese Hombre celestial mayor, el Logos. Sin embargo, aunque estemos sumergidos en el todo, no perdemos nuestra identidad, sino que permanecemos siempre como unidades separadas de conciencia, aunque somos uno con todo lo que vive o es. De la misma manera nuestro Logos no pierde Su identidad, aunque forme parte de la Conciencia del Logos de Sirio. A su vez, el Logos de Sirio es uno de los siete grandes Hombres celestiales, centros a su vez en el cuerpo de AQUEL SOBRE QUIEN NADA PUEDE DECIRSE.
+
+**Las leyes y los planos**. Mientras estudiamos las sietes leyes <pin lang="es">469</pin> del sistema solar, podríamos hacerlo plano por plano, de tres maneras:
+
+1. Estudiar sus efectos tal como se manifiestan en el sendero de involución.
+2. A medida que se manifiestan en el sendero de evolución o de retorno
+3. Considerar las leyes que afectan a los organismos humano y dévico que evolucionan por su intermedio.
+
+Al hacer esto obtendremos gradualmente una idea amplia y general como nuestro sistema (la forma mental del Logos) fue paulatinamente construido, controlado y mantenido unido, y cuán numerosas e intrincadas son las interrelaciones. Se presume que han sido aceptadas ciertas hipótesis fundamentales que constituyen la base de todo lo que voy a decir. En primer lugar, imaginemos que un Constructor o Mente creadora, trabaja a fin de producir algo ordenado y expresarlo por medio de un objetivo visible. El universo objetivo es únicamente el producto de alguna mente subjetiva. Luego sigamos imaginando que el material es el fruto de algún sistema anterior, y es todo lo que ha quedado de algo consumado en el pasado. En consecuencia, tenemos el Constructor y el material, debemos pues aceptar <pin lang="en">573</pin> la proposición de que este Constructor continúe con Su construcción, regido por ciertas leyes definidas que guían la selección del material, controlan la forma que Él erige y le indican el procedimiento a seguir para consumar Su idea. No debemos olvidar que, en la mente del Logos, tres grandes símbolos representan cada uno de Sus tres sistemas, y que el todo existe para él como una forma mental concreta, pues esta aprendiendo a manipular la materia del plano mental cósmico en niveles concretos, de la misma manera que el hombre trabaja con las leyes del pensamiento y en la construcción de formas mentales. Lo único que puede hacerse es presentir los símbolos de los sistemas pasado y presente. Quizás si pudiéramos visualizar una esvástica de color verde brillante de diez brazos en ángulo recto y emanando desde un radiante sol central, podríamos tener una idea de la forma mental que constituyó la base del primer Sistema, el sistema de actividad. La forma mental básica del segundo sistema personifica la esvástica verde de la primera manifestación añadiéndole círculos azules concéntricos y entrelazados; en grupos de tres, unidos por un gran círculo. Por supuesto ambos símbolos se encuentran en dimensiones superiores. Se desconoce aún el símbolo del próximo sistema. Después de captar y aceptar estas tres leyes fundamentales, podemos continuar con la actuación de las leyes del sistema en los siete planos, recordando que <pin lang="es">470</pin> las siete pueden aplicarse en el subplano que numéricamente corresponde a cada plano. Permítaseme ilustrar brevemente:
+
+:::note Recuerda
+
+No debemos olvidar que, en la mente del Logos, tres grandes símbolos representan cada uno de Sus tres sistemas, y que el todo existe para él como una forma mental concreta, pues esta aprendiendo a manipular la materia del plano mental cósmico en niveles concretos, de la misma manera que el hombre trabaja con las leyes del pensamiento y en la construcción de formas mentales.
+
+:::
+
+La cuarta ley de Control Magnético por ejemplo, domina el cuarto subplano de cada plano, en la cuarta ronda y, especialmente, en la cuarta raza raíz. Entonces tendremos la analogía siguiente:
+
+|                |                                                                                                                                     |
+| -------------- | ----------------------------------------------------------------------------------------------------------------------------------- |
+| 4ta. Ley       | Control magnético.                                                                                                                  |
+| 4to. Rayo      | Armonía o belleza.                                                                                                                  |
+| 4to. Plano     | El búdico. <pin lang="en">574</pin>                                                                                                 |
+| 4to. Subplano  | Control magnético búdico.                                                                                                           |
+| 4ta. Ronda     | Magnetismo físico denso que controla la manifestación sexual en el plano físico, inspirado por el deseo astral, reflejo del búdico. |
+| 4ta. Raza raíz | La Atlante, en la cual se manifestaron especialmente las cualidades mencionadas.                                                    |
+
+
+
+
+
+
+
+
 
 
 [^1]: El pecado de los sin Mente. D. S.. III, 187,192. Este pecado tiene que ver con el período de la Separación de los Sexos durante la primitiva tercera raza raíz, la Lemuria. El mismo hecho histórico se insinúa en La Biblia, Génesis VI, 2, 4. "Ellos (los sexos) ya se habían separado antes de que el rayo de la razón divina iluminara la región oscura de sus mentes, hasta entonces adormecidas, y pecaran, es decir, antes de haber cometido el mal inconscientemente, produciendo un efecto antinatural." D. S. IV. 242-248
+
+[^2]: En la actual ronda, la cuarta, el deseo o respuesta al contacto y a la sensación, es llevado a su más plena expresión. En la próxima ronda, la quinta, el quinto principio de la mente o manas, alcanzará su fructificación.
