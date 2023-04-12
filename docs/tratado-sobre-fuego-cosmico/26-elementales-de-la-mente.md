@@ -503,10 +503,72 @@ Quizás la siguiente clasificación resultará interesante si se la considera re
 
 ## II. LOS DEVAS Y ELEMENTALES DE LA MENTE
 
+### 1. EL REGIDOR DEL FUEGO -AGNI.
 
+#### a. Agni y el Logos Solar.
 
+<p><pin lang="es">490</pin> <pin lang="en">601</pin> Hasta ahora hemos estudiado la primera parte de este tratado, que se ha ocupado paralelamente de los fuegos internos macro y microcósmico del sistema. En la segunda parte estudiaremos el fuego de la mente, que conjuntamente con las nueve preguntas de introducción, constituye la parte principal de la obra. En ella hemos considerado la naturaleza y función de la mente y el rayo egoico. Nos hemos ocupado también del aspecto forma del pensamiento, de su manifestación material y de su sustancia.</p>
 
+Pasamos ahora a considerar al Regidor del Fuego, AGNI; a estudiar la vitalidad que energetiza y la Vida que anima; a analizar el Fuego que impulsa, impele y produce la actividad y la organización de todas las formas. La comprensión de esto revelará el hecho de que lo que estamos considerando es “la Vida y las vidas” [^7] [^8] -denominado <pin lang="en">602</pin> en La Doctrina Secreta, Agni, el Señor del Fuego, el Creador, <pin lang="es">491</pin> el Conservador y el Destructor y los cuarenta y nueve fuegos por medio de los cuales se manifiesta-, el fuego solar en si, la esencia del pensamiento, la vida coherente de todas las formas, la conciencia en su aspecto evolucionante o Agni, la totalidad de los Dioses. Él es Vishnu y el Hijo de Su gloria; el fuego de la materia y el fuego de la mente mezclados y fusionados; la inteligencia que palpita en cada átomo y la Mente que anima al sistema; el fuego de la sustancia y la sustancia del fuego; Él es la Llama y lo que la llama destruye.
 
+Quienes estudian La Doctrina Secreta en forma superficial tienden a considerar a Agni solamente como el fuego de la materia sin observar que constituye la totalidad -esto es especialmente así cuando se dan cuenta que Agni es el Señor del plano mental [^9] Agni es la vida que anima al sistema solar, y esa vida es la vida de <pin lang="en">603</pin> Dios, la energía del Logos y la manifestación de la radiación que vela al Sol central. Sólo cuando es conocido como Fohat, la energía de la materia; como Sabiduría, la naturaleza del Ego y sus móviles y como unidad esencial, puede llegarse a una correcta concepción respecto a Su naturaleza o ser. Agni no constituye el Logos solar en el plano mental cósmico, pues la conciencia egoica del Logos es algo más que Su manifestación física, sino la suma total de esa parte del Ego Logoico que se refleja en Su vehículo físico y <pin lang="es">492</pin> es la vida de la Personalidad logoica, con todo lo que incluye esa expresión. Es para el Logos solar, en Su propio plano, lo que la personalidad coherente de un ser humano es para su Ego en el cuerpo causal. Éste es un punto muy importante que ha de ser comprendido, y si se medita sobre él aportará al estudiante mucha iluminación. Su vida fusiona y mezcla la triple naturaleza del Logos cuando está en encarnación física; Su fuerza coherente convierte en una unidad a la triple Personalidad logoica, pero el hombre únicamente puede llegar a conocer Su naturaleza esencial por el estudio del vehículo físico logoico -he aquí la dificultad-; sólo puede llegar a comprenderlo si considera Su emanación síquica tal como puede ser presentida y visualizada, echando una mirada retrospectiva sobre la historia de las razas. La personalidad del hombre revela su naturaleza a medida que transcurre su vida; su cualidad síquica se desarrolla a medida que pasan los años y, cuando desencarna, se habla de él en términos de cualidad buena o mala, egoísta o altruista; el efecto de su “emanación” durante la vida es lo que permanece en las mentes de los hombres. Sólo de esta manera puede expresarse la personalidad logoica; por consiguiente nuestro conocimiento de su naturaleza está limitado debido a nuestra cercana perspectiva y dificultado por el hecho de que somos partícipes de Su vida y partes integrantes de Su manifestación.
+
+Únicamente cuando se comienza a actuar en el plano búdico, y se acrecienta <pin lang="en">604</pin> nuestro conocimiento de la vida espiritual y pasamos definidamente a través del portal de la iniciación al quinto reino, podemos “vivir en el aspecto subjetivo” y apreciar la diferencia que existe entre el cuerpo físico denso y el vital. A medida que nos polarizamos en el cuerpo etérico cósmico y ya no somos prisioneros de una densa envoltura material (pues los tres planos inferiores son sólo el cuerpo denso del Logos) llegamos a comprender plenamente la naturaleza síquica del Logos, porque entonces nos hallamos en el cuerpo que sirve de puente entre los cuerpos físico denso y astral del Logos. Cuando esto sucede comprendemos que la función del Señor Agni, constituye la vida vital del etérico cósmico, la vitalidad de los Hombres celestiales y la actividad de Sus cuerpos.
+
+#### b. Agni y el Plano Mental.
+
+Trataré de dilucidar aquí un punto muy importante al acentuar la estrecha relación entre Agni, la suma total de la fuerza de vida de la triple personalidad logoica, cuando actúa en el plano mental (que concierne íntimamente al hombre) y esa fuerza impulsora o voluntad inteligente manifestante que emana del plano <pin lang="es">493</pin> astral cósmico. Hay una serie de analogías muy interesantes que pueden compararse aquí, pudiendo indicar brevemente las líneas que se han de seguir a este respecto por medio de la clasificación siguiente
+
+|                                          |                                                              |
+| ---------------------------------------- | ------------------------------------------------------------ |
+| El 5to. plano cósmico                    | Plano mental cósmico                                         |
+| El 5to. plano del sistema                | Plano mental                                                 |
+| El 5to. subplano del físico              | Plano gaseoso                                                |
+| El 5to. principio                        | Manas                                                        |
+| La 5ta. Ley                              | Ley de Fijación o Concreción                                 |
+| El 5to. Rayo                             | Conocimiento Concreto                                        |
+| La 5ta. ronda                            | Ronda de realización manásica. <pin lang="en">605</pin>      |
+| La 5ta. raza raíz                        | Aria. Desarrollo mental.                                     |
+| La 5ta. subraza                          | Teutónica y Anglosajona. Mente concreta.                     |
+| El 5to. grupo de Devas                   | Devas del fuego del plano mental.                            |
+| El 5to. Manvantara                       | Tres quintas partes de los Manasaputras realizan su objetivo |
+| El 5to. Esquema                          | El Señor de ciencia concreta.                                |
+| El 5to. Mahamanvantara (o sistema solar) | El Logos Solar recibe su Quinta Iniciación                   |
+| La 5ta. cadena                           | Evolución principal –devas del fuego                         |
+| La 5ta. Jerarquía                        | Los Constructores mayores.                                   |
+| Las vibraciones de quinto orden          | Manásicas                                                    |
+
+Por lo tanto se evidenciará que cuando es considerado el sistema en orden inverso, contando el plano físico como el primero (como sucede siempre que se lo considera como el campo de evolución estrictamente humana), el tercer plano -el mental- entra el mismo grupo de analogías, por lo tanto se ha de considerar a Agni el factor energetizante del cuerpo físico denso del Logos el fuego de Su manifestación más concreta, vitalizando, calentando y manteniendo todo unido.
+
+En este mahamanvantara existen tres jerarquías de gran importancia, la cuarta o Jerarquía creadora humana y las jerarquías dévicas quinta y sexta.
+
+La cuarta Jerarquía en el esquema mayor es literalmente la novena, pues cinco jerarquías ya han desaparecido y se las considera como puras abstracciones. En este sistema la concreción y fusión de la forma y la energía en un todo coherente, concierne a nosotros. En la novena, décima y undécima Jerarquías reside la clave de la naturaleza de Agni, el Señor del fuego, la suma total de la vitalidad del sistema. Quien comprenda el significado de estos números y su relación recíproca como la triple división de una unidad en tiempo y espacio habrá descubierto <pin lang="en">606</pin> una de las llaves que abrirá una puerta herméticamente cerrada hasta ahora. Los números de la realización, la potencialidad llevada a una plena actividad y la capacidad innata se demuestran mediante una <pin lang="es">494</pin> <pin lang="es">495</pin> fructificación perfecta. Toda potencialidad reside en el poder vitalizador y energetizador de Agni y en su capacidad para estimular, pues es la vida misma y la fuerza impulsora de la evolución, del desarrollo psíquico y de la conciencia, lo cual se halla oculto en estos guarismos y no en la evolución de la sustancia que sólo es el resultado causas síquicas. Los tres números constituyen la base de los cálculos cíclicos concernientes a los ciclos egoicos y a los ciclos de Vishnu, diferenciándose de los ciclos que tienen que ver con el tercer aspecto. Los estudiantes de ocultismo no han captado suficientemente el hecho de que la objetividad es el resultado inevitable de una vida interna subjetiva y consciente. Cuando esto sea mejor comprendido, los cuerpos en el plano físico por ejemplo, serán purificados, desarrollados y embellecidos por medio de una dedicación científica a fin de desarrollar la psiquis, el Ego y estimular la vibración egoica. Se tratará la causa y no el efecto, a ello se debe la acrecentada tendencia de la familia humana a dedicarse al estudio de la psicología y aunque recién se está investigando el cuerpo kama-manásico, no se ha llegado todavía hasta la conciencia egoica. Los Señores lunares han tenido su oportunidad; ahora Agni, como Señor solar de vida y energía, asumirá Su debida importancia en la vida humana.
+
+:::note Recuerda
+
+Los estudiantes de ocultismo no han captado suficientemente el hecho de que la objetividad es el resultado inevitable de una vida interna subjetiva y consciente.
+
+:::
+
+#### V CLASIFICACIÓN - AGNI-SEÑOR DEL FUEGO
+
+| Aspecto                  | Fuego              | Resultado               | Manifestación Subjetiva       | Origen de la Energía   | Manifestación Objetiva                                                     |
+| ------------------------ | ------------------ | ----------------------- | ----------------------------- | ---------------------- | -------------------------------------------------------------------------- |
+| Primero,Voluntad         | Fuego Eléctrico    | Actividad del Espíritu  | La Vida Una                   | Sol central espiritual | Sistema solar (etérico y denso)                                            |
+|                          |                    |                         | Unidad                        |                        |                                                                            |
+|                          |                    |                         | Espiritual                    |                        |                                                                            |
+|                          |                    |                         | Dinámica                      |                        |                                                                            |
+|                          |                    |                         | Coherencia                    |                        |                                                                            |
+|                          |                    |                         | Síntesis                      |                        |                                                                            |
+| Segundo, Amor- Sabiduría | Fuego Solar        | Actividad de Conciencia | Los siete Hombres celestiales | El Corazón del Sol     | Los siete Rayos manifestándose a través de los siete esquemas planetarios. |
+|                          |                    | Egoísmo                 | Los siete Rayos               |                        |                                                                            |
+|                          |                    | Vitalidad               | Los siete Tipos de Mente      |                        |                                                                            |
+|                          |                    | Magnetismo              |                               |                        |                                                                            |
+| Tercero, Actividad       | Fuego por Fricción | Actividad de la Materia | Los siete fuegos              | El Sol físico          | Los siete planos                                                           |
+|                          |                    | Vitalidad Atómica       | El akasha                     |                        |                                                                            |
+|                          |                    | Energía                 |                               |                        |                                                                            |
+
+#### c. Agni y los Tres Fuegos.
 
 
 
@@ -524,3 +586,23 @@ Quizás la siguiente clasificación resultará interesante si se la considera re
 [^5]: Véase pág. 69.
 
 [^6]: ¿Por qué consideramos este tema de los devas del sistema intermedio(así como podríamos considerar aquellos que están vinculados con los actuales budi y kama-manas) cuando nos ocupamos de las formas mentales? Por dos razones: La primera consiste en que todo lo que está dentro del sistema solar sólo es sustancia energetizada de los planos mental cósmico y astral, que ha sido empleada para construir formas mediante el poder de la ley de la electricidad; todo lo que se percibe sólo son formas animadas por ideas. La otra reside en que conociendo el proceso creador del sistema, el hombre oportunamente aprende a convertirse en un creador. Podríamos ilustrar esto diciendo que una de las principales funciones del movimiento teosófico, en sus diferentes ramas, consiste en construir una forma que a su debido tiempo podrá ser animada por la idea de Fraternidad.
+
+[^7]: La Vida y las Vidas. H.P.B. dice en La Doctrina Secreta: "El ocultismo no acepta nada inorgánico en el cosmos. La expresión empleada por la ciencia "sustancia inorgánica" significa simplemente que la vida latente que dormita en las moléculas de la llamada "materia inerte" es irreconocible. Todo es Vida y cada átomo, aunque sea de polvo mineral, es una Vida que está más allá de nuestra comprensión y percepción... Por lo tanto, la vida existe en todas partes del universo. . . allí donde existe un átomo de materia, una partícula o molécula, incluso en su condición más gaseosa, existe vida, aunque latente e inconsciente." D. S. I, 265, 274-275.
+
+[^8]: La Vida y las Vidas.
+    1. Todo vive y es consciente, pero toda vida y conciencia no es similar a la humana. D. S. I, 105.
+       1. La Vida es la única forma de existencia que se manifiesta en la materia.
+       2. La materia es el vehículo para la manifestación del alma
+       3. El alma es el vehículo para la manifestación del Espíritu.
+    2. Por lo tanto, colaboran el primero, el segundo y el tercer Logos. Ilustración: La Vida del 3er. Logos, anima a los átomos de materia. La Vida del 2do. Logos, anima a las formas o conjunto de átomos. La Vida del 1er. Logos, anima a las formas compuestas.
+    3. La Vida Una sintetiza esta triplicidad.
+
+    Apliquemos esto al Macro y al Microcosmos.
+
+    Fohat, Prana, Electricidad, Flúido Magnético, son términos empleados para designar esta vida vitalizadora.
+
+    El Microcosmos está animado y vitalizado por el prana, y sus actividades están controladas por el Pensador inmanente.
+
+    El Macrocosmos está animado y vitalizado por Fohat; sus actividades están controladas por esa Inteligencia que le da forma, denominada Logos.
+
+[^9]: ". . .Agni, es el origen de todo aquello que da luz y calor. Existen diferentes especies de Agni (fuego); pero "cualquier otro fuego que pueda existir, solo es ramificación de Agni, el inmortal" (Rig Veda, L. 59,I). La división primaria de Agni es triple. "Agni", se dice en Vishnu Purana, "tiene tres hijos, Suchi, Pavamana y Pavaka" (I,x). Suchi significa Saura o fuego solar; Pavamana significa Nirmathana, fuego producido por fricción, como cuando se frotan dos pedazos de madera, y Pavaka significa el vaidyuta o fuego del firmamento, por ejemplo el fuego de rayo o fuego eléctrico. Debo advertirles que estos tres fuegos se originan en las tres deidades principales de las cuales se habla en el Veda, es decir, Surya, el sol, que representa el fuego solar; Indra (y a veces Vayu), la deidad que produce la lluvia, y representa el fuego del firmamento y Agni, que representa el fuego terrestre, el fuego producido por la fricción (Nirukta, VII, 4); se ha de recordar que los tres son meras ramificaciones de un solo Agni; que a su vez es una emanación del Supremo Uno; como verá el lector, por la descripción alegórica dada en el Vishnu Purana, Agni es un hijo de Brahama nacido de la boca. Ahora bien, cada una de las tres formas de Agni tiene numerosas subdivisiones. El fuego solar se caracteriza por varias divisiones de acuerdo a la naturaleza de los rayos emitidos por la gran luminaria." The Theosophist, T. VII, 196.
