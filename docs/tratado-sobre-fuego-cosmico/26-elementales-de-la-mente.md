@@ -570,6 +570,70 @@ Los estudiantes de ocultismo no han captado suficientemente el hecho de que la o
 
 #### c. Agni y los Tres Fuegos.
 
+Al estudiar la manifestación de Agni en el sistema solar debe recordarse que estamos considerando su naturaleza esencial como fuego activo. Hemos visto que constituye la triple personalidad logoica, el triple Logos en sentido subjetivo, siendo el aspecto forma solo subsidiario. Quizá una clasificación aclararía este punto. <pin lang="en">607</pin>
+
+<p><pin lang="en">608</pin> Cada uno de estos tres aspectos del Fuego Uno, manifestados como Fuego Creador, Fuego Preservador y Fuego Destructor, será estudiado como fenómeno eléctrico y bajo los aspectos de luz, llama y calor; electricidad, radiación y movimiento; voluntad, deseo y acción. Únicamente de esta manera se alcanzará a comprender la verdadera naturaleza de Agni. Como personalidad logoica se manifiesta a través de tres envolturas que forman una unidad; sólo así se percibirá por qué en esta etapa de evolución el aspecto materia es el más importante.</p>
+
+El sistema constituye la envoltura física del Logos y, por lo tanto, la más fácilmente reconocible, pues estando aún el Logos centrado en Sus envolturas cósmicas, sólo puede revelarse por su Intermedio.
+
+El hombre solamente llegará a comprender este misterio de la electricidad cuando se estudie a sí mismo y sepa que es un triple fuego que se manifiesta en varios aspectos. <pin lang="es">496</pin>
+
+##### EL HOMBRE, UN FUEGO
+
+|                          |                    |                           |                           |
+| ------------------------ | ------------------ | ------------------------- | ------------------------- |
+| Fuego monádico           | Fuego eléctrico    | Voluntad del Espíritu     | El Sol central espiritual |
+| Fuego egoico             | Fuego Solar        | Conciencia Amor-Sabiduría | El Corazón del Sol        |
+| Fuego de la personalidad | Fuego por fricción | Hombre físico             | Sol físico                |
+
+Cada uno de estos fuegos puede ser estudiado en forma triple y bajo tres aspectos.
+
+##### LA MÓNADA
+
+|                     |                    |       |                                                   |
+| ------------------- | ------------------ | ----- | ------------------------------------------------- |
+| Aspecto voluntad    | Fuego eléctrico    | Llama | Voluntad espiritual.                              |
+| Amor-Sabiduría      | Fuego solar        | Luz   | Amor espiritual.                                  |
+| Inteligencia activa | Fuego por fricción | Calor | Inteligencia espiritual. <pin lang="en">609</pin> |
+
+##### EL EGO
+
+|                     |       |                    |                                 |                      |
+| ------------------- | ----- | ------------------ | ------------------------------- | -------------------- |
+| Voluntad            | Atma  | Fuego eléctrico    | La chispa. La Joya en el Loto.  | Voluntad consciente  |
+| Amor-Sabiduría      | Budi  | Fuego Solar        | Los Rayos. Loto de doce pétalos | Amor consciente      |
+| Inteligencia activa | Manas | Fuego por fricción | Sustancia. Átomos permanentes   | Actividad consciente |
+
+##### LA PERSONALIDAD
+
+|           |               |                    |                |             |
+| --------- | ------------- | ------------------ | -------------- | ----------- |
+| Voluntad  | Cuerpo mental | Fuego eléctrico    | Mente inferior | Pensamiento |
+| Amor      | Cuerpo astral | Fuego solar        | Kama           | Deseo       |
+| Actividad | Cuerpo físico | Fuego por fricción | Prana          | Actividad   |
+
+Trato aquí de poner de relieve el hecho de que en esta triple manifestación existe un nónuple desarrollo. Debe tenerse en cuenta siempre que el número siete rige la evolución de la sustancia y la construcción de la forma en el sistema solar, y el nueve el desarrollo de la conciencia dentro de esa forma de la psiquis. Esto se ve en el despliegue séptuple de la vida logoica por intermedio del esquema planetario y la naturaleza nónuple del desarrollo egoico.
+
+Si el estudiante sustituye las palabras Mónada, Ego y personalidad, por los tres aspectos del Logos y recuerda que todo lo que conoce hasta ahora es lo más inferior de las manifestaciones logoicas -la personalidad-, será evidente por qué tantas cosas <pin lang="es">497</pin> permanecen en el misterio hasta para los iniciados de grados elevados, pues ni siquiera el perfecto Dhyan Chohan puede penetrar el enigma del Logos fuera de Su sistema. [^10] Ellos <pin lang="en">610</pin> pueden conocer mucho respecto a Agni, el Señor del Fuego, pero hasta que no se pongan en contacto con aquello de lo cual Él constituye una emanación, reflejo o rayo, existe, un límite para lo que puede ser conocido.
+
+Agni es Fohat, la triple Energía (emanada del Ego logoico) que genera al sistema solar, el vehículo físico del Logos, y anima a los átomos de la sustancia. Constituye la base del proceso evolutivo o la causa del desarrollo síquico del Logos, y es también esa cualidad que finalmente produce la síntesis divina, mediante la cual la forma se aproxima al requisito subjetivo y, después de ser inconscientemente dirigida y manipulada, es finalmente descartada.
+
+Tal es la meta para el Logos como para el hombre; señala la liberación final para un ser humano, un Hombre celestial o un Logos solar.
+
+Podemos dividir el proceso en tres períodos:
+
+Primero. El período en que el fuego de la materia (el calor de la madre) oculta, nutre y da nacimiento al Ego infantil. Éste es el período de la vida puramente personal, cuando el tercer aspecto domina y el hombre forma parte del velo de la ilusión.
+
+Segundo. El período en que el Ego o vida subjetiva dentro de la forma, pasa por ciertas etapas de desarrollo y adquiere cada vez mayor plenitud de conciencia. Es el periodo del desarrollo egoico, producido por la fusión y mezcla graduales de los dos fuegos. Constituye la vida de servicio y el sendero.
+
+Tercero. El período en que la conciencia egoica misma es reemplazada por la realización espiritual y el fuego del espíritu se fusiona con los otros dos.
+
+Al principio la personalidad actúa como madre o aspecto materia, del germen de la vida interna. Luego <pin lang="en">611</pin> el Ego manifiesta su vida dentro de la vida personal y produce un fulgor que “se acrecienta cada vez más hasta el día perfecto”. [^11] En ese perfecto día de revelación se verá lo que el hombre es en esencia, y el Espíritu inmanente se revelará. Esto podría estudiarse desde el punto de vista cristiano; Pablo no hacía más que enunciar una verdad oculta cuando hablaba de hechos referentes al nacimiento del Cristo dentro del corazón y al crecimiento de la vida superior a expensas de <pin lang="es">498</pin> la inferior. También podría ser estudiado en líneas ocultistas no místicas, en el reconocimiento (por parte de la ciencia) de la vitalización de los átomos permanentes (los centros de fuerza de las envolturas o sustancias), en el desenvolvimiento del loto egoico y el despertar de sus pétalos, y en la revelación final de la joya en el loto.
+
+Todo lo que puede decirse del hombre, puede repetirse también del Logos en una escala inconcebiblemente mayor. A medida que el hombre descubre las leyes de sus envolturas materiales -las leyes de la sustancia- va cerciorándose de la naturaleza de los fuegos del hombre externo o Fohat, cuando vitaliza al vehículo logoico; los fuegos de sus envolturas como también el fuego de la materia son aspectos de Agni. Cuando se cerciora de la naturaleza de la conciencia y de las leyes del desarrollo síquico, estudia la naturaleza de la vitalidad del hombre subjetivo y las leyes del ser Consciente, estudiando así a Agni cuando Se manifiesta como Luz e Irradiación fría, brillando a través del vehículo. Más tarde (pues no ha llegado aún el momento) cuando llegue a comprender la naturaleza de su Mónada, la vida espiritual o esencial, que desarrolla la conciencia por medio de las envolturas, descubrirá la naturaleza de Agni cuando Se manifiesta como electricidad pura. Sin embargo, aunque esto no es posible todavía, lo dicho respecto a las líneas de investigación que se han de seguir y la comprensión de lo que eventualmente se habrá <pin lang="en">612</pin> de realizar, puede inducir a los hombres a estudiar lo real y lo verdadero.
+
+## 2. LOS DEVAS DEL FUEGO - LOS GRANDES CONSTRUCTORES.
+
 
 
 
@@ -606,3 +670,7 @@ Los estudiantes de ocultismo no han captado suficientemente el hecho de que la o
     El Macrocosmos está animado y vitalizado por Fohat; sus actividades están controladas por esa Inteligencia que le da forma, denominada Logos.
 
 [^9]: ". . .Agni, es el origen de todo aquello que da luz y calor. Existen diferentes especies de Agni (fuego); pero "cualquier otro fuego que pueda existir, solo es ramificación de Agni, el inmortal" (Rig Veda, L. 59,I). La división primaria de Agni es triple. "Agni", se dice en Vishnu Purana, "tiene tres hijos, Suchi, Pavamana y Pavaka" (I,x). Suchi significa Saura o fuego solar; Pavamana significa Nirmathana, fuego producido por fricción, como cuando se frotan dos pedazos de madera, y Pavaka significa el vaidyuta o fuego del firmamento, por ejemplo el fuego de rayo o fuego eléctrico. Debo advertirles que estos tres fuegos se originan en las tres deidades principales de las cuales se habla en el Veda, es decir, Surya, el sol, que representa el fuego solar; Indra (y a veces Vayu), la deidad que produce la lluvia, y representa el fuego del firmamento y Agni, que representa el fuego terrestre, el fuego producido por la fricción (Nirukta, VII, 4); se ha de recordar que los tres son meras ramificaciones de un solo Agni; que a su vez es una emanación del Supremo Uno; como verá el lector, por la descripción alegórica dada en el Vishnu Purana, Agni es un hijo de Brahama nacido de la boca. Ahora bien, cada una de las tres formas de Agni tiene numerosas subdivisiones. El fuego solar se caracteriza por varias divisiones de acuerdo a la naturaleza de los rayos emitidos por la gran luminaria." The Theosophist, T. VII, 196.
+
+[^10]: H.P.B. en La Doctrina Secreta se refiere a "... la solución del enigma... ante el cual aún el Dhyan Chohan más elevado debe postrarse en silencio e ignorancia -El Misterio Inefable de aquello denominado por la vedanta, Parabrahman". D. S. II, 41.
+
+[^11]: La Biblia. Proverbios IV, 18.
