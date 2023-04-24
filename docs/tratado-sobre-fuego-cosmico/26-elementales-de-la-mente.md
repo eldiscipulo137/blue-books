@@ -634,6 +634,62 @@ Todo lo que puede decirse del hombre, puede repetirse también del Logos en una 
 
 ## 2. LOS DEVAS DEL FUEGO - LOS GRANDES CONSTRUCTORES.
 
+He dividido los grupos de devas y elementales en Constructores evolutivos e involutivos -aquellos que en sí mismos son fuerza positiva y los que son fuerza negativa, los trabajadores conscientes y los inconscientes. Es absolutamente esencial que los estudiantes tengan en cuenta aquí que estamos estudiando el misterio de la electricidad; por consiguiente, deben recordar los hechos siguientes:
+
+### a. Observaciones de Introducción.
+
+El misterio de la electricidad. Los Constructores mayores constituyen el aspecto positivo de la sustancia o de los fenómenos eléctricos, mientras que los constructores menores el aspecto negativo.
+
+Dos tipos de fuerza están representados en las actividades de estos dos grupos, y su interacción e intercambio produce la Luz o el sistema solar manifestado.
+
+En su totalidad constituyen toda sustancia, la forma activa <pin lang="es">499</pin> inteligente construida con el propósito de proporcionar una morada para la vida central subjetiva.
+
+Son también la suma total de los Pitris [^12] o Padres del género humano considerado como la raza misma, el cuarto reino de la naturaleza, los Hombres celestiales en manifestación física. Esto es algo muy importante que debe recalcarse. Estas actividades dévicas en relación con la autoconciencia (característica distintiva de la humanidad) pueden ser mejor estudiadas considerando <pin lang="en">613</pin> en forma general los grupos, razas y vida del esquema, manifestación de uno de los Hombres celestiales. Al comparar el trabajo de los devas con su vida individual, el estudiante puede llegar a confundirse por hacer una ajustada yuxtaposición.
+
+Constructores mayores son los Pitris solares, mientras que constructores menores son los antepasados lunares. Explicaré el significado oculto de la palabra “antepasados”, tal como se emplea en esoterismo. Literalmente significa el impulso inicial de la vida. Esa actividad subjetiva que produce objetividad y concierne a esos impulsos emanantes que vienen de cualquier centro positivo de fuerza e impelen al aspecto negativo a entrar en la línea de esa fuerza, produciendo así algún tipo de forma. La palabra “antepasado” se emplea en conexión con ambos aspectos.
+
+El Logos solar es el impulso inicial o Padre del Hijo en encarnación física, un sistema solar. Es la suma total de los Pitris en el proceso de proporcionar una forma. La unión del Padre (fuerza positiva) y de la Madre (fuerza negativa) produce esa llamarada central denominada forma, cuerpo de manifestación del Hijo. Un Hombre celestial tiene una posición análoga en relación con un esquema planetario. Es el germen central de vida o fuerza positiva que, a su debido tiempo, se manifiesta como un esquema planetario o una encarnación del Logos planetario. Del mismo modo, el hombre constituye la vida o energía positiva que, por medio de la acción sobre la fuerza negativa, crea cuerpos de manifestación mediante los cuales puede brillar o irradiar. [^13] [^14] [^15] <pin lang="es">500</pin>
+
+Los Constructores [^16] menores constituyen el aspecto negativo y son lanzados a la acción en formación grupal debido a que <pin lang="en">614</pin> la fuerza positiva actúa sobre ellos, o por la acción de las Mentes conscientes del sistema. En la etapa actual de evolución -durante el período de Luz- es difícil para el ser humano (hasta que haya alcanzado la conciencia del Ego) distinguir los diversos tipos de fuerza y trabajar conscientemente con estos aspectos duales. Un Adepto de la Luz emplea fuerza para trabajar en la sustancia, considerada como aquello que es negativo; por lo tanto, debe moverse esotéricamente y puede hacerlo porque ha realizado la unidad (en los tres mundos de Su esfuerzo) o alcanzado el punto de balance o equilibrio y, por lo tanto, puede balancear fuerzas y <pin lang="es">501</pin> tratar con energías positivas y negativas, según convenga para beneficio del plan evolutivo. El Hermano de la Oscuridad, sabiendo que es en esencia una fuerza positiva, trabaja con sustancia negativa o con los Constructores menores para llevar a cabo sus propios <pin lang="en">615</pin> objetivos, siendo incitado a ello por motivos egoístas. Los Hermanos de la Luz colaboran con el aspecto positivo de todas las formas -los devas constructores de tendencia evolutiva- a fin de realizar los propósitos del Hombre celestial, summum de la manifestación física planetaria.
+
+Por consiguiente, se evidencia cuán necesario es comprender funciones de los devas de todos los grados. Sin embargo, es también importante que el hombre se abstenga de manipular estas fuerzas de la naturaleza hasta que se “conozca” a si mismo y a sus propios poderes y haya desarrollado plenamente la conciencia del ego; solo entonces puede, sin riesgo y en forma sabia e inteligente, colaborar en el plan. Por ahora, para el hombre medio y aún para el hombre avanzado, resulta peligroso intentarlo e imposible de realizar.
+
+Agregaré algunas afirmaciones más sobre las cuales el estudiante puede meditar, antes de pasar a estudiar específicamente los grupos principales de devas constructores que más íntimamente conciernen al hombre en los tres planos de los tres mundos.
+
+Los devas constructores [^17] son los Ah-hi o Mente Universal. <pin lang="es">502</pin> Contienen en su conciencia al plan logoico <pin lang="en">616</pin> y poseen el poder inherente para desarrollarlo en tiempo y espacio, constituyendo las fuerzas conscientes de la evolución.
+
+No sólo personifican el Pensamiento divino, sino que son aquello a través de lo cual se manifiesta, siendo también su actividad actuante. Esencialmente son movimiento. Los constructores menores son especialmente la forma material que ha sido activada, y en su legión constituyen la sustancia de la materia (considerando como sustancia lo que fundamenta la materia).
+
+Producen la concreción y dan forma a lo abstracto. Los términos dévicos “rupa” y “arupa” son relativos, pues las vidas y niveles amorfos existen únicamente desde el punto de vista del hombre en los tres mundos; las vidas amorfas funcionan en, y a través del cuerpo etérico del Logos y están formadas por materia de los cuatro planos superiores del sistema. Desde este punto de vista el plano mental nos proporciona una consideración interesante; sus tres subplanos superiores son positivos y centralizan la fuerza positiva del plano. Dicha centralización afecta a la sustancia negativa de los cuatro planos inferiores y además da lugar a:
+
+1. La formación de centros de fuerza en los niveles causales, siendo estos centros grupos egoicos en sus diversas divisiones.
+2. La concreción de la sustancia o la construcción del cuerpo físico denso del Logos.
+
+En el plano físico del sistema solar puede verse un proceso análogo, que tiene lugar en lo que respecta al cuerpo <pin lang="en">617</pin> físico del hombre o su manifestación concreta. En su caso, el cuarto subplano es el punto focal de fuerza positiva. En ese plano se hallan situados los centros etéricos del hombre que tienen, en el proceso evolutivo y en el trabajo de dirigir la fuerza, relación con su cuerpo físico en forma similar a la de los grupos de Egos en el plano mental con el cuerpo físico denso del Logos. Ésta es una profunda indicación esotérica.
+
+En las palabras “prana y cuerpo etérico” (o fuerza y forma vital) tenemos la clave del misterio de los Pitris solares y lunares y un indicio del lugar que ocupa el cuerpo físico en el esquema de las cosas.
+
+|       |                      |
+| ----- | -------------------- |
+| Rupa  | con forma o cuerpo.  |
+| Arupa | amorfo o sin cuerpo. |
+
+Hablando en general, el término rupa se aplica a todas las formas en los tres mundos mientras que el término arupa se aplica a todas las formas por medio de las cuales las existencias se manifiestan en los cuatro niveles del sistema solar y los niveles abstractos del plano mental. [^18]
+
+<p><pin lang="es">503</pin> Los Pitris y devas solares, con todo lo que incluye el término, expresan sus fuerza más adecuadamente a través del hombre. Son el origen de su autoconciencia, y su acción sobre el aspecto negativo produce al Ego humano (en gran escala, considerado en su totalidad fuerza cósmica); su acción sobre el aspecto madre o negativo produce, en los niveles cósmicos, esa Unidad Autoconsciente, un Logos solar, que actúa por medio de Su vehículo físico. Desde el punto de vista cristiano, los grandes Constructores constituyen el Espíritu Santo o esa fuerza superior que fecunda la materia, mientras que los Constructores negativos o inferiores, corresponden a la Virgen María.</p>
+
+Los Pitris lunares y constructores menores, desde el punto de vista del sistema, se expresan plenamente en el reino animal. Cuando produjeron al hombre animal como impulso inicial, desempeñaron su función primordial, y (en escala menor y en conexión con uno solo de los Hombres celestiales) así como la Luna es un mundo moribundo y decadente, también en escala comparable al sistema y por lo tanto abarcando un vasto período de tiempo, el trabajo de los Pitris lunares está llegando lentamente a su fin, a medida que el poder ejercido por el tercer reino o animal, sobre el humano, está siendo <pin lang="en">618</pin> reemplazado por el poder espiritual; desaparecerá, en sentido esotérico, la analogía que existe en el sistema de la actividad pitrica lunar.
+
+Los Pitris lunares [^18] [^19], los constructores de los cuerpos lunares de los hombres y su analogía en los demás reinos de la naturaleza, constituyen la suma total del cuerpo físico denso del Logos o la sustancia de los planos mental, astral y físico (los cuerpos gaseoso, líquido y denso que forman una unidad: Su vehículo físico, considerado aparte del etérico). Son el producto de un sistema solar anterior, sus actividades datan de entonces. Dicho sistema representa para el actual lo que la cadena lunar representa <pin lang="es">504</pin> para el nuestro. Por eso el cuerpo físico no es considerado un principio (tanto para el hombre como para el Logos solar); de allí que la naturaleza inferior es considerada maligna y que el hombre debe “destruir su cuerpo lunar”. [^20] El mal es aquello que pudiendo ser dominado y subyugado, se le permite regir. Lo positivo puede siempre manipular lo negativo. Cuando se sigue la línea negativa, la de menor resistencia que conduce a aquello que no es un principio, entonces tenemos el mal.
+
+En el primer sistema solar fue perfeccionado el aspecto negativo de la sustancia, el aspecto Madre o materia. Los Pitris inferiores dominaban. En el actual sistema, la actividad de la fuerza reside en manos de los Pitris solares o devas mayores. Al final del mahamavantara, ellos habrán construido, de acuerdo <pin lang="en">619</pin> al plan, una envoltura o vehículo perfecto para que se exprese el Pensamiento divino, lo cual se realizará manipulando la sustancia negativa; utilizarán el calor de la madre para nutrir el germen del Pensamiento divino y llevarlo a la fructificación. Cuando el germen ha alcanzado la madurez, entonces el aspecto Madre ya no tiene objeto y el Hombre, esotéricamente, queda libre o se libera. Esta idea se lleva a cabo en toda la manifestación; los reinos de la naturaleza o de la forma (cualquiera sea) nutren el germen de aquello que constituye el próximo paso del proceso evolutivo, considerados como el aspecto Madre. Este aspecto es eventualmente descartado y sustituido. Por ejemplo, el tercer reino o reino animal, en las primeras etapas nutre y preserva el germen de lo que algún día será un hombre; la personalidad custodia aquello que algún día se desarrollará como hombre espiritual.
+
+De esta manera, será evidente para los estudiantes, que el Hombre celestial, considerado como una Deidad solar, una Entidad autoconsciente, actúa con Su aspecto negativo por intermedio de la fuerza positiva, desde los niveles etéricos logoicos sobre los tres aspectos del físico denso logoico, llevando así a la madurez a los átomos y células de Su cuerpo, nutriendo el germen de la autoconciencia y aventando la llama hasta que cada ente se hace totalmente consciente del grupo y se da cuenta del lugar que le corresponde dentro del cuerpo colectivo. Cada ser humano, funcionando en los tres mundos, ejerce una acción similar sobre las células conscientes de sus cuerpos hasta que cada átomo logra eventualmente su meta. El Hombre celestial actúa necesariamente por intermedio de grupos egoicos, derramando fuerza positiva sobre ellos hasta que dejan de ser pasivos y negativos y pasan a ser potentes <pin lang="es">505</pin> y activos. El hombre actúa análogamente sobre sus cuerpos, a través de sus centros, y tiene cierta responsabilidad que, respecto a las vidas inferiores, por ley kármica deberá cargar. Esta es la base del proceso evolutivo.
+
+### a. Las Funciones de los Devas.
+
+
+
 
 
 
@@ -674,3 +730,65 @@ Todo lo que puede decirse del hombre, puede repetirse también del Logos en una 
 [^10]: H.P.B. en La Doctrina Secreta se refiere a "... la solución del enigma... ante el cual aún el Dhyan Chohan más elevado debe postrarse en silencio e ignorancia -El Misterio Inefable de aquello denominado por la vedanta, Parabrahman". D. S. II, 41.
 
 [^11]: La Biblia. Proverbios IV, 18.
+
+[^12]: Los Pitris Lunares. "Los grandes Chohanes pidieron a los Señores lunares, de los cuerpos aéreos: "Produzcan Hombres", "hombres de vuestra naturaleza". Denles sus formas internamente. Ella (Madre Tierra) construirá las envolturas externas (cuerpos externos). Serán machos hembras, también Señores de la Llama... Cada uno fue a su tierra asignada: Siete de ellos, cada cual a en su parcela. Los Señores de la Llama se quedaron detrás. No quisieron ir. No quisieron crear." Estanza III, 12-13; D. S. III, 85, 87.
+
+[^13]: Los Pitris lunares crearon al hombre físico. D. S. I, 134, 204.
+
+    Existen en tres grandes categorías:
+
+    1. Los más evolucionados. Constituyen en la 1er. ronda la suma total de los tres reinos y adquieren una forma humana. D. S. I, 209. En las 2da. y 3ra. rondas constituyen la suma total de lo que oportunamente será humano. En la 4ta. ronda, constituyen, en su comienzo, los cuerpos etéricos de nuestra humanidad terrestre
+    2. Aquellos cuyos cuerpos son ocupados por los Ángeles solares D. S. I, 209.
+    3. Los tres reinos conocidos en la actualidad.
+
+[^14]: La Tierra da al hombre su cuerpo; los Dioses le proporcionan sus cinco principios internos... El Espíritu es uno D. S. I, 247.
+
+    1. La Tierra le otorga el físico denso.
+    2. Los Dioses lunares le proporcionan tres principios inferiores
+       1. Cuerpo etérico.
+       2. Prana.
+       3. Kama-manas.
+    3. Los Dioses solares le otorgan dos principios
+       1. Mente inferior.
+       2. Mente superior.
+    4. La Mónada constituye los dos principios superiores unificados.
+       1. Budi.
+       2. Atma.
+
+[^15]: La totalidad de la forma. Dios Es "Uno, no obstante las innumerables formas que están en Él", así es también el hombre en la tierra, el microcosmos del macrocosmos. D. S. III, 191, III, 281; IV, 214-215. Todo está comprendido en el hombre. Él unifica en sí mismo todas las formas. El misterio del hombre terrenal es el misterio del Hombre celestial. La potencialidad de cada órgano útil a la vida animal está encerrada en el hombre, el microcosmos del macrocosmos. D. S. IV, 243.
+
+[^16]: Pitris. Los antepasados o creadores de la humanidad son de siete clases, tres de las cuales son incorpóreas y cuatro corpóreas. Generalmente se los denomina Pitris lunares o antepasados, y no deberán ser confundidos con los Pitris solares o Ángeles, que otorgan la mente al hombre y crean el cuerpo más o menos permanente del Ego o Yo superior.
+
+[^17]: Devas. "...él habría (1) dividido a los Devas en dos clases - denominándolos "Rupa-devas" y "Arupa-devas"- la "forma" u objetividad y lo "amorfo" o los Dhyan Chohanes subjetivos; (2) lo mismo habría hecho para su tipo de "hombres", pues hay Cascarones y "Mara-rupas" o sea cuerpos sujetos a la aniquilación. Ellos son:
+
+    1. Rupa-devas: Los Dhyan Chohanes que tienen formas. Ex-hombres
+    2. Arupa-devas: Los Dhyan Chohanes que no tienen formas. Ex-hombres
+    3. Pisachas: de dos principios. Fantasmas
+    4. Mara-rupa: Sujeto a la muerte (tres principios)	
+    5. Asuras: -Elementales- que tienen forma humana. Hombres futuros
+    6. Bestias: -Elementales segundo tipo- elementales animales. Hombres futuros
+    7. Rakshasas: -Demonios- Almas o formas astrales de hechiceros. Hombres que han alcanzado el ápice del conocimiento en el arte prohibido. Vivos o Muertos han engañado a la naturaleza, por así decirlo, pero solo temporariamente -hasta que nuestro planeta entre en la oscuración, después de lo cual, quieran o no, han de ser aniquilados.
+
+    Estos siete grupos forman las divisiones principales de los Moradores del mundo subjetivo que nos circunda." The Mahatma Letters to A. P. Sinnet, pág. 107.
+
+[^18]: Los Pitris lunares o Barhishad tienen la siguiente función: D. S. III, 102.
+
+    1. Son los Antecesores del Hombre	D. S. III, 109
+    2. Son los Modeladores de su forma.
+    3. Poseyeron el fuego físico o creador.
+    4. Revistieron únicamente a las mónadas humanas
+    5. No pudieron hacer al hombre a su semejanza
+    6. No pudieron proporcionarle mente	D. S. III, 88
+    7. Construyeron su forma externa.
+    8. Proporcionan el principio inferior.	D. S. III, 96
+
+[^19]: Temporariamente, son los Conquistadores del Espíritu. D.S. III, 73.
+
+    1. El Espíritu se sumerge en las formas materiales.
+    2. Las formas constituyen el campo de batalla
+    3. El Espíritu matará oportunamente a las formas.	D. S. III, 75.
+    4. Obsérvese el orden esotérico.	D. S. III, 93, 96, 103, 117.
+
+[^20]: En la Voz del Silencio se dice:
+
+    "Antes de entrar en ese Sendero, debes destruir tu cuerpo lunar, purificar tu cuerpo mental y limpiar tu corazón."
