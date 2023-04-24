@@ -688,6 +688,52 @@ De esta manera, será evidente para los estudiantes, que el Hombre celestial, co
 
 ### a. Las Funciones de los Devas.
 
+<p><pin lang="en">620</pin> Habiendo enunciado ciertos hechos fundamentales respecto a los devas, considerados como la sustancia misma y el summum de la energía de la sustancia, llegamos a los detalles técnicos y a considerar en forma analítica estas fuerzas constructivas a medida que construyen la forma mental del Logos o el Sistema solar. De la consideración se desprenderá cierto conocimiento práctico:</p>
+
+Primero. Conocer cómo construir en materia mental en los tres mundos y cómo emplear a los devas del plano gaseoso del físico cósmico.
+
+Segundo. Comprender cómo combinar los pares de opuestos y así dar cuerpo y forma al concepto.
+
+Tercero. Materializar en el plano físico la idea corporificada.
+
+1. **Manifestación de los aspectos logoicos**. Se logra mediante una concisa consideración de las leyes del ser y del método seguido por el Logos cuando da forma a su concepto y lleva a cabo Su propósito o voluntad por medio de esa forma. En los tres planos del esfuerzo humano están reflejados los tres aspectos del Logos que producen la manifestación:
+
+   1. Plano mental... reflejo del primer aspecto. El plano del concepto, de la unión de Padre-Espíritu-Voluntad y Madre-Materia-Energía. Tal es el trabajo del Logos; esta unión produce al Hijo, pues el Pensamiento divino toma forma. El cuerpo del Ego se encuentra allí.
+   2. Plano astral... reflejo del segundo aspecto, el Hijo. La materialización prosigue por medio del deseo; la forma crece y evoluciona, llegando a ser más adecuada.
+   3. Plano físico... Manifestación. La forma mental (del hombre o del Logos) aparece en actividad. El Hijo ha nacido en el plano físico, la idea del Pensador (humano o divino) se convierte en un ente separado <pin lang="en">621</pin> de su fuente originaria, sin embargo, energetizado por la vitalidad que emana de él.
+
+ Todo ello es posible -hablando ahora desde el punto de vista humano- por la acción de los devas, quienes constituyen aquello que corporifica al pensamiento y le proporciona su energía separada, distinta del propósito que se desarrollará hasta llegar a la <pin lang="es">506</pin> fructificación, cuando la forma sea adecuada como medio de expresión.
+
+2. **Fuerza dévica de la sustancia**. Al considerar a los devas de los siete planos del sistema solar y especialmente a los que trabajan en los tres mundos, debemos tener en cuenta las siguientes enunciaciones:
+
+   1. 1ra. Enunciación. - Existen devas que constituyen la fuerza dual de la sustancia del plano cósmico inferior, el físico cósmico. En lo que se refiere a los tres mundos, existen la fuerza y la sustancia dévicas [^21] que componen el cuerpo físico denso del Logos, por eso el hombre está limitado, cuando actúa en esos planos, a esos devas considerados principalmente (desde niveles superiores) como que no forman parte integrante de los siete principios del Logos; a los que componen la forma gaseosa, líquida y concreta del Logos, los devas del fuego concreto, del agua y de la tierra en su aspecto más denso; a esos devas constructores automáticos y subconscientes, que realizan el trabajo del vehículo físico denso del Logos, de la misma manera que los constructores en el cuerpo del hombre trabajan automática e inconscientemente, produciendo las células y energetizando las funciones corporales. De allí el peligro que existe cuando el hombre juega con dichas fuerzas. Se halla demasiado cerca de ellas de muchas maneras: se identifica con las mismas, y hasta <pin lang="en">622</pin> que no haya alcanzado la conciencia del Ego, y establecido, con pleno conocimiento, su identidad con el aspecto Espíritu y no con la sustancia, está propenso a ser arrastrado por la fuerza ciega y convertirse en un alma perdida cuando ignorantemente y por curiosidad invade sus dominios.
+   
+   El hombre se relaciona también con esos devas que están animados por la vida y el propósito que caracterizaron la evolución del primer sistema solar. Ésa es la vida de Dios, siendo ese propósito la actuación de Su voluntad, maligna desde nuestro punto de vista actual, pues, en lo que al hombre se refiere, los ha suplantado por un propósito y una meta diferentes. Por lo tanto, la identificación con el pasado, la retrogresión y los métodos antiguos son para el hombre un retroceso en el sendero de la evolución autoconsciente y conducen oportunamente al egotismo o a perder el principio <pin lang="es">507</pin> egoico, principio que diferencia al hombre humano o celestial del resto de la evolución.
+   
+   2. 2da. Enunciación. - La esperanza para los devas y para el aspecto forma reside en el hecho de que cada uno de los subplanos del plano físico cósmico está sometido a la influencia directa de fuerzas cósmicas que se originan en los otros seis planos cósmicos. Es desconocido e inconcebible todo lo que se refiere a estas fuerzas, excepto las indicaciones vagas y generales de esas corrientes y fuerzas que puedan ser sentidas como emanando de los planos cósmicos.
+   
+   El plano mental cósmico. Para nosotros se manifiesta en los tres tipos de fuerza que se observan en el plano mental del sistema. Éstos no han sido suficientemente estudiados, y son:
+
+      1. La fuerza que actúa en todos los átomos permanentes manásicos y produce básicamente esa manifestación que denominamos los tres mundos.
+      2. La fuerza que anima esos grupos de “lotos” <pin lang="en">623</pin> denominados grupos o centros egoicos -conglomerados de cuerpos causales.
+      3. La fuerza que vitaliza a todas las unidades mentales y que, desde allí, es distribuida a los otros átomos permanentes.
+
+   Estos tres tipos de fuerza tienen que ver con el aspecto sustancia -átomos permanentes, vehículo causal y entes mentales- y, por lo tanto, impresionan directamente a los devas que construyen estas formas empleando su propia sustancia, desarrollando así el plan divino. Estos tres tipos de fuerza, con intención síquica, afectan a la sustancia, siendo ellos mismos impulsados y activados de acuerdo al propósito divino desde niveles superiores. Emanan desde los niveles concretos del plano mental cósmico siendo, por consiguiente, la fuerza que fluye a través de la unidad mental del Logos y se relacionan con el centro de fuerza que se halla localizado en el cuerpo mental logoico. Constituye la fuerza de Agni en Su primer aspecto. Fuego característico del plano mental cósmico, reflejado en el subplano gaseoso cósmico del plano físico cósmico -nuestro plano mental del sistema.
+
+   El plano astral cósmico. La fuerza de este plano actúa por medio de nuestro plano astral del sistema, el subplano físico líquido cósmico y está prácticamente sujeta a dos diferenciaciones, cada una de ellas ocultamente representadas por dos grandes grupos de devas:
+
+   Primero. Los devas que constituyen la sustancia o fuerza del plano astral considerado como la suma total del deseo, del <pin lang="es">508</pin> sentimiento y de la sensación. Por lo tanto constituyen los centros y plexos nerviosos del cuerpo físico logoico, pues el plano astral del sistema es proporcionado por el sistema nervioso del cuerpo físico logoico. Es el cuerpo de más intensa vibración desde el punto de vista físico, y el vehículo por medio del cual todo es transmitido a esa parte del cuerpo físico logoico que corresponde al cerebro <pin lang="en">624</pin> en el hombre. No puedo dar mayores aclaraciones sobre esto, pero las pocas palabras formuladas aquí abren un amplio campo de pensamiento y dan la clave de gran parte de lo que sucede y aflige tanto a la evolución solar como a la humana.
+
+   Segundo. Los devas que constituyen la suma total de la luz astral. Son los agentes de los señores kármicos, y ellos mismos son entidades dévicas de una evolución inconcebiblemente avanzada, quienes en su propia sustancia
+
+      1. registran,
+      2. producen los efectos de las causas,
+      3. dirigen la fuerza.
+
+   Este grupo particular de devas emana de un gran centro de fuerza que nosotros, generalizando, le damos el nombre de sol Sirio. Sirio-kama-manas, plano astral cósmico y plano astral del sistema constituyen una cadena estrechamente entrelazada y la línea de menor resistencia para que pueda afluir un tipo particular de fuerza negativa.
+
+   El plano físico cósmico. Es la fuerza (externa e interna) del sistema solar mismo y su espacio circundante. Debería ser considerado como las fuerzas pránicas que fluyen a través del cuerpo etérico logoico (nuestros cuatro subplanos superiores) que son positivos para los tres inferiores (reflejo en la sustancia o en el aspecto Brahma de la unión Padre-Madre), impregnándolos y produciendo la manifestación puramente concreta. Ésta es la razón por la que el vehículo físico domina tanto durante las largas etapas de la evolución del hombre, pues la fuerza de este tipo de energía, lógicamente, se siente más fuertemente que cualquiera otra. Fuerza dévica y sustancia tan cercana a nosotros que nos engaña poderosamente. Encierra el misterio de maya y ha de encontrarse en ella el secreto de la ilusión. Aquí tiene el hombre la primer gran etapa de la batalla para lograr la plena autoconciencia e identificarse con el aspecto Dios y no con el <pin lang="en">625</pin> aspecto materia. También allí reside la razón esotérica por la cual el hombre lleva el apellido del padre y no el de la madre. Cuando el hombre ha dominado las esencias dévicas del plano físico, controla luego las del astral y domina a las esencias mentales. Habiendo realizado esto en su propia naturaleza, puede sin peligro convertirse en un mago y entrar en <pin lang="es">509</pin> contacto, controlar y trabajar con los devas en conexión con los planes del Hombre celestial. En la comprensión de los tres tipos fuerza, el hombre hallará la clave del misterio de sus centros. Aquí se encuentra el secreto de la nota musical correspondiente a los centros coronario, cardíaco y laríngeo y su fusión con los centros inferiores para que los superiores emitan la nota y los inferiores produzcan sólo armonía. Respecto a la nota de la naturaleza, el Logos tiene que superponer una nota más elevada. A la nota natural del centro (que se descubre desarrollando el centro inferior, su reflejo o analogía) se le ha de agregar la nota dominante del centro superior y, en armonía dual, el centro vibra entonces en forma deseada. La nota es el resultado de la correcta actividad. Por esa razón los centros inferiores del hombre son (en las primeras etapas de su carrera) el factor controlador. Ha de aprender cuál es su nota, y desde ella llegar hasta la clave de la superior. Entonces la superior ocupa el lugar prominente y la inferior sólo sirve al propósito de proporcionar lo que se comprende por “profundidad” esotérica. ¿Por qué es así? Porque mediante dichas notas se entra en contacto con esos grupos de devas que constituyen la fuerza y la energía de los centros (centros de sustancia) y se los controla. Las envolturas materiales -física, astral y mental- son construidas mediante su actividad, dirigida por intermedio de los centros.
+
 
 
 
@@ -792,3 +838,12 @@ De esta manera, será evidente para los estudiantes, que el Hombre celestial, co
 [^20]: En la Voz del Silencio se dice:
 
     "Antes de entrar en ese Sendero, debes destruir tu cuerpo lunar, purificar tu cuerpo mental y limpiar tu corazón."
+
+[^21]: Los Ángeles solares son de naturaleza dual.
+
+    "Manas es dual -lunar en la parte inferior, solar en la superior." D. S. IV, 63.
+
+    1. El aspecto solar es atraído hacia budi.
+    2. El otro desciende hasta el animal inferior, o es atraído por éste.
+    3. Los Ángeles solares formal el "Alma" o segundo Aspecto.
+    4. El "Alma" principal constituye Manas o mente. D. S. IV, 64, 202

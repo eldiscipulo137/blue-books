@@ -1,0 +1,9 @@
+---
+title: Centros superiores e inferiores
+---
+
+# Centros superiores e inferiores
+
+> [Tratado sobre fuego cósmico](/tratado-sobre-fuego-cosmico/elementales-de-la-mente#en625)
+
+Cuando el hombre ha dominado las esencias dévicas del plano físico, controla luego las del astral y domina a las esencias mentales. Habiendo realizado esto en su propia naturaleza, puede sin peligro convertirse en un mago y entrar en <pin lang="es">509</pin> contacto, controlar y trabajar con los devas en conexión con los planes del Hombre celestial. En la comprensión de los tres tipos fuerza, el hombre hallará la clave del misterio de sus centros. Aquí se encuentra el secreto de la nota musical correspondiente a los centros coronario, cardíaco y laríngeo y su fusión con los centros inferiores para que los superiores emitan la nota y los inferiores produzcan sólo armonía. Respecto a la nota de la naturaleza, el Logos tiene que superponer una nota más elevada. A la nota natural del centro (que se descubre desarrollando el centro inferior, su reflejo o analogía) se le ha de agregar la nota dominante del centro superior y, en armonía dual, el centro vibra entonces en forma deseada. La nota es el resultado de la correcta actividad. Por esa razón los centros inferiores del hombre son (en las primeras etapas de su carrera) el factor controlador. Ha de aprender cuál es su nota, y desde ella llegar hasta la clave de la superior. Entonces la superior ocupa el lugar prominente y la inferior sólo sirve al propósito de proporcionar lo que se comprende por “profundidad” esotérica. ¿Por qué es así? Porque mediante dichas notas se entra en contacto con esos grupos de devas que constituyen la fuerza y la energía de los centros (centros de sustancia) y se los controla. Las envolturas materiales -física, astral y mental- son construidas mediante su actividad, dirigida por intermedio de los centros.
