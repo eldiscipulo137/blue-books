@@ -686,7 +686,7 @@ En el primer sistema solar fue perfeccionado el aspecto negativo de la sustancia
 
 De esta manera, será evidente para los estudiantes, que el Hombre celestial, considerado como una Deidad solar, una Entidad autoconsciente, actúa con Su aspecto negativo por intermedio de la fuerza positiva, desde los niveles etéricos logoicos sobre los tres aspectos del físico denso logoico, llevando así a la madurez a los átomos y células de Su cuerpo, nutriendo el germen de la autoconciencia y aventando la llama hasta que cada ente se hace totalmente consciente del grupo y se da cuenta del lugar que le corresponde dentro del cuerpo colectivo. Cada ser humano, funcionando en los tres mundos, ejerce una acción similar sobre las células conscientes de sus cuerpos hasta que cada átomo logra eventualmente su meta. El Hombre celestial actúa necesariamente por intermedio de grupos egoicos, derramando fuerza positiva sobre ellos hasta que dejan de ser pasivos y negativos y pasan a ser potentes <pin lang="es">505</pin> y activos. El hombre actúa análogamente sobre sus cuerpos, a través de sus centros, y tiene cierta responsabilidad que, respecto a las vidas inferiores, por ley kármica deberá cargar. Esta es la base del proceso evolutivo.
 
-### a. Las Funciones de los Devas.
+### b. Las Funciones de los Devas.
 
 <p><pin lang="en">620</pin> Habiendo enunciado ciertos hechos fundamentales respecto a los devas, considerados como la sustancia misma y el summum de la energía de la sustancia, llegamos a los detalles técnicos y a considerar en forma analítica estas fuerzas constructivas a medida que construyen la forma mental del Logos o el Sistema solar. De la consideración se desprenderá cierto conocimiento práctico:</p>
 
@@ -734,9 +734,131 @@ Tercero. Materializar en el plano físico la idea corporificada.
 
    El plano físico cósmico. Es la fuerza (externa e interna) del sistema solar mismo y su espacio circundante. Debería ser considerado como las fuerzas pránicas que fluyen a través del cuerpo etérico logoico (nuestros cuatro subplanos superiores) que son positivos para los tres inferiores (reflejo en la sustancia o en el aspecto Brahma de la unión Padre-Madre), impregnándolos y produciendo la manifestación puramente concreta. Ésta es la razón por la que el vehículo físico domina tanto durante las largas etapas de la evolución del hombre, pues la fuerza de este tipo de energía, lógicamente, se siente más fuertemente que cualquiera otra. Fuerza dévica y sustancia tan cercana a nosotros que nos engaña poderosamente. Encierra el misterio de maya y ha de encontrarse en ella el secreto de la ilusión. Aquí tiene el hombre la primer gran etapa de la batalla para lograr la plena autoconciencia e identificarse con el aspecto Dios y no con el <pin lang="en">625</pin> aspecto materia. También allí reside la razón esotérica por la cual el hombre lleva el apellido del padre y no el de la madre. Cuando el hombre ha dominado las esencias dévicas del plano físico, controla luego las del astral y domina a las esencias mentales. Habiendo realizado esto en su propia naturaleza, puede sin peligro convertirse en un mago y entrar en <pin lang="es">509</pin> contacto, controlar y trabajar con los devas en conexión con los planes del Hombre celestial. En la comprensión de los tres tipos fuerza, el hombre hallará la clave del misterio de sus centros. Aquí se encuentra el secreto de la nota musical correspondiente a los centros coronario, cardíaco y laríngeo y su fusión con los centros inferiores para que los superiores emitan la nota y los inferiores produzcan sólo armonía. Respecto a la nota de la naturaleza, el Logos tiene que superponer una nota más elevada. A la nota natural del centro (que se descubre desarrollando el centro inferior, su reflejo o analogía) se le ha de agregar la nota dominante del centro superior y, en armonía dual, el centro vibra entonces en forma deseada. La nota es el resultado de la correcta actividad. Por esa razón los centros inferiores del hombre son (en las primeras etapas de su carrera) el factor controlador. Ha de aprender cuál es su nota, y desde ella llegar hasta la clave de la superior. Entonces la superior ocupa el lugar prominente y la inferior sólo sirve al propósito de proporcionar lo que se comprende por “profundidad” esotérica. ¿Por qué es así? Porque mediante dichas notas se entra en contacto con esos grupos de devas que constituyen la fuerza y la energía de los centros (centros de sustancia) y se los controla. Las envolturas materiales -física, astral y mental- son construidas mediante su actividad, dirigida por intermedio de los centros.
 
+   Estas ideas respecto a la fuerza y a las envolturas constituyen la base de la enseñanza astrológica, una de las claves para comprender La Doctrina Secreta [^22]. Por lo tanto, debemos tener presente que <pin lang="en">626</pin> los Señores Devas, Agni, Varuna, Kshiti [^23], representan en la enseñanza exotérica el aspecto sustancia del cuerpo denso del Logos, mientras que el aspecto fuerza que fluye a través del cuerpo etérico del Logos es considerado bajo varios nombres tales como Shiva, Surya, Brahma. Sin embargo, los dos aspectos no son más que uno.
 
+   3. 3ra. Enunciación. -. Lo último que trataré de aclarar aquí, y ello debe recordarse, es que en relación con los tres planos <pin lang="es">510</pin> inferiores y sus muchos grupos de devas, sus opuestos polares han de encontrarse en los grandes devas de los tres planos más elevados.
 
+   |                     |                   |                  |              |            |
+   | ------------------- | ----------------- | ---------------- | ------------ | ---------- |
+   | Divino              | 1er. Éter Cósmico | Fuego Primordial | Plano Mental | Fuego.     |
+   | Monádico            | 2do. Éter Cósmico | Akasha           | Plano Astral | Luz Astral |
+   | Espiritual o Átmico | 3er. Éter Cósmico | Éter             | Plano Físico | Éter.      |
 
+   El tipo particular de fuerza diferenciada que ellos representan, cuando son llevados a la unión recíproca, constituye la causa de la concreción o apariencia, en tiempo y espacio, del cuerpo físico denso. Esto debería ser cuidadosamente considerado, junto con el hecho muy interesante de que en el cuarto plano de nuestro sistema (el cuarto éter cósmico o plano búdico) tenemos la esfera de ciertos sucesos ocultos que sólo pueden ser insinuados, porque su verdadero significado es uno de los secretos de la iniciación. Constituyen un aspecto del plan del Logos con el que pueden entrar en contacto directo quienes han expandido adecuadamente su conciencia.
+
+   <p><pin lang="en">627</pin> En el plano búdico o cuarto éter cósmico es donde:</p>
+
+      1. Los planetas sagrados desempeñan su función.
+      2. El hombre actuará cuando oportunamente se libere del triple hombre inferior.
+      3. El verdadero significado de las palabras “divino Hermafrodita” llegará a comprenderse.
+      4. Predomina la fuerza vital, siendo uno de los planos de la procreación.
+      5. El hombre por primera vez comprenderá y empleará su relación con los devas.
+      6. Verá la fructificación del proceso evolutivo de los dos sistemas solares combinados.
+      7. Tiene lugar la emanación de todos los Avatares planetarios.
+      8. Los Hombres celestiales reciben la primera Iniciación.
+      9. Se comprende el verdadero significado interno del “Sol”.
+
+   Nada más puedo decir, pero un detenido análisis de lo que he expuesto puede proporcionar cosas de gran significado a quienes estudian el macro y el microcosmos.
+
+### c. Los Devas y los Planos.
+
+Notas preliminares. Hemos considerado en términos amplios y generales los diversos tipos de fuerza que animan a la sustancia dévica y su origen. Ahora podemos estudiar más específicamente los entes dévicos en sus distintos grupos, habiendo ya sentado los fundamentos en relación con ellos.
+
+En esta parte del tratado los estudiantes han de recordar que no estamos considerando a esos constructores de desarrollo <pin lang="es">511</pin> involutivo que figuran en la literatura teosófica y ocultista como las esencias elementales. Nos ocupamos de los que están en el arco evolutivo, agentes del fuego cósmico, mientras que los constructores menores son específicamente agentes de las fuerzas solar y lunar. La fuerza solar contiene las variadas diferenciaciones de la triple fuerza cósmica al manifestarse dentro del sistema <pin lang="en">628</pin> solar. La fuerza solar puede también ser denominada (en lo que se refiere a la facultad creadora y constructora del hombre) fuerza planetaria, pues cada ser humano (sea adepto u hombre común) construye y crea sus formas mentales -consciente o inconscientemente- dentro de las esferas planetarias en los tres mundos.
+
+Ahora deberá hacerse un considerable número de clasificaciones, pues sólo es posible y conveniente exponer ciertos hechos, nombres y delineamientos que pueden ser demostrados únicamente por medio de la Ley de Analogía o Correspondencia, ley que proporciona la clave de la compresión. La diferenciación fundamental en el sistema solar es la siguiente:
+
+|        |                    |          |                           |          |
+| ------ | ------------------ | -------- | ------------------------- | -------- |
+| Agni   | Fuego eléctrico    | Espíritu | El Sol                    | Energía. |
+| Surya  | Fuego solar        | Vishnu   | El Sol central espiritual | Luz      |
+| Brahma | Fuego por fricción |          | El Sol físico (visible)   | Fohat.   |
+
+Como fuego eléctrico el Logos es la manifestación de los siete aspectos de la Voluntad, el impulso o propósito espiritual.
+
+Como fuego solar es la manifestación de los siete Rayos o la Luz de la Sabiduría, la Conciencia irradiando a través de la forma.
+
+Como fuego por fricción es la manifestación de los siete Hijos de Fohat, los siete grandes fuegos o el calor activo de la sustancia inteligente.
+
+Estos tres aspectos del Dios de Fuego y del fuego de Dios, constituyen las tres Entidades de la Trinidad logoica, y a su vez cada una se manifiesta por intermedio de otras siete Entidades formando la manifestación total.
+
+El séptuple fuego eléctrico. Los siete tipos de existencias espirituales o los siete Espíritus ante el Trono en Su fundamental esencia, fuerza o voluntad dinámica que reside detrás de toda manifestación. Constituyen en su propio plano, en sentido peculiar, la “Joya del Loto” logoico, <pin lang="en">629</pin> de allí que nuestra inteligencia no pueda concebirlos en este sistema solar, pues no se revelan hasta que “el Hijo sea hecho perfecto” o la conciencia logoica haya despertado plenamente. Esotéricamente son los “Espíritus de la Oscuridad”.
+
+El séptuple fuego solar. Los siete Hombres celestiales, la suma <pin lang="es">512</pin> total de la Luz, los siete Rayos de manifestación del Sol espiritual. En tiempo y espacio estos siete Rayos de Luz se convierten en nueve (los tres principales que con el tercero representan el siete), constituyendo esotéricamente los nueve pétalos del Ego logoico y, cuando se manifiesta en Su vehículo físico, los “Hijos de la Luz”.
+
+El séptuple fuego por fricción. Los siete hermanos de Fohat. Las siete manifestaciones de la electricidad o los fenómenos eléctricos. Son los siete Señores Raja o Devas de los siete planos; los siete Fuegos o estados de actividad por los cuales se expresa la conciencia. Constituyen los vehículos de la conciencia y las siete vibraciones. Esotéricamente son los “Hermanos de la energía”.
+
+Por lo tanto, será evidente que la suma total de la manifestación logoica tal como puede observarse que existe en tiempo y espacio es:
+
+|                     |                              |
+| ------------------- | ---------------------------- |
+| Siete Espíritus     | séptuple voluntad.           |
+| Siete Rayos         | séptuple cualidad o psiquis. |
+| Siete Señores Devas | la fórmula séptuple.         |
+
+Los últimos son literalmente las siete espirillas o vibraciones de fuerza dentro del átomo físico permanente logoico. Es necesario recordar esto cuidadosamente y meditar sobre ello. Los siete Rayos constituyen la suma total de la naturaleza síquica del Logos cuando irradian a través de Su forma física -Sus siete cualidades, el cúmulo de deseos que ha expresado la naturaleza amor. Los siete Espíritus constituyen la suma total de Su aspecto Voluntad de ser, la Vida sintética de Su manifestación total, lo que determina la duración <pin lang="en">630</pin> de la forma y su evolución durante todo el tiempo que el Ego logoico trata de existir físicamente.
+
+Para extender aún más la similitud o analogía y tener presente la semejanza que existe entre el desarrollo micro y macrocósmico tenemos:
+
+1. Los siete Espíritus que encuentran Su incentivo originador
+   1. en los niveles mentales inferiores cósmicos,
+   2. en la “Joya en el Loto” logoico,
+   3. en el plano átmico cósmico.
+2. Los siete Hombres celestiales se hallan en la línea de fuerza que proviene
+   1. del plano astral cósmico,
+   2. del loto logoico de nueve pétalos,
+   3. del plano búdico cósmico (los siete Rishis de la Osa Mayor).
+3. Los siete Hijos de Fohat encuentran su fuerza vital que emana
+   1. del plano físico cósmico, <pin lang="es">513</pin>
+   2. de los átomos permanentes logoicos (dentro del cuerpo causal),
+   3. de los niveles mentales superiores cósmicos.
+
+Sin embargo, estos tres son sólo expresiones de la Existencia Una, pues detrás del Logos, en encarnación física, se encuentra la Mónada Logoica, expresándose por intermedio del Ego logoico y su reflejo, la Personalidad logoica.
+
+Todas estas Esencias espirituales son Entidades autoconscientes individualizadas; las “Vidas ardientes” son Existencias vitales, reales y conscientes. Así vemos al Logos que se manifiesta como Unidad, sin embargo es Tres en Uno; también vemos la triple Unidad que se diferencia en las siete grandes Vidas, conteniendo dentro de Si misma todas las vidas menores.
+
+Ahora estudiaremos otra amplia diferenciación: <pin lang="en">631</pin>
+
+1. Los siete Fuegos forman los cuarenta y nueve Fuegos.
+2. Los siete Hombres celestiales se manifiestan por intermedio de cuarenta y nueve Rayos menores.
+3. Los siete Espíritus se presentan como cuarenta y nueve Existencias.
+
+Sería inútil llevar este concepto más adelante en conexión con el aspecto Espíritu. Del Espíritu en sí nada podemos conocer, y sólo es posible mencionar los cuarenta y nueve [^24] Manues solares (cada uno de los Hombres celestiales se expresa en el plano físico por intermedio de siete Manues). Por consiguiente, al considerar estos temas tan abstractos. únicamente nos ocuparemos de los siete Rayos de Luz u Hombres celestiales y de los siete Fuegos.
+
+Cada uno de los siete Rayos de Luz se divide en siete, convirtiéndose en cuarenta y nueve aspectos de la naturaleza síquica logoica, tal como se expresa en el plano físico cósmico, y cada uno de los siete Fuegos se manifiesta como siete Fuegos menores, constituyendo los cuarenta y nueve Fuegos a los cuales se refiere H. P. B. en La Doctrina Secreta. [^25] Cada uno de los siete Hombres celestiales se manifiesta por intermedio de siete Entidades menores que forman los centros síquicos del vahan o vehículo logoico. Cada uno de los siete Fuegos o Señores Devas de un plano se manifiesta por intermedio de siete devas menores que forman el fuego central y la conciencia de la sustancia de un subplano. Ahora nos referiremos a su interacción y trabajo mutuos, es decir, estudiaremos la materia cuando, siendo afectada, se construye con ella una forma por medio del Pensamiento divino o Voluntad.
+
+<p><pin lang="es">514</pin> No tengo la intención de considerar los Fuegos superiores (los Señores de los cuatro planos superiores), pues sólo es de valor para nosotros <pin lang="en">632</pin> estudiar el proceso de construcción de formas mentales en los tres mundos por medio de las esencias dévicas, las cuales son vitalizadas y manipuladas por los Constructores, los Dhyan Choanes, los Hombres celestiales, mediante la fuerza de sus Vidas, el conocimiento que poseen de la Voluntad o propósito logoico y el poder de Sus naturalezas síquicas. De esta manera, están abocados en Construir el cuerpo físico logoico y en llevar a cabo Sus planes en ese cuerpo, cumpliendo así el propósito para el cual Él encarnó. Su trabajo es mucho más importante pues lo realizan principalmente en los niveles cósmicos, pero de algún modo esto nos concierne a nosotros y es todo lo que podemos captar. En los tres mundos del esfuerzo humano el hombre realiza dos trabajos:</p>
+
+1. Primero. La construcción de su cuerpo de manifestación, un cuerpo triple.
+2. Segundo. La construcción de formas mentales con materia mental, las vitaliza con el deseo y las mantiene dentro de su aura, construyendo de este modo un pequeño sistema propio.
+
+El hombre y los Hombres celestiales trabajan con sustancia dévica, colaboran con los devas, manifiestan voluntad, cualidad síquica y actividad inteligente cuando realizan su trabajo, pero hay una diferencia entre ambos no sólo de grado sino de conciencia. Por lo general el hombre trabaja inconscientemente. Los Hombres celestiales trabajan conscientemente en niveles cósmicos la mayor parte del tiempo. He aquí una sugerencia respecto a la etapa de evolución de nuestros Logos.
+
+Esto es realmente difícil, porque el tema es muy abstruso y profundo. Dejaremos de lado estas ideas fundamentales y nos abocaremos más específicamente al estudio de los devas, los cuales nos conciernen en forma más inmediata, o con los tres grupos que he delineado -los Agnichaitas, los Agnisuryas y los Agnishvattas. Éstos se relacionan principalmente con la evolución del cuerpo denso del Logos, los subplanos gaseoso, líquido y denso del <pin lang="en">633</pin> físico cósmico, o con los tres mundos del esfuerzo humano; con la radiación magnética del Logos a través de Su vehículo físico y con las emanaciones radiantes del Hombre celestial particular, que se expresa por medio de nuestro planeta. Finalmente se relacionan con la evolución de la conciencia [^26] y en los tres mundos y, particularmente, con la individualización de la unidad de conciencia humana y la vitalización de <pin lang="es">515</pin> centros en el cuerpo del Hombre celestial con el cual estamos peculiarmente relacionados.
+
+constructores que realizan los propósitos del Logos en su cuerpo físico denso. Aclaremos nuestras ideas esta materia lo mejor posible y la categoría de estos aparecerá a simple vista en la siguiente clasificación:
+
+| Nombre     | Plano Cósmico              | Plano del sistema | Naturaleza | Regente |
+| ---------- | -------------------------- | ----------------- | ---------- | ------- |
+| Agnichaita | 7º subplano físico cósmico | Físico            | Concreción | Kshiti  |
+| Agnisurya  | 6º subplano físico cósmico | Astral            | Liquido    | Varuna  |
+| Agnisvatta | 5º subplano físico cósmico | Mental            | Gaseoso    | Agni    |
+
+Los Agnichaitas son devas que construyen y erigen con materia del tipo más denso en relación con la manifestación logoica. Actúan en el séptimo subplano del plano físico cósmico y producen mayor concreción. En el cuerpo planetario de nuestro Logos planetario constituyen los constructores de la Tierra, la forma más densa del Logos y la suma total de la actividad y vibración de todo el sistema solar <pin lang="en">634</pin> que se demuestra por medio de lo que llamamos sustancia sólida”.
+
+Por lo tanto se evidencia que, de acuerdo a la ley, producirán un efecto peculiarmente poderoso en el subplano inferior del plano físico del sistema; de allí su denominación esotérica de “Agnichaitas del calor interno o central”. Constituyen la totalidad de las vibraciones inferiores en el vehículo físico cósmico.
+
+Los Agnisuryas son los constructores en el sexto subplano del físico cósmico, nuestro plano astral del sistema. Como ya he señalado representan al sistema nervioso simpático del cuerpo físico logoico, exactamente como sus hermanos de la séptima vibración representan la suma total del sistema circulatorio o sanguíneo. Un indicio para el estudiante que se interese en descubrir la clave psicológica reside en la relación que existe entre los dos grandes grupos de devas que erigen y construyen la parte más objetiva de la manifestación logoica y los dos grupos de corpúsculos que, en su interacción, mantienen al cuerpo sano; existe también una analogía entre los devas del plano astral y los nervios sensitivos y motores del cuerpo físico. No me extenderé más sobre este concepto.
+
+Estos devas tienen que ver, en sentido muy esotérico, con los plexos nerviosos del
+
+1. sistema solar (Sol físico), <pin lang="es">516</pin>
+2. esquema planetario (planeta denso),
+3. cuerpo físico humano (cuerpo denso),
+
+y constituyen, por lo tanto, un poderoso factor en la vitalización eventual de los centros del hombre. Los centros etéricos o los puntos focales de fuerza de un Hombre celestial, se hallan en el cuarto éter cósmico, el plano búdico. El plano astral está estrechamente ligado al búdico y cuando los centros etéricos de nuestro Hombre celestial, por ejemplo, llegan a su plena actividad, la fuerza es transmitida, por intermedio de su analogía astral, <pin lang="en">635</pin> al cuarto éter físico, en el cual existen los centros del hombre.
+
+Los Agnishvattas son los constructores en el quinto subplano o gaseoso, del físico cósmico y -desde el punto de vista humano- constituyen los de mayor importancia, pues son los constructores del cuerpo de la conciencia en sí. Desde el punto de vista síquico de la fisiología oculta, tienen una estrecha relación con el cerebro físico, el asiento o imperio del pensador y, como en esta etapa todo lo que podemos conocer debe ser considerado en forma kama-manásica, se evidenciará que entre el sistema nervioso simpático y el cerebro hay una interacción tan estrecha que se convierte en un todo organizado. Esta analogía microcósmica es interesante, pero al estudiar ahora estos grupos de devas, los consideraremos principalmente en su trabajo como constructores del sistema y planetarios, dejando que el estudiante establezca por sí mismo la analogía humana, de esta manera aprenderá. Habiendo señalado ciertas líneas de pensamiento. tomaremos ahora uno por uno estos grupos y los consideraremos.
 
 
 
@@ -847,3 +969,21 @@ Tercero. Materializar en el plano físico la idea corporificada.
     2. El otro desciende hasta el animal inferior, o es atraído por éste.
     3. Los Ángeles solares formal el "Alma" o segundo Aspecto.
     4. El "Alma" principal constituye Manas o mente. D. S. IV, 64, 202
+
+[^22]: Se hace referencia a la Clave Astrológica en la D.S. III, 38.
+
+[^23]: Agni, el Dios del Fuego en el Veda, es el más antiguo y reverenciado de los Dioses de la India. Es el triple aspecto del Fuego y, por lo tanto, la suma total de la manifestación. También se lo considera el Señor del plano mental (el 5to. plano) cuyo símbolo es el fuego.
+
+    Varuna, es el Dios del Agua, en el sentido de las aguas del espacio o las aguas de la materia. Tamabién se lo considera como Regente del plano astral (el 6to. plano) cuyo símbolo es el agua.
+
+    Kshiti, es el Dios de la Tierra, en el sentido de la sustancia densa y no de un cuerpo planetario, el Dios del plano físico, el séptimo plano.
+
+[^24]: Los cuarenta y nueve Manues constituyen los custodios y guardianes de los ciclos de la raza en un manvantara o Día de Brahma. Existen siete razas en un período mundial y siete períodos mundiales.
+
+[^25]: Ver D. S. II, 220.
+
+[^26]: Los Ángeles lunares han de alcanzar el plano de los Ángeles solares. D. S. I, 209.
+
+    Han de conquistar la inmortalidad. D.s. vi, 152-153.
+
+    La autoconciencia es su meta. D. S. I, 211; IV, 154.
