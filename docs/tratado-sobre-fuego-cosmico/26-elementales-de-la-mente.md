@@ -860,6 +860,95 @@ y constituyen, por lo tanto, un poderoso factor en la vitalización eventual de 
 
 Los Agnishvattas son los constructores en el quinto subplano o gaseoso, del físico cósmico y -desde el punto de vista humano- constituyen los de mayor importancia, pues son los constructores del cuerpo de la conciencia en sí. Desde el punto de vista síquico de la fisiología oculta, tienen una estrecha relación con el cerebro físico, el asiento o imperio del pensador y, como en esta etapa todo lo que podemos conocer debe ser considerado en forma kama-manásica, se evidenciará que entre el sistema nervioso simpático y el cerebro hay una interacción tan estrecha que se convierte en un todo organizado. Esta analogía microcósmica es interesante, pero al estudiar ahora estos grupos de devas, los consideraremos principalmente en su trabajo como constructores del sistema y planetarios, dejando que el estudiante establezca por sí mismo la analogía humana, de esta manera aprenderá. Habiendo señalado ciertas líneas de pensamiento. tomaremos ahora uno por uno estos grupos y los consideraremos.
 
+#### Los Agnichaitas - Devas del Plano Físico
+
+Estos devas son la suma total de la sustancia del plano físico. Como sabemos, este plano se divide en dos partes:
+
+1. Los cuatro éteres, cuatro subplanos.
+2. Lo concreto comprobable o los tres subplanos densos.
+
+Tenemos aquí una subdivisión del séptimo subplano del plano físico cósmico lo cual hace que el plano de la manifestación inferior se divida en cuarenta y nueve subplanos o estados de actividad. Para los propósitos del trabajo activo, los devas del sistema se dividen en cuarenta y nueve grupos -los cuarenta y nueve fuegos. Los Agnichaitas a su vez se dividen también en cuarenta y nueve grupos reflejando de esta manera al todo. <pin lang="en">636</pin>
+
+1. El Señor Raja. Kshiti. La vida del plano físico.
+2. Tres grupos de Agnichaitas se ocupan de:
+   1. La fuerza o energía de la sustancia física. Ese aspecto eléctrico que produce actividad.
+   2. La construcción de formas. Produce la unión de la <pin lang="es">517</pin> sustancia negativa y positiva, trayendo así a la existencia, en su significado exotérico y común, todo lo que se puede ver y tocar.
+   3. El calor interno de la sustancia que nutre y causa la reproducción Los tres grupos constituyen estrictamente el aspecto madre.
+
+Estos tres grupos también se subdividen en siete grupos que forman la materia de cada subplano, considerando a esa materia como el cuerpo de manifestación de uno de los siete devas por medio del cual el Señor Raja del plano se esta  manifestando.
+
+Estos siete grupos se dividen nuevamente en siete, formando cuarenta y nueve.
+
+Los tres grupos funcionan de la manera siguiente:
+
+1. Grupo A. En el primer subplano. Suma total de la materia atómica en el plano físico.
+2. Grupo B. En los subplanos etéricos segundo, tercero y cuarto. Constituyen la sustancia de esos planos, los transmisores de prana, por intermedio de los cuales el prana fluye hacia los aspectos más concretos del vahan o vehículo denso logoico.
+3. Grupo C. En los tres subplanos inferiores; los devas que constituyen la esencia de todo lo tangible, visible y objetivo.
+
+Los estudiantes deben establecer una verdadera distinción entre los centros y el resto del cuerpo cuando analizan la construcción del cuerpo del Logos solar o de un Logos planetario.
+
+<p><pin lang="en">637</pin> Los centros están aliados o relacionados con la conciencia y compuestos de unidades autoconscientes -las Mónadas humanas. El del cuerpo está compuesto de sustancia dévica y sin embargo ambas forman una unidad. Por lo tanto, las unidades dévicas son numéricamente superiores a la humana, siendo también femenina y negativa la sustancia dévica, y masculina la Jerarquía humana. Por medio de la actividad positiva de los centros, la sustancia dévica negativa es influenciada, construida y energetizada. Esto es verdad que se refiere a un Logos solar, a un Logos planetario y a un humano.</p>
+
+Por eso tres tipos de fuerza actúan sobre, o a través de estos devas:
+
+1. La fuerza que energetiza a los devas del primer subplano, el atómico. Ésta emana directamente del primer aspecto de Brahma o Agni, considerado como una Entidad autoconsciente, la tercera Persona de la Trinidad logoica y por consiguiente, el Espíritu, el Alma y el Cuerpo mismo en Su Naturaleza esencial separada. <pin lang="es">518</pin>
+2. La fuerza que energetiza a los devas constructores o grupos que construyen formas; esto proviene del segundo aspecto de Brahma, siendo el prana que surge del Sol físico y actúa bajo la Ley de Atracción.
+3. La fuerza que energetiza a los devas de los tres órdenes inferiores que emanan de Brahma en Su tercer aspecto. Así, mediante la fuerza dual o los aspectos de la materia misma. interactuando entre sí, se producen las formas más densas. Sin embargo, los tres tipos de fuerza funcionan como uno solo.
+
+#### Grupo C. Agnichaitas.
+
+Grupo C. Agnichaitas. Al considerar los grupos de Agnichaitas debemos recordar que se trata de la manifestación del Logos, de la cual ya se ocupa la ciencia exotérica; en lo que respecta a este grupo, la ciencia ya está progresando bastante y acumulando conocimiento; resta ahora a la ciencia <pin lang="en">638</pin> reconocer la naturaleza entificada [^27] [^28] de la sustancia y así explicar la vida que energetiza la sustancia de los tres subplanos inferiores. Este reconocimiento, por parte de la ciencia, de que todas las formas están construidas de vidas inteligentes, tendrá lugar cuando la ciencia de la magia esté nuevamente en auge y las leyes del ser sean mejor comprendidas.
+
+<p><pin lang="es">519</pin> Es magia cuando una vida mayor maneja las vidas inferiores, cuando el científico comience a trabajar con la conciencia que anima a la sustancia (atómica o electrónica) y cuando controle conscientemente las formas construidas con dicha sustancia, conocerá gradualmente el hecho de que entes de todas graduaciones y distintas constituciones son utilizadas para construir lo visible. Esto no sucederá hasta que la ciencia haya admitido definitivamente la existencia de la materia etérica tal como la comprende el ocultista y establecido la hipótesis de que el éter posee distintas vibraciones. Cuando a la contraparte etérica de todo lo que existe se le adjudique el lugar que le corresponde y se la considere de mayor importancia en la escala del ser que el vehículo denso y que es esencialmente el cuerpo de la <pin lang="en">639</pin> vida o vitalidad, la función del científico y del ocultista se fusionarán.</p>
+
+H. P. B. ha [^29] dicho que el físico denso no es un principio; ciertamente se pasa por alto este punto en lo que se refiere al hombre y al Logos. Su importancia no puede ser lo suficientemente comprendida pues su efecto consiste en transferir el punto de centralización o polarización en su cuerpo etérico, compuesto, el caso del hombre, de materia de los cuatro subplanos superiores del plano físico del sistema y, en el caso del Logos, de materia de los cuatro subplanos superiores del plano físico cósmico. El tema es de gran complejidad pues significa que debe comprenderse, desde el punto de vista del ocultista, que la vibración inferior la cual puede relacionarse es la etérica del sistema con cuatro vibraciones menores afines; en forma análoga, macrocósmicamente, la vibración logoica inferior con la cual se relacionan los adeptos avanzados es la etérica cósmica. Las tres vibraciones inferiores del sistema y del cosmos son el resultado de:
+
+1. Vibración refleja de parte de la sustancia negativa, pues los tres inferiores son negativos para los cuatro superiores.
+2. Vibración sincronizada inherente a la sustancia negativa, restos de un sistema anterior que personifica el karma anterior del Logos y del hombre.
+3. Vibraciones reemplazadas gradualmente por la imposición de una nota más elevada, por consiguiente, tanto para el hombre como para el Logos forman ocultamente el “cuerpo de muerte”.
+
+Esto nos conduce al tema que en realidad queremos dilucidar respecto a este tercer grupo de devas inferiores. En lo que se refiere al hombre son muy destructivos, pues constituyen la última <pin lang="es">520</pin> y por ende la poderosa vibración del sistema anterior, la actividad consciente de la materia densa. De allí que la afirmación <pin lang="en">640</pin> de que el hombre está a “merced de los elementos” encierra una gran verdad. El fuego puede físicamente quemar al hombre y destruirlo se halla inerme ante la acción volcánica y no puede protegerse contra los estragos del fuego, salvo en las etapas iniciales de tal esfuerzo dévico. La importancia oculta de la lucha que el hombre libra contra los devas del fuego por ejemplo, es muy real, como puede observarse en la lucha que libra el cuerpo de bomberos en cualquier ciudad. Aunque todavía está lejano, llegará con toda seguridad el día en que el personal de dichos cuerpos será elegido por su capacidad para controlar a los Agnichaitas cuando se manifiestan destructivamente, y no emplearán el método del agua (es decir llamar a los devas del agua para neutralizar a los devas del fuego), sino que utilizarán el método de conjurar y poseerán conocimiento de los sonidos con el cual pondrán en acción fuerzas que controlarán a los elementos ígneos destructivos.
+
+El tercer grupo de estos devas está muy relacionado con el control que ejerce el departamento del Manu y con los grandes devas asociados a dicho departamento en este planeta. Debido a la actividad que despliegan durante ciertos ciclos, cambian toda la superficie de la Tierra mediante la acción volcánica; continentes surgen y se sumergen; los volcanes están activos o pasivos, y así el mundo es purificado por el fuego. En su correspondiente sector estos Agnichaitas se mantienen activos, construyendo formas minerales por medio del fuego; son los alquimistas de las regiones inferiores, y mediante el contacto y el conocimiento de 'palabras' por las cuales son controlados, los futuros alquimistas científicos (en contradicción con los alquimistas idealistas del pasado) trabajarán con los minerales y con las vidas corporificadas en todas las formas minerales.
+
+El secreto de la transmutación de los metales comunes en oro será revelado cuando las condiciones del mundo sean tales que al oro no se lo considere el metal patrono y por ende su libre fabricación no conducirá al desastre, y <pin lang="en">641</pin> cuando los científicos trabajen con el aspecto vida o con la vida eléctrica positiva y no con el aspecto sustancia o forma.
+
+Hemos visto que el trabajo del grupo inferior de Agnichaitas consiste en construir continentes por medio del fuego, purificar por su intermedio durante ciclos alternados y fabricar los metales y los minerales. Se relaciona también con el cuidado de los fuegos del hogar, o esos fuegos que calientan, alegran y producen condiciones habitables en un planeta e incidentalmente en un hogar. Esto es de importancia vital, pues significa que están vinculados <pin lang="es">521</pin> por los fuegos básicos centrales de las entrañas de la Tierra, con el fuego básico central que nutre y calienta a las formas físicas de todos los reinos de la naturaleza y, en consecuencia, con el fuego kundalínico en la base de la columna vertebral del hombre individual.
+
+No Es aconsejable extendernos más sobre sus funciones. Debe observarse que hay menos que decir en relación con el aspecto materia que sobre la conciencia y el aspecto hilozoístico de la manifestación. La razón consiste en que la ciencia exotérica está investigando, lenta pero firmemente, la naturaleza de los fenómenos y descubriendo por sí misma el carácter de la manifestación eléctrica. En la lentitud del descubrimiento reside la seguridad. No es conveniente ni correcto todavía que la verdadera naturaleza de estos distintos poderes y fuerzas sea completamente conocida; por lo tanto sólo podemos indicar ciertas líneas amplias y generales. A su debido tiempo, cuando la familia humana esté centrada en la naturaleza superior y no en la inferior y cuando la fuerza de los planos superiores puedan imponerse con mayor facilidad sobre la inferior, los hechos relacionados con estas Vidas y estos Constructores, sus métodos de trabajo y las leyes de su ser serán conocidos. Hoy el conocimiento produciría dos resultados: primero, pondría a la familia humana bajo el poder (aún ciego y destructivo) de <pin lang="en">642</pin> ciertos elementos de naturaleza análoga a la del cuerpo físico. Esto traería como consecuencia la destrucción de la forma o se llegaría a la parálisis y a la demencia en gran escala. Segundo, se pondría el poder en manos de ciertos Hermanos del Sendero [^30] izquierdo y de un determinado número de magos inconscientes de los cuales hay bastantes que lo emplearían sólo para fines egoistas, malignos y materialistas. Por eso no es conveniente mas información acerca de esta sustancia física densa y de los que la corporifican. Los Agnichaitas del tercer grupo son todavía para el hombre una amenaza y sólo pueden ser manejados en forma grupal y en amplia escala por el guía del departamento del Manu mediante sus propios regentes -ciertos devas que poseen un desarrollo igual a la sexta Iniciación.
+
+La Jerarquía oculta de nuestro planeta se dedica principalmente a desarrollar la autoconciencia en el hombre y a interpretar inteligentemente los acontecimientos de la Naturaleza; a colaborar sabiamente con las Fuerzas constructoras de la naturaleza, siendo <pin lang="es">522</pin> el objeto de su principal esfuerzo la vitalización y la actividad de los centros en el Hombre celestial de nuestro planeta y en los entes individuales de la familia humana.
+
+La Jerarquía oculta es un gran centro de fuerza, pues los centros coronario, cardíaco y laríngeo del Hombre celestial, funcionan al unísono. Paralelamente a las actividades que desarrolla en la línea de la conciencia (y principalmente con la conciencia o inteligencia cuando se manifiesta en el tercero o cuarto reinos) se encuentra una gran jerarquía de devas que se dedica a desarrollar esa parte del cuerpo de un Hombre celestial que incluye los centros activos. Quizás alguna idea de lo que trato de exponer <pin lang="en">643</pin> podrá extraerse de una ilustración. La Jerarquía oculta se ocupa de abrir el Loto de nueve pétalos en el Hombre celestial y en el hombre (realizándolo por medio de la acción refleja entre el físico cósmico y el mental cósmico), mientras que la gran Jerarquía dévica se ocupa de los átomos permanentes, del cuerpo egoico y del desarrollo de las espirillas. De esta manera, el estudiante inteligente percibirá y comprenderá, macro y microcósmicamente, la función de los Agnichaitas de las hogueras.
+
+#### Grupo B. Agnichaitas.
+
+Grupo B. Agnichaitas: Al encarar el tema del Grupo B o segundo grupo de Agnichaitas nos ocuparemos de ese importante grupo de devas denominados en algunos libros “los devas de las sombras”. Su función es principalmente cuádruple y constituye la base del movimiento o actividad en todos los planos, actividad producida por la interacción de los aspectos negativo y positivo de Brahma, el Dios manifestado.
+
+Primero, son los que construyen el cuerpo etérico de todas las existencias sensibles y principalmente el cuerpo etérico de todos los hombres.
+
+Segundo, son los que trasmiten prana.
+
+Tercero, desempeñan una función muy definida en el proceso evolutivo, la de vincular los cuatro reinos de la naturaleza, siendo esencialmente los que transmutan y transmiten lo inferior a lo superior. Construyen entre cada reino -mineral, vegetal, animal y humano- lo que, en cada caso, corresponde al antakarana o puente que une al manas superior con el inferior, el canal que transmite la vida desde el reino humano inferior al espiritual o superior. Se hallará que entre cada una de las diferentes etapas de conciencia (desde la subconsciencia pasando por la autoconciencia hasta la superconciencia) hay un período en que se establece el vínculo y se construye y erige el puente, llevándose a cabo por intermedio de <pin lang="en">644</pin> ciertos grupos de devas en todos los planos. Los tres grupos tienen su contraparte en el plano físico, y su trabajo se efectúa paralelamente en los niveles superiores. Debe recordarse que el <pin lang="es">523</pin> trabajo de tender el puente de una etapa a otra o de un reino a otro se ha de realizar bajo las condiciones siguientes:
+
+1. Como resultado de un impulso que emana de lo inferior, se origina en el deseo activo de lo inferior por abarcar o entrar en contacto con lo superior. Esto es de gran importancia, pues todo progreso debe ser autoinducido, autoiniciado y el resultado de una actividad interna.
+2. Como resultado de la acción refleja de la etapa o reino superior, realizándose mediante la actividad de lo inferior, e invocando respuesta de lo superior. Debe recordarse que toda vibración es transmitida por ondas de sustancia viviente.
+3. Como resultado de un estímulo foráneo producido por la actividad de ciertos poderes conscientes interesados en el proceso del desarrollo evolutivo.
+
+Estas condiciones pueden observarse durante el proceso en que el hombre recibe la iniciación y pasa del cuarto reino al reino espiritual. Sus esfuerzos deben ser autoinducidos o el resultado de su empeño autoconsciente; dichos esfuerzos obtendrán respuesta de su superconciencia, el aspecto átmico o Espíritu, y más adelante los custodios de los Ritos de Iniciación ayudarán a esta interacción dual. Sin embargo, los tres efectos se sienten en Espíritu-materia, siendo todo regido por la ley de vibración, que constituye textualmente la respuesta de la sustancia dévica a la fuerza que emana desde una fuente consciente o inconsciente.
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -987,3 +1076,24 @@ Los Agnishvattas son los constructores en el quinto subplano o gaseoso, del fís
     Han de conquistar la inmortalidad. D.s. vi, 152-153.
 
     La autoconciencia es su meta. D. S. I, 211; IV, 154.
+
+[^27]: La naturaleza "entificada" de toda sustancia es técnicamente conocida como hilozoísmo. H.P.B. dice al respecto: "El hilozoísmo, entendido filosóficamente, constituye el aspecto más elevado del Panteismo. Es el único medio posible para escapar del tonto ateísmo basado en el materialismo mortal y en los conceptos antropomorfos más tontos aún de los monoteístas, permaneciendo entre ambos, totalmente neutral. El hilozoísmo exige un Pensamiento divino absoluto que compenetraría a las innumerables fuerzas creadoras activas o "los Creadores", cuyas Entidades son impelidas por ese Pensamiento divino en el cual tienen su ser, proviniendo de él y a través del mismo..... Se sabe que existen tales "Creadores" activos y se cree en ellos, porque son percibidos y presentidos por el Hombre interno del ocultista" D.S. III, 162-163.
+
+[^28]: Un átomo es una abstracción entificada. D. S. II, 213-214.
+
+    1. La entidad que da forma al sistema es el Logos
+    2. La entidad que da forma a un plano es su Señor-raja. Como lo son Indra, Agni, Varuna, Kshiti.
+    3. La entidad que da forma a un planeta es su Logos Planetario.
+    4. La entidad que da forma en el Microcosmos es un Dhyan Choan.
+    5. La entidad que da forma en el cuerpo causal es el divino Pensador.
+    6. La entidad que da forma en un átomo físico es una vida elemental.
+
+    El Fuego se halla en todas las cosas. D.S.I, 61; III, 242
+
+    1. La entidad que da forma es Fuego. D.S. I, 160-161.
+    2. La materia de la forma está compenetrada por fuego. D.S. I, 132-133
+    3. La mente en desarrollo es fuego cósmico. D. S. I, 134.
+
+[^29]: D.S. II 621 
+
+[^30]: El Sendero de la Izquierda es el que recorre el Mago Negro y los Hermanos de las Sombras. Comienza por emplear las fuerzas de la naturaleza para fines egoístas; se caracteriza por el intenso egoísmo y separatividad, y termina en Avitchi, la octava esfera, el hogar de las almas perdidas, o esos cascarones del hombre inferior que se han separado de su principio vital, egoico o individual.
