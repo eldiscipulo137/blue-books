@@ -937,10 +937,58 @@ Tercero, desempeñan una función muy definida en el proceso evolutivo, la de vi
 
 Estas condiciones pueden observarse durante el proceso en que el hombre recibe la iniciación y pasa del cuarto reino al reino espiritual. Sus esfuerzos deben ser autoinducidos o el resultado de su empeño autoconsciente; dichos esfuerzos obtendrán respuesta de su superconciencia, el aspecto átmico o Espíritu, y más adelante los custodios de los Ritos de Iniciación ayudarán a esta interacción dual. Sin embargo, los tres efectos se sienten en Espíritu-materia, siendo todo regido por la ley de vibración, que constituye textualmente la respuesta de la sustancia dévica a la fuerza que emana desde una fuente consciente o inconsciente.
 
+Cuarto, estos “devas de las sombras” realizan ciertas actividades interesantes y variadas, pero <pin lang="en">645</pin> tan diversas que es casi imposible enumerarlas. Podríamos tratar brevemente de describir algunas de estas funciones, recordando que lo que puede decirse acerca de ellas en el plano físico, puede también atribuirse a sus analogías en todos los planos. Podemos dejar que el estudiante lo analice, encomendándole tener presente que aquí nos ocupamos de los devas del arco evolutivo, pudiendo clasificarse entre muchos otros, en los siguientes tipos:
 
+1er. tipo. Los agentes especiales que se ocupan de la magia. Son peculiarmente susceptibles a las vibraciones constructoras de los siete rayos.
 
+2do. tipo. El grupo de Agnichaitas que se manifiesta como electricidad en el plano físico. Este grupo comienza a ser controlado por el hombre quien lo dominará cada vez más.
 
+3er. tipo. El grupo que constituye el aura de la salud, ya sea colectiva o individual, en los tres reinos intermedios de la naturaleza (vegetal, animal y humano). El hombre entra en contacto <pin lang="es">524</pin> con ellos por medio de la medicina, y ya empieza más o menos a reconocerlos. Uno de los grandes errores que ha cometido la familia humana ha sido administrar al hombre drogas minerales para propósitos medicinales. Esto ha dado por resultado una combinación de sustancias dévicas que no estaban destinadas a ello. La relación del hombre con los reinos inferiores, especialmente con el animal y el mineral, ha dado lugar a una condición peculiar en el mundo dévico, tendiente a complicar la evolución dévica. El empleo de alimentos animales (y en menor grado la aplicación de los minerales como medicina) ha producido una mezcolanza de sustancia dévica y de vibraciones que no se sintonizan entre sí. El reino vegetal está en una situación totalmente diferente, y parte de su karma consiste en proveer alimentos al hombre; esto ha dado por resultado una necesaria transmutación de la vida <pin lang="en">646</pin> de ese reino a la etapa superior (la animal que es su meta). La transmutación de la vida vegetal ocurre necesariamente en el plano físico. De allí su disponibilidad como alimento. La transmutación de la vida animal al reino humano tiene lugar en niveles kama-manásicos. A eso se debe que no esté disponible, entendido esotéricamente, el animal como alimento para el hombre. Éste es un argumento en favor de la vida vegetariana que es necesario considerar.
 
+4to. tipo. Un tipo muy importante de devas etéricos (en cuanto al hombre concierne) constituye definitivamente la sustancia de su centro. Ocupan esa posición por razones kármicas y son, desde muchos puntos de vista, algunos de los devas de las sombras más altamente evolucionados. Se caracterizan por su capacidad de responder, en manera especial, a una serie particular de vibraciones planetarias y, en su esencia fundamental y en la propia esfera peculiar, capacitan al hombre para que reaccione al estímulo de rayo. Cada centro está influenciado por uno de los planetas. En esto reside la capacidad que posee el hombre para eventualmente armonizar -por medio de sus centros- con la séptuple alma del mundo.
+
+5to. tipo. Tenemos aquí un grupo muy importante de devas que están peculiarmente activos y dominan esotéricamente durante esta ronda; son los Agnichaitas que constituyen el centro, en la base de la columna vertebral, que vibra al ritmo del kundalini en sus variadas formas y manifestaciones. En dicho centro se despliegan eficazmente las dos polaridades, pues los pétalos del centro, asiento del kundalini y del fuego o vitalidad que los anima, son recíprocamente negativos y positivos. Este centro existe en una u otra forma en todos los seres sensibles, y de él depende en gran parte <pin lang="en">647</pin>
+
+1. la conciencia, en una de sus siete etapas, <pin lang="es">525</pin>
+2. la continuidad de la existencia,
+3. la perpetuación de la especie o reproducción en cualquiera de los otros planos.
+
+Sería interesante observar aquí que este centro constituye literalmente una cuádruple irradiación y la “Cruz del Espíritu Santo”, siendo su símbolo la cruz de brazos iguales. Este loto de cuatro pétalos es el resultado de la evolución. En el primer reino de la naturaleza, el mineral, a través del cual se manifiesta una entidad específica, dicho centro constituye una unidad en niveles etéricos, pues sólo puede verse un pétalo. En el reino vegetal, considerado como la expresión de una gran Existencia, dos pétalos están entrando en actividad. En el tercer reino, el animal, se hallará que el centro de la base de la columna vertebral tiene tres pétalos, mientras que en el hombre el loto vibra en forma cuádruple. En cada iniciación del gran Ser, que se manifiesta por intermedio de nuestro planeta, uno de esos pétalos se abre en los niveles etéricos, de manera que durante la individualización los cuatro se hacen activos y Su actividad autoconsciente es llevada al plano físico. La analogía puede verse ejemplificada en Su gran Iniciación, que tuvo lugar en la cuarta ronda y en la tercera raza raíz; la analogía entre el tercer reino y el cuarto y su producto, el siete esotérico, es una de las líneas de estudio que ha de seguir el ocultista.
+
+Cuando los pétalos de los centros etéricos vibran o se produce una unificación en sustancia dévica, tiene lugar una aceleración en los niveles afines del cuerpo etérico cósmico del Logos planetario y del Logos solar. Se evidencian ciertas analogías en los pétalos del loto egoico de los diferentes entes de la familia humana y (en niveles cósmicos) en los cuerpos egoicos solar y planetario. Debe tenerse en cuenta también que dichos centros básicos, en los cuales se oculta el <pin lang="en">648</pin> fuego kundalínico, se encuentran en las Existencias a medida que actúan en cuerpos físicos en:
+
+1. Un Logos solar.
+2. Un Logos planetario.
+3. Esas Entidades que son la suma total de la conciencia cuando ésta se expresa a través de los diferentes reinos de la naturaleza -manifestándose por intermedio de ellas como un hombre se manifiesta mediante su cuerpo.
+4. El Señor de una cadena.
+5. El Señor de un globo.
+6. Ciertos Seres que constituyen la vida de grupos específicos. Son esotéricos, y Su función es uno de los secretos de la iniciación.
+7. El Hombre.
+8. Los animales.
+
+<p><pin lang="es">526</pin> Aquí, debe observarse que, en la manifestación logoica, uno de los esquemas planetarios forma el centro del cuerpo logoico que alberga al kundalini. Este esquema, cuyo nombre no puede ser revelado todavía, está totalmente controlado por los devas -allí se encuentran reunidos los dos grupos de devas, desempeñan su función de animar al cuerpo físico denso del Logos del mismo modo que el kundalini, en esta etapa, anima en el hombre a su vehículo físico denso. Más tarde, cuando el tercer esquema principal asimile la actividad vital de los cuatro inferiores, el fuego kundalínico se retirará y se transmutará en la actividad del centro laríngeo logoico.</p>
+
+En la manifestación planetaria, una de las cadenas realiza un trabajo similar en el proceso evolutivo del Logos planetario. Lo mismo puede decirse de uno de los globos de una cadena. Por lo tanto, en esta cuarta ronda puede verse por qué el fuego en la base de la columna vertebral (considerado en su significado esotérico y en relación con el Logos y los Logos, y no sólo con el hombre) desempeña una parte muy predominante al estimular <pin lang="en">649</pin> el Cuaternario logoico o Su yo inferior. Aquí reside el misterio del mal, el origen del actual sufrimiento y la base de la experiencia planetaria. El fuego kundalini en el cuerpo logoico realiza su actividad culminante cuando estimula Su cuerpo físico -nuestros tres planos inferiores del sistema y los cuatro pétalos de ese centro particular están entrando en plena actividad en esta cuarta ronda, Se ha de recordar que El constituye la suma total de todos los centros en manifestación y el conglomerado de los fuegos del kundalini en cada sector de la naturaleza. Las dificultades y al mismo tiempo la esperanza de nuestro planeta reside en este hecho. El centro etérico de nuestro Logos planetario por estar constituido de materia del cuarto éter cósmico (el plano búdico) estimula en la actualidad a Su cuaternario inferior, los tres mundos del esfuerzo humano; allí se halla la dirección que sigue la fuerza y en la próxima ronda (cuando las tres quintas parte del reino humano esté desarrollando el vehículo búdico) el Logos alcanzará Su punto de equilibrio y el fuego kundalínico será dirigido hacia arriba.
+
+Esto encierra la clave de muchas cosas. Otra clave que explica las penosas condiciones imperantes en el mundo (especialmente en el aspecto sexual) reside en el hecho de que los entes de la familia humana que contribuyen a constituir este particular centro, frecuentemente se hipervitalizan; la vitalidad del vehículo físico les indica la línea de menor resistencia. En otras palabras: Las fuerzas dévicas que forman el centro y también su actividad, por ahora dominan excesivamente, y el poder que adquirieron en el <pin lang="es">527</pin> sistema solar anterior no ha sido transmutado todavía en poder espiritual.
+
+En lo que antecede han sido considerados algunos de los devas de los éteres, pero, lógicamente, no se mencionaron a muchos otros. Se evidenciará la vastedad del tema si se recuerda que, cuando nos ocupamos de los devas, tratamos <pin lang="en">650</pin> con aquello que constituye la sustancia básica de la manifestación o Espíritu-materia, el aspecto madre o negativo de la dualidad divina y la suma total de todo lo que existe. Estamos tratando con la forma tangible, empleando la palabra “tangible” como aquello que puede ser captado por la conciencia en cualquiera de sus muchos estados. Debemos comprenden la total imposibilidad de catalogar las formas y aspectos de la sustancia dévica o de clasificar los millares de grupos y tipos. Estos tres grupos se hallarán en todos los planos y constituyen los receptores de fuerza. Una analogía similar existe entre estos tres grupos de devas, en el plano físico del sistema, y sus analogías en el plano físico cósmico. Brevemente indicaré que existen:
+
+|         |                                                |                       |
+| ------- | ---------------------------------------------- | --------------------- |
+| Grupo A | El plano de Adi (Atómico del sistema)          | Evolución divina.     |
+| Grupo B | Los tres mundos de la Tríada (Etérico logoico) | Evolución espiritual. |
+| Grupo C | Los tres mundos (Físico denso logoico)         | Evolución humana.     |
+
+Aquí hay muchas cosas de interés para el estudiante, pues esclarece la analogía entre la evolución de la sustancia y la evolución del espíritu.
+
+Respecto a los devas del Grupo B, poco más puede agregarse. Sólo es conveniente hacer algunas generalizaciones.
+
+Esto devas, especialmente los del cuarto éter, están tan estrechamente vinculados al hombre, que uno de los desarrollos más inmediatos consistirá en llegar a conocer su existencia y el consiguiente y gradual dominio de los mismos. Este dominio se producirá por varios motivos, pero sólo será total cuando el hombre pueda actuar en el cuarto éter cósmico, el plano búdico. Una de las cosas que la Jerarquía trata de realizar en esta etapa es demorar el despertar de la humanidad a esta comprensión pues ese acontecimiento necesitará <pin lang="en">651</pin> grandes reajustes y, al principio, podrá producir aparentemente muchos efectos maléficos. El desarrollo del ojo físico se lleva a cabo de acuerdo a la Ley, e inevitablemente toda la raza humana logrará ese doble enfoque que permitirá al hombre ver las formas densas y las etéricas. En la etapa actual su incapacidad para hacerlo reside mayormente en la falta de vitalidad pránica. Tal resultado se debe principalmente a las malas condiciones de vida y al abuso de los alimentos. La tendencia general que existe por lograr condiciones de vida correctas y puras, <pin lang="es">528</pin> el retorno a las costumbres más simples y sanas, la gran necesidad de higienizarse, de aire puro, de luz solar y el gran deseo por ingerir alimentos de frutos oleaginosos, darán por resultado, inevitablemente, una rápida asimilación de los fluidos pránicos. Esto producirá ciertos cambios y mejoras en los órganos físicos y en la vitalidad del cuerpo etérico.
+
+Por lo tanto, a los que percibimos algo del Plan se nos insta a difundir el conocimiento de la Religión de la Sabiduría y, sobre todo, a romper con los preconcebidos dogmas de la preguerra. Debemos hacer notar aquí que la guerra fue un gran acontecimiento oculto y produjo un cambio vital en la mayoría de los planes y arreglos de la Jerarquía. Ha sido necesario hacer modificaciones y algunos sucesos tendrán que ser demorados mientras otros serán acelerados. Donde la guerra produjo sus más vastos efectos fue entre los devas de las sombras y, principalmente, entre los del cuarto orden. La trama etérica que protegía a ciertos grupos en los reinos humano y animal ha sido rasgada en varios lugares y los resultados de ese desastre deben ser contrarrestados. Otro efecto producido sobre los devas, como resultado de la guerra, puede verse entre los del Grupo A, que son (en un sentido oculto) los átomos físicos permanentes de todos los seres autoconscientes. La cuarta espirilla ha sido enormemente estimulada y su evolución se ha acelerado <pin lang="en">652</pin> en grado extraordinario, en tal forma, que en algunos de los hombres menos evolucionados, debido a la tensión del peligro y de la experiencia, les fue estimulada hasta más allá de lo que le corresponde a la humanidad común. Mediante el estímulo de la cuarta espirilla en las unidades de la cuarta Jerarquía creadora en esta cuarta ronda, en el cuarto globo y en este cuarto esquema, se ha efectuado un enorme impulso progresivo en el sendero evolutivo, lográndose uno de los grandes objetivos de la guerra. Un estímulo aún más tremendo se dio en la cuarta raza raíz durante la guerra de ese periodo, y el resultado fue que entraron en el Sendero de Iniciación muchos que ni siquiera normalmente ahora lo hubieran hollado. Un efecto similar puede esperarse en la actualidad; la Jerarquía se está preparando para hacerse cargo de muchas cosas de naturaleza extraplanetaria, debido a la casi inmediata disponibilidad de un número comparativamente grande de hijos de los hombres. No debe olvidarse que el estímulo de las espirillas afecta al aspecto materia o sustancia dévica. El hombre es literalmente sustancia dévica y un Dios, siendo de esta manera un verdadero reflejo del Logos solar. [^31] [^32] <pin lang="es">529</pin>
+
+#### Grupo A. Agníchaittas
 
 
 
@@ -1097,3 +1145,78 @@ Estas condiciones pueden observarse durante el proceso en que el hombre recibe l
 [^29]: D.S. II 621 
 
 [^30]: El Sendero de la Izquierda es el que recorre el Mago Negro y los Hermanos de las Sombras. Comienza por emplear las fuerzas de la naturaleza para fines egoístas; se caracteriza por el intenso egoísmo y separatividad, y termina en Avitchi, la octava esfera, el hogar de las almas perdidas, o esos cascarones del hombre inferior que se han separado de su principio vital, egoico o individual.
+
+[^31]: "De esta manera Dios mora en todo,
+    Desde los principios ínfimos de la vida, hasta llegar finalmente
+    Al hombre - la consumación de este esquema
+    Del ser, la completación de esta esfera
+    De vida: cuyos atributos
+    Han sido dispersados por el mundo visible, antes de
+    Pedir ser integrados, tenues fragmentos destinados a
+    Unirse en un todo maravilloso,
+    Cualidades imperfectas de la creación,
+    Que sugieren a una increada criatura,
+    Algún punto donde esos rayos dispersos deberían unirse
+    Convergiendo en las facultades del hombre...
+
+    Cuando toda la raza sea perfecta como lo es
+    El hombre; todo lo que atañe a la humanidad,
+    Y lo que el hombre ha producido, todo , hasta ahora, tiene su fin:
+    Pero en el hombre integrado comienza de nuevo
+    La tendencia hacia Dios. Los profetas pronosticaron
+    El acercamiento del hombre; así surge en el yo del hombre
+    Augustas anticipaciones, símbolos, figuras
+    De un tenue espledor aparecen ante él
+    En ese eterno círculo que la vida persigue.
+    Pues los hombres comienzan a pasar los límites de su naturaleza,
+    Y encuentran nuevas esperanzas y cuidados que rápidamente suplantan
+
+    Sus propias alegrías y penas; crecen demasiado grandes
+    Para los estrechos credos del mal y del bien que se desvanecen
+    Se eleva dentro de ellos cada vez más.
+    Tales hombres ya están sobre la tierra,
+    Serenos entre la ronda de criaturas semiformadas."
+
+    Paracelso, por Robert Browning.
+
+[^32]:
+    1. El hombre es un animal, más un Dios viviente, dentro de su cascarón físico. D.S. III,90,265
+       1. El Hombre constituye el Macrocosmos para el animal, por lo tanto, cotiene todo lo que se entiende por el término animal. D. S. III, 173,180.
+       2. La divina conciencia es recibida del Dios viviente. D. S. III, 106
+       3. El animal constituye la base y el contraste de lo divino. D. S. III, 103.
+       4. La luz del Logos se despierta en el hombre animal. D. S. III, 55.
+    2. El hombre es el Tabernáculo, el vehículo únicamente para su Dios. D. S. I, 235, 275; III, 293; V,73. Compárese D. S. III, 168-169. Léase Proverbios VIII. Estúdiese la descripción bíblica del Tabernáculo:
+       1. El atrio externo, el lugar de purificación y sacrificio del animal.
+       2. El Santo lugar, el lugar de consagración y servicio.
+       3. El Sancto Sanctorum.
+       
+       El primero corresponde a la vida de la personalidad
+       El segundo al del Ego o Yo superior.
+       El último al de la Mónada o Yo divino
+
+    3. El hombre contiene en sí mismo todos los elementos que se encuentran en el universo. D. s. II, 263; V, 214.
+       1. Todo en la naturaleza tiende a convertirse en Hombre. D. S. III, 173.
+       2. Todos los impulsos de la fuerza dual, centrípeta y centrífuga, están dirigidos hacia un punto -el Hombre. D. S. VI, 243.
+       3. El hombre es el depósito... reúne en sí mismo todas las formas. D. S. III, 281
+       4. La potencialidad de cada órgano útil para la vida animal está encerrada en el Hombre. D. S. VI. 243.
+    4. El hombre tiende a convertirse en un Dios y luego en Dios, como todo átomo en el universo. D. S. I, 193.
+       
+       Compárese el átomo y el microcosmos, el hombre. D. S. I, 184.
+       
+       Cada átomo tiene siete planos del ser. D. S. I, 211. Compárese I, 207.
+      
+         1. Cada átomo contiene el germen del cual puede surgir el árbol del conocimiento. (Del bien y del mal, siendo por lo tanto la discriminación consciente.) D. S. IV, 154.
+         2. Es la evolución espiritual del hombre interno inmortal que constituye el principio fundamental de las ciencias ocultas. D. S. II, 325.
+         3. Átomos y almas son términos sinónimos en el lenguaje de los iniciados. D. S. II, 264-265.
+    5. Seres humanos... esas Inteligencias que han alcanzado el equilibrio apropiado entre el Espíritu y materia. D. S. I, 149-150.
+       
+       Léase cuidadosamente también: D. S. I, 263; II, 120-121.
+
+         1. En el arco desdendente el espíritu se hace materialista. D.S. II, 326; III, 183.
+         2. En la vuelta intermedia de la base, ambas se unen en el hombre. D. S. I, 218, 266-267.
+         3. En el arco ascendente el Espíritu se afirma a expensas de la materia.
+         4. Esto es verdad respecto a los Dioses y a los hombres. D. S. III, 92-93.
+         5. Por consiguiente el hombre es un compuesto de Espíritu y materia. D. S. III, 55.
+         6. En el hombre, la inteligencia vincula a ambos. D. S. III, 105-106
+
+    Véase llamada D. S. III, 129. Compárese D. S. II, 362
