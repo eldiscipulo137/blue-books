@@ -990,10 +990,96 @@ Por lo tanto, a los que percibimos algo del Plan se nos insta a difundir el cono
 
 #### Grupo A. Agníchaittas
 
+<p><pin lang="en">653</pin> Grupo A. Agníchaittas, Hemos visto que, en todos los planos, los grupos de devas pueden dividirse en tres <pin lang="en">654</pin> grupos principales, aunque usualmente se estudia la capacidad dual de unidades de <pin lang="es">530</pin> fuerzas involutiva y evolutiva. Hablando en general, estos grupos pueden ser considerados como:
+</p>
 
+1. Representando al aspecto positivo o fenómenos eléctricos positivos.
+2. Representando al aspecto negativo.
+3. Constituyendo -en tiempo y espacio- la unión de los dos <pin lang="es">531</pin> aspectos y, durante la evolución, manifestando el tercer tipo de fenómeno eléctrico.
 
+Puede hacerse otra agrupación de esta triplicidad que los alineará en el orden de manifestación tal como ha sido expuesto en Ia antigua cosmogonía, seguida al enumerar los grupos de los Agnichaitas.
 
+Grupo A. Corresponde a las manifestaciones de la existencia como se observan en el plano superior, ese aspecto comprendido por el término Agni.
 
+Grupo B. Corresponde al aspecto Vishnu-Surya.
+
+Grupo C. Corresponde al aspecto Brahma o Logos creador.
+
+La recapitulación fue hecha de esta manera, porque el concepto debe estar claramente definido.
+
+Ya hemos considerado a los dos grupos inferiores de devas. Ahora debemos tratar el Grupo A, el más importante del plano físico desde el punto de vista de la creación y de la objetividad, pues constituye la vida de la materia misma y la inteligencia que anima a las formas de todo lo que existe en el plano físico <pin lang="en">655</pin> del sistema, no constituyendo una inteligencia autoconsciente, sino la conciencia tal como la comprende el ocultista.
+
+Cada uno de los subplanos atómicos en el sistema solar está estrechamente interrelacionado con los demás; los siete subplanos atómicos de todos los planos forman una unidad y son esencialmente el plano físico cósmico, tal como se comprende esotéricamente el término. Los subplanos de los cuales este grupo es su fuente de origen, tiene con ellos la misma relación que el sexto principio con el séptimo. Por lo tanto, los devas del Grupo A son la fuerza creadora concentrada de los subplanos, el origen del aspecto objetivo de la manifestación física y la fuente de los siete Alientos del Logos creador en el plano físico. Pero debe recordarse que, en cada esquema, el impulso o voluntad creadora lo constituye el Logos planetario del esquema, quien crea Su cuerpo físico de manifestación de acuerdo a la Ley (su planeta físico denso), así como el hombre -regido por la misma ley- crea su cuerpo físico, o como el Logos solar (en el otro extremo de la escala) crea Su cuerpo, un sistema solar.
+
+Esto ejerce una influencia definida y esotérica sobre el tema en discusión, y las diferencias esenciales, que existen entre los Hombres celestiales que tratan de manifestarse, se apreciarán en Sus esquemas y, por lo tanto, en los distintos tipos de devas por medio de los cuales actúan y con cuya esencia está hecha Su forma.
+
+Esto podría expresarse de la siguiente manera: Así como cada hombre tiene un cuerpo que, por su forma y características <pin lang="es">532</pin> principales, se parece a otros cuerpos, aunque su calidad y rasgos distintivos personales sean únicos, del mismo modo cada uno de los Hombres celestiales construye un cuerpo de sustancia dévica o Espíritu-materia de la misma naturaleza que el de Sus hermanos y, sin embargo, distinto, matizado por Su peculiar colorido, vibrando a su ritmo particular y demostrando Su propia y singular cualidad. Esto se produce por medio de un tipo peculiar de esencia <pin lang="en">656</pin> dévica que Él elige, o (explicándolo en palabras quizás más ocultas) involucra la respuesta de ciertos grupos peculiares de devas con Su propia nota. Contienen en sí mismos exactamente las partes componentes que Él necesita para construir Su cuerpo o esquema. Por lo tanto, se reconocerá que los devas del Grupo A, siendo lo que podríamos llamar los devas-clave, son de primordial importancia y, desde nuestro punto de vista actual, deben permanecer abstractos y esotéricos. Si esto lo consideramos de acuerdo a la Ley de Analogía y estudiamos la naturaleza esencialmente esotérica del plano del Logos (el primer plano llamado Adi) se evidenciará la razón de ello. Si los hombres evolucionados reconocieran o tan sólo establecieran contacto con los devas del Grupo A, el estudio de su naturaleza, coloración y tono revelaría a la humanidad desprevenida el color y el tono de nuestro particular Logos planetario. La raza no está todavía preparada para este conocimiento. Revelaría también, estudiando la Ley de Acción y Reacción, cuáles de los Egos encarnantes pertenecen al rayo de este Logos; las deducciones resultantes podrían conducir a los hombres a zonas peligrosas y pondrían el poder en manos de quienes no están aún preparados para manejarlo con inteligencia.
+
+En consecuencia, el Grupo A de Agnichaitas debe permanecer siendo totalmente esotérico, y su verdadera naturaleza puede ser revelada sólo al Adepto de la gran Ley.
+
+Es por eso que sólo se permite dar muy pocas indicaciones, las que tratan simplemente de las relaciones del hombre con dichas entidades; éste se vincula principalmente con ellas porque su átomo físico permanente está directamente energetizado por las mismas, pues él es parte de su naturaleza y ocupa un lugar en su forma. Será evidente, para cualquier estudiante que, si los átomos permanentes del hombre se hallan dentro de la periferia causal, los devas de los tres mundos, en los subplanos atómicos, han de trabajar en la más estrecha colaboración, debiendo existir unidad de propósito y de plan.
+
+Los devas de los niveles atómicos de todos los planos de nuestro esquema trabajan en estrecha asociación: <pin lang="en">657</pin>
+
+1. Entre si, formando de este modo, siete grupos, suma total del aspecto Brahma de nuestro sistema planetario. <pin lang="es">533</pin>
+2. Con los Siete grupos que constituyen la materia atómica del esquema, nuestro polo opuesto.
+3. Con el grupo particular de ese esquema que Constituye uno de los vértices del triángulo del sistema del cual nuestro esquema, conjuntamente con el opuesto, constituyen los otros dos vértices.
+4. Con los correspondientes grupos, en menor grado, en todos los esquemas del sistema.
+5. Con el esquema que corresponde al primer aspecto o plano de Adi.
+6. Con esos devas que forman la sustancia-espíritu de la manifestación de ese Rishi particular de la Osa Mayor, prototipo de nuestro particular Logos planetario.
+7. Con los devas que forman la sustancia de una de esas existencias esotéricas a las cuales se refiere La Doctrina Secreta [^33] como “Las esposas de los siete Rishis” o las siete hermanas, las Pléyades. Una de estas siete hermanas tiene una estrecha relación con nuestro Hombre celestial y, por lo tanto, tenemos la interesante interacción cósmica siguiente:
+   1. Uno de los siete Rishis de la Osa Mayor.
+   2. Una de las siete Hermanas, una Pléyade.
+   3. El Hombre celestial de nuestro esquema.
+
+Dicha interacción será triple y, en lo que a nosotros concierne, justamente ahora involucrará la transmisión de la fuerza vital que circula en la sustancia dévica a través de la materia atómica de nuestros planos. Esto afectará materialmente a algunos seres humanos más que a otros, de acuerdo a su rayo y naturaleza, y este efecto se demostrará en <pin lang="en">658</pin> la vivificación de las espirillas de los átomos permanentes y de los centros.
+
+#### Agnisuryas - Devas del Plano Astral.
+
+Iniciamos aquí el estudio de esos grupos de devas que constituyen la sustancia del plano astral, los Agnisuryas. Podrían considerarse de la siguiente manera y, empleando términos sinónimos, obtenerse una idea general de su función antes de iniciar su diferenciación en grupos y estudiar su relación con:
+
+1. Las diversas entidades, el alma de los diversos reinos o grupos, como ser los reinos animal y humano y esos superiores al hombre en la escala de la conciencia -el Logos planetario. <pin lang="es">534</pin>
+2. El hombre mismo.
+3. El plano en su totalidad.
+
+Debemos considerar a estos devas:
+
+Primero, como sustancia del plano astral en sus siete grados.
+
+Segundo, como ese aspecto de la manifestación logoica que corresponde al subplano líquido en el plano físico del sistema.
+
+Tercero, como el vehículo del Señor deva Varuna.
+
+Cuarto, como las vidas animadoras de esa materia involutiva del plano astral que llamamos esencia elemental y como la vitalidad que energetiza a los elementales del deseo que existe en todo lo sensible. Considerados bajo este aspecto, especialmente en relación con el hombre, constituyen la analogía en el plano astral de los “devas de las sombras”, pues el cuerpo de deseo de todos los seres humanos está compuesto de materia del segundo, tercero y cuarto subplanos del plano astral. Esto es algo que debe ser cuidadosamente considerado y será iluminador establecer la analogía entre el cuerpo etérico o el vehículo de prana, que vitaliza al físico denso y <pin lang="en">659</pin> el cuerpo astral del hombre, además del método que se emplea para vitalizarlo.
+
+Quinto, desde el punto de vista del plano físico, como suma total de la actividad material (aunque subjetiva) que produce lo tangible y lo objetivo. Así como el sistema solar es un “Hijo de la necesidad” o del deseo, así el cuerpo físico de todo lo que existe es el producto del deseo de una entidad superior o interior, dentro del sistema.
+
+Sería oportuno señalar aquí las líneas a través de las cuales la energía -ya sea manásica, pránica o astral- penetra en el sistema y llega hasta un plano determinado, encontrando así su camino hacia todas las unidades de conciencia, desde un átomo hasta un Logos solar.
+
+El plano físico denso está energetizado por medio de
+
+1. el cuerpo etérico planetario,
+2. el plano mental, o el subplano gaseoso cósmico,
+3. el plano átmico, o el tercer éter cósmico
+4. el plano adi o el primer éter cósmico.
+
+y, como consecuencia (por medio del átomo permanente logoico), penetra una afluencia similar de fuerza desde los niveles cósmicos.
+
+El plano astral es energetizado por medio de
+
+1. el plano búdico, el cuarto éter cósmico,
+2. el plano monádico, el segundo éter cósmico,
+3. el plano astral cósmico, llegando así al Corazón de todo Ser. <pin lang="es">535</pin>
+
+El plano mental es energetizado por medio de
+
+1. el plano átmico, el tercer éter cósmico,
+2. el plano adi, el primer éter cósmico,
+3. el plano mental cósmico, siendo innecesario para nosotros ir más allá de éste.
+
+El estudiante cuidadoso observará que dichos planos podrían ser considerados, en lo que respecta a los tres mundos <pin lang="en">660</pin> como que manifiestan dos tipos de fuerza, primero, una fuerza que tiende a la diferenciación tal como en el plano mental (el plano de la inherente separación); y en el plano físico (el plano de la verdadera separación); segundo, una fuerza que tiende hacia la unidad, como acontece en el plano astral y en el plano de la fundamental armonía, el búdico. Debe recordarse que estamos considerando a la fuerza cuando afluye a través de, o compenetra a, la sustancia dévica. Una sugerencia de la verdad reside en el hecho de que, en la actualidad, el cuerpo astral del hombre es positivo en lo que respecta al plano físico, negativo en lo que concierne al mental y positivo respecto al plano búdico. A medida que la evolución continúa el cuerpo astral llegará a transformarse en positivo respecto al mental, demostrando así que es invulnerable a las influencias de las corrientes mentales y a los procesos separatistas de dicho plano; negativo respecto al plano búdico o receptivo a las fuerzas de ese plano. Cuando se haya logrado el equilibrio y las fuerzas estén equitativamente balanceadas, el cuerpo astral ha de convertirse en transmisor desde el plano búdico o el cuarto éter cósmico, por intermedio del gaseoso, hasta el físico denso. Este concepto debe estudiarse en conexión con la consumación por medio del fuego de la trama etérica del planeta, así podrá obtenerse el esclarecimiento. En el plano astral no existe textualmente una división tal como la encontramos en los planos mental o físico. Ambos se dividen en dos; el mental se dividió en superior e inferior, rupa y arupa, concreto y abstracto, y el físico en niveles etéricos y subplanos densos.
+
+Por consiguiente existe una analogía entre ambos. La razón de que exista una aparente división (considerando aparte la cuestión de los estados de conciencia del ser humano) se debe a la etapa de desarrollo de los grandes devas que personifican y animan al plano, quienes se manifiestan a través de éste como un hombre se manifiesta por medio de su cuerpo. Varuna, el Señor del plano astral, ha realizado un control consciente más unificado que Sus hermanos de <pin lang="en">661</pin> los planos mental y físico. Viene a la manifestación vinculado a uno de los Hombres celestiales, el Señor de un Rayo mayor. Los otros dos están vinculados con los Señores de un Rayo menor. Esta información encierra un indicio sugestivo para los estudiantes podríamos justificadamente preguntar ¿si esto es así, <pin lang="es">536</pin> por qué aparentemente se manifiesta en forma tan desastrosa con respecto al hombre? Hay varias razones que lo justifican, una de ellas se funda en que la fuerza que fluye a través del vehículo del gran deva, el plano, es más fuerte que en los otros dos casos debido a Su etapa más avanzada de desarrollo, y también a que el Logos Mismo está polarizado en Su cuerpo astral. La otra razón consiste en que tiene un vínculo particular con el Regente del reino animal y, como el ser humano no se ha disociado de su naturaleza animal ni ha aprendido a controlarla, también está influenciado por esta tremenda fuerza. Hay otras razones ocultas en el karma de nuestro Hombre celestial, pero bastan las mencionadas.
 
 
 
@@ -1220,3 +1306,5 @@ Por lo tanto, a los que percibimos algo del Plan se nos insta a difundir el cono
          6. En el hombre, la inteligencia vincula a ambos. D. S. III, 105-106
 
     Véase llamada D. S. III, 129. Compárese D. S. II, 362
+
+[^33]: D. S. IV, 116-119
