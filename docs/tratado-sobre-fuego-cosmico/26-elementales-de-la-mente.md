@@ -1081,6 +1081,112 @@ El estudiante cuidadoso observará que dichos planos podrían ser considerados, 
 
 Por consiguiente existe una analogía entre ambos. La razón de que exista una aparente división (considerando aparte la cuestión de los estados de conciencia del ser humano) se debe a la etapa de desarrollo de los grandes devas que personifican y animan al plano, quienes se manifiestan a través de éste como un hombre se manifiesta por medio de su cuerpo. Varuna, el Señor del plano astral, ha realizado un control consciente más unificado que Sus hermanos de <pin lang="en">661</pin> los planos mental y físico. Viene a la manifestación vinculado a uno de los Hombres celestiales, el Señor de un Rayo mayor. Los otros dos están vinculados con los Señores de un Rayo menor. Esta información encierra un indicio sugestivo para los estudiantes podríamos justificadamente preguntar ¿si esto es así, <pin lang="es">536</pin> por qué aparentemente se manifiesta en forma tan desastrosa con respecto al hombre? Hay varias razones que lo justifican, una de ellas se funda en que la fuerza que fluye a través del vehículo del gran deva, el plano, es más fuerte que en los otros dos casos debido a Su etapa más avanzada de desarrollo, y también a que el Logos Mismo está polarizado en Su cuerpo astral. La otra razón consiste en que tiene un vínculo particular con el Regente del reino animal y, como el ser humano no se ha disociado de su naturaleza animal ni ha aprendido a controlarla, también está influenciado por esta tremenda fuerza. Hay otras razones ocultas en el karma de nuestro Hombre celestial, pero bastan las mencionadas.
 
+#### Las funciones de los Agnisuryas.
+
+1. Las funciones de los Agnisuryas. Los devas del plano astral están especialmente vinculados al hombre en la actualidad debido a la polarización astral y al papel que desempeña el deseo y el sentimiento en su evolución. La conciencia se expande por medio del contacto, por la apreciación inteligente de aquello con lo que se hace contacto y por la comprensión de lo que ha de conseguirse por medio de un contacto específico. Aquello con lo que ha de hacerse contacto depende de la vibración recíproca y, en consecuencia, el deseo (la búsqueda de sensaciones) y el sentimiento (el reflejo de ese deseo) es de real importancia, poniendo constantemente al hombre en contacto -aunque él no se dé cuenta- con la sustancia dévica de cualquier tipo. Aunque el hombre haya alcanzado una etapa evolutiva relativamente elevada, la expresión de esa etapa de realización se observa en el tipo de no-yo con el cual hace contacto; únicamente cuando es un iniciado <pin lang="en">662</pin> comienza a acercarse y a conocer el significado de la unidad esencial que reside en el corazón del Ser y a comprender la unidad del Alma Universal y la Unidad de esa Vida subjetiva que se oculta detrás de cada forma. Debe recordarse que el aspecto materia se encuentra en todos los planos; sin embargo, las formas existirán hasta trascender el “círculo no se pasa” solar y evadir el Logos Su actual limitación. Por eso los devas del plano astral asumen un lugar muy importante en los tres mundos.
+
+Anteriormente, los hemos considerado en un aspecto quíntuple, dividiéndolos en cinco grupos. A esta altura del estudio, nos limitaremos a considerar la relación que existe entre los entes autoconscientes tales como el Hombre y el Logos planetario y dicha sustancia dévica. Existe una gran diferencia entre el hombre y su prototipo, un Hombre celestial.
+
+El plano astral desempeña una parte muy real en la evolución del hombre, teniendo una estrecha relación con uno de sus principios. Materia y vibración astral son uno de los factores que controlan la vida de la mayoría de la gente. Para el Hombre celestial <pin lang="es">537</pin> la materia astral corresponde a la parte líquida del cuerpo físico del hombre, por lo tanto no constituye para Él un principio.
+
+El plano astral es para el hombre el principal campo de batalla y la zona más intensa de su campo de sensación -la sensación mental esotéricamente comprendida, es por ahora sólo una posibilidad. El cuerpo astral es el lugar de la vibración más violenta del hombre y las vibraciones constituyen la causa poderosa de su actividad en el plano físico. El hombre debería comprender en la actualidad, que los devas del plano astral controlan casi totalmente lo que hace y dice, y que la meta de su evolución, la meta inmediata, consiste en liberarse de su control a fin de que él, el verdadero Ego o Pensador, pueda convertirse en una influencia predominante. Para ser más explícitos y a fin de ilustrar esto diré que las pequeñas vidas elementales que forman el cuerpo emocional y la vida <pin lang="en">663</pin> positiva de cualquier deva evolutivo vinculado (debido a vibraciones similares) a un hombre determinado le proporciona un cuerpo astral de poder coherente y positivo, que todavía controla prácticamente a la mayoría. El hombre generalmente hace lo que sus deseos e instintos le sugieren. Si este deva evolutivo es de orden elevado (como en el caso de un hombre altamente desarrollado) la vibración será elevada y los deseos e instintos, en consecuencia, buenos y exotéricamente correctos. Sin embargo, si el hombre se deja controlar por ellos, es porque permanece bajo la influencia dévica y debe liberarse. Si la vida dévica es de orden inferior, el hombre demostrará instintos bajos y viciosos y deseos viles.
+
+Si estas observaciones son correctamente interpretadas se comprenderá algo de lo que se quiere significar cuando se habla de la evolución dévica como “evolución paralela” a la del hombre. En los tres mundos las dos líneas de evolución son paralelas, pero conscientemente no deben ser una sola. En los planos de la Triada se las conoce como unidad que produce al divino Hermafrodita u Hombre celestial -los entes humanos autoconscientes personifican los tres aspectos de la divinidad, mientras que las unidades dévicas conscientes personifican los atributos divinos. Ambos, fusionados, forman el cuerpo de manifestación los centros y la sustancia del Hombre celestial. Grande es el misterio, y mientras el hombre no conozca su lugar dentro del todo consciente, debe reservar su opinión en cuanto a su significado Por lo tanto será evidente que en vista de la relación existente entre el plano astral, y su trabajo unificado, y el plano búdico, con la consciente armonía que allí se experimenta, el cuerpo astral del hombre clama por un estudio y comprensión más estrechos. Por su intermedio se hallará un vínculo con el plano búdico y se producirá una actividad armoniosa <pin lang="es">538</pin> en el plano físico. Respecto a esto, el estudiante de ocultismo deberá estudiar cuidadosamente: <pin lang="en">664</pin>
+
+1. El sol físico y su relación con el prana y el cuerpo etérico.
+2. El sol subjetivo y su relación con el plano astral, con el principio kama-manasico y el cuerpo astral.
+3. El sol central espiritual y su relación con el Espíritu o atma del hombre. [^34]
+4. El corazón del sol y su relación con los cuerpos mentales, inferior y superior, que producen esa manifestación peculiar denominada cuerpo causal. A este respeto se ha de recordar que la fuerza que fluye desde el corazón del sol actúa a través de un triángulo formado por el esquema venusiano, la Tierra y el Sol. Era de esperar, de acuerdo a la ley, que se formara otro triángulo involucrando a dos planetas; los triángulos varían de acuerdo al esquema implicado.
+
+Cósmicamente, existe una serie muy interesante de triángulos que será descubierta por quien estudie la astrología esotérica y los ciclos ocultos. Dichos triángulos se originan en el sol central de nuestro grupo particular de sistemas solares, cuya serie involucra a las Pléyades. Esta realidad no será conocida hasta la última década del siglo actual ni lo reconocerá la ciencia hasta el momento en que ciertas líneas de conocimiento e investigación lleven a los científicos a una comprensión de que existe un tercer tipo de electricidad que siempre equilibra y forma el ápice del triángulo, pero el momento no ha llegado todavía.
+
+Todo lo que se dice aquí está expresado en términos de grupos dévicos y fuerzas dévicas que forman (en su conjunto) una sustancia que responde a una vibración análoga. Ciertos nombres definidos lo expresan esotéricamente. Por lo tanto, es posible transmitir sin ningún peligro, información de carácter incomprensible para el profano en una frase como la siguiente: “El triángulo de ... y del Grupo... de los Agnisuryas se formó y en el girar de la Rueda se produjo el tercero.” Esto imparte a la mente del ocultista el conocimiento <pin lang="en">665</pin> de que en la afluencia de fuerza desde una constelación particular completamente foránea a nuestro sistema, por medio de un esquema planetario específico y a través del cuerpo astral del Logos planetario, se produjo cierta condición que trajo la aparición del tercer reino de la naturaleza, el sensitivo y consciente reino animal. Frases similares encierran también el significado de la relación dévica que existe con la individualización del hombre, pero no es de ningún valor revelarlas; lo anterior sólo se menciona a fin de lograr tres cosas:
+
+1. Demostrar parcialmente la naturaleza y extensión de las fuerzas que fluyen a través de nuestro sistema.<pin lang="es">539</pin>
+2. Mostrar el estrecho vínculo que tenemos con la evolución dévica.
+3. Destacar la naturaleza triangular y la interrelación de todo lo que acontece.
+
+Sería conveniente hacer resaltar un punto relacionado con los devas de los planos inferiores (con los cuales el hombre está peculiarmente vinculado). Pueden ser divididos en ciertos grupos, que indican el lugar que les corresponde en la escala de la conciencia. Quizás se pregunten por qué nos ocupamos únicamente de los grupos de devas que se encuentran en los tres mundos. Esotéricamente comprendido, dichos devas (del tipo que estamos considerando) se encuentran sólo en el cuerpo físico denso del Logos -la sustancia de los tres subplanos inferiores del físico cósmico. El Antiguo Comentario al respecto dice lo siguiente:
+
+> “Las esferas de fuego tratan de ubicarse en los tres inferiores. Se originan por medio de la quinta, sin embargo se fusionan en los planos de la yoga. Cuando las esencias ígneas compenetran todo, entonces ya no existe la quinta, la sexta ni la séptima, sino únicamente las tres que brillan por medio del cuarto.”
+
+Por lo tanto, para los propósitos de este estudio, los devas sólo se encuentran en los tres mundos. Más allá de estos tres planos, tenemos los tres aspectos de <pin lang="en">666</pin> los tres mayores que se manifiestan por intermedio del cuarto y, en consecuencia, las esferas de los Logos planetarios en el plano búdico. Sintetizan todo lo que ha ido desarrollándose por medio de la manifestación densa. Desde el punto de vista de la filosofía esotérica, el plano físico cósmico, en el cual todo nuestro sistema tiene su lugar, debe ser estudiado de dos maneras:
+
+1. Desde el punto de vista de los Hombres celestiales que abarcan las evoluciones de los cuatro planos superiores, los niveles etéricos. Sobre éstos prácticamente nada podemos saber hasta después de la iniciación, momento en que la conciencia del ser humano es transferida gradualmente a los planos etérico cósmicos.
+2. Desde el punto de vista del ser humano en los tres mundos. El hombre constituye la evolución culminante en los tres mundos, así como los Hombres celestiales la constituyen en los cuatro superiores.
+
+En los tres mundos tenemos las evoluciones paralelas, dévica y humana en su gran variedad de grados, lógicamente que la humana nos concierne más íntimamente, aunque ambas evolucionan mediante la interacción. En los cuatro mundos superiores tenemos a esta dualidad considerada como unidad, considerándose sólo el <pin lang="es">540</pin> aspecto de la evolución sintética de los Hombres celestiales. Sería de gran beneficio para nosotros si pudiéramos comprender algo del punto de vista de los grandes devas que colaboran inteligentemente en el plan evolutivo. Poseen Su propio método de expresar estas ideas, que consiste en el color que puede oírse y sonido que puede verse. El hombre invierte el proceso, ve los colores y oye los sonidos. Aquí hay un indicio sobre la necesidad de emplear símbolos porque imparten verdades e instrucciones cósmicas y pueden ser captados por los seres avanzados de ambas evoluciones. Debe tenerse en cuenta, como ya se indicó anteriormente, que: <pin lang="en">667</pin>
+
+1. El hombre manifiesta los aspectos de la divinidad. Los devas manifiestan los atributos de la divinidad.
+2. El hombre está desarrollando la visión interna y debe aprender a ver. Los devas están desarrollando el oído interno y deben aprender a oír.
+3. Ambos son todavía imperfectos y el resultado es un mundo imperfecto.
+4. El hombre evoluciona por medio del contacto y de la experiencia. Se expande. Los devas evolucionan disminuyendo el contacto. La limitación es la ley que los rige.
+5. El hombre aspira a adquirir autocontrol. Los devas se desarrollan cuando son controlados.
+6. El hombre es inherentemente Amor, Fuerza que produce coherencia. Los devas son inherentemente inteligencia, fuerza que produce actividad.
+7. El tercer tipo de fuerza, el de la Voluntad, el equilibrio balanceador de los fenómenos eléctricos, ha de actuar equitativamente en ambas evoluciones y a través de ellas, pero en una se demuestra como autoconciencia y en la otra como vibración constructiva.
+
+En el Hombre celestial estos dos grandes aspectos de la divinidad están equitativamente mezclados y durante el mahamanvantara los Dioses imperfectos se hacen perfectos. Se destacan estas diferencias amplias y generales porque arrojan luz sobre la relación entre el Hombre y los devas.
+
+Los devas del plano físico, aunque están divididos en los grupos A. B. C. corresponden al grupo de los “Devas de Séptimo Orden”. El séptimo orden está peculiarmente ligado a los devas de primer orden del primer plano. Reflejan la mente de Dios, de la cual el primer orden constituye su expresión y la manifiesta a medida que se ha ido desarrollando desde el <pin lang="en">668</pin> plano arquetípico. Dichos devas están directamente influenciados por el séptimo <pin lang="es">541</pin> Rayo, y el Logos planetario de ese Rayo trabaja en estrecha colaboración con el Señor Raja del séptimo plano. Debido a que la meta de evolución de los devas es desarrollar el oído interno, se comprenderá por qué los sonidos mántricos y las modulaciones rítmicas constituyen el método para entrar en contacto con ellos y producir los distintos fenómenos. Los trabajadores del sendero de la izquierda emplean a estos devas para practicar el vampirismo y la desvitalización de sus víctimas. Actúan sobre los cuerpos etéricos de sus enemigos y, por medio del sonido, afectan a la sustancia dévica, produciendo así los resultados deseados. El mago blanco no actúa en el plano físico con sustancia física, sino que transfiere Sus actividades a un nivel superior y de allí que manipula deseos y móviles, trabajando por intermedio de los devas de sexto orden.
+
+Los devas de sexto orden corresponden al plano astral y están muy ligados con las fuerzas que producen los fenómenos que llamamos amor, impulso sexual, instinto o anhelo, y móvil impulsor que se manifiestan luego en el plano físico como una actividad determinada. La vibración positiva, iniciada en el plano astral, produce resultados en el plano físico y es por eso que el Hermano Blanco, si acaso trabaja con los devas, lo hace sólo en el plano astral y con el aspecto positivo.
+
+Como es de esperarse, estos devas de sexto orden están estrechamente vinculados con los de segundo orden en el plano monádico y con el centro cardíaco de determinado Hombre celestial a cuyo Rayo pertenezcan. Están ligados también a las fuerzas dévicas del plano búdico; en estos tres grandes órdenes de devas tenemos un poderoso triángulo de fuerza eléctrica -los tres tipos de electricidad descritos en los libros de ocultismo. Debe tenerse en cuenta que el tipo de fuerza <pin lang="en">669</pin> equilibradora (aún desconocido en la actualidad) fluye desde el plano búdico, encontrándose allí el ápice del triángulo.
+
+<div style={{textAlign: "center"}}>
+   <div style={{backgroundColor: "white", display:"inline-block"}}>
+      <img src={require("../assets/deva-triangle.gif").default}/>
+   </div>
+</div>
+
+Estos tres órdenes son (en el actual sistema solar) los más poderosos, especialmente en la presente cuarta ronda. Influencian particularmente al cuarto reino de la naturaleza y fundamentan la búsqueda del equilibrio, a fin de lograr la armonía, la unión y el yoga, que caracterizan al hombre en todos los niveles; su manifestación inferior la constituye el instinto sexual tal como lo conocemos, y la anterior el anhelo de unirse a Dios.
+
+<p><pin lang="es">542</pin> Los devas de sexto orden están influenciados especialmente por el Señor del sexto Rayo del Idealismo Abstracto; este vínculo posibilita el desarrollo de la idea arquetípica hasta llegar al plano físico. La sexta Jerarquía creadora también está especialmente relacionada con este orden particular de devas, y a través de esta influencia dual se produce esa manifestación física definidamente objetiva -un tipo de fuerza actúa por intermedio de la manifestación etérica y otro por intermedio del físico denso.</p>
+
+Esto constituye aún un misterio insoluble para el estudiante, pero mucho podrá descubrirse en el significado que encierran los números. Este ángulo del tema debe ser estudiado a fin de desentrañar el verdadero significado de los devas de sexto orden cuyo símbolo es la Estrella de seis puntas, dispuesta en un ángulo particular y en plena manifestación. La estrella de seis puntas es el signo de que un “Hijo de la necesidad” <pin lang="en">670</pin> (ya sea un Dios o un hombre) ha deseado encarnar físicamente. Los devas de sexto orden, los Agnisuryas, constituyen el factor principal para lograrla. En la sexta ronda dichos devas comenzarán a hacer sentir su presencia en forma más poderosa, pero la fuerza de su vibración será gradualmente dirigida, hacia arriba y no hacia abajo, al plano físico. Esto involucrará la transmutación del deseo en aspiración y producirá, oportunamente, la liberación del Logos planetario poniendo fin a un manvantara o Su ciclo de encarnación física. Al retirarse la fuerza del deseo también cesa la existencia física del hombre. El Antiguo Comentario expresa esta verdad en las siguientes palabras:
+
+> “Los de sexto orden se retiran dentro de si mismos; se dirigen a los de quinto orden, dejando solos a los de séptimo orden.”
+
+Continuando el estudio sobre estos órdenes dévicos, debemos señalar que los tres órdenes inferiores -el quinto, el sexto y el séptimo- se relacionan estrechamente con la luna. Son los agentes constructores que (trabajando en la materia involutiva de los tres mundos) construyen los tres cuerpos inferiores del hombre encarnante. Constituyen una rama especial de los Pitris lunares, pero debe recordarse que funciona en nuestro esquema particular y está estrechamente ligada a nuestro Logos planetario. Grupos de tales Pitris se encuentran en todos los esquemas donde haya hombres encarnados; otros esquemas difieren algo de los nuestros, ya que el “Misterio de la Luna” está relacionado con una condición esotérica peculiar que concierne a nuestro Logos planetario.
+
+Donde el hombre se halle encarnado se encontrarán los Constructores de sus cuerpos, los cuales diferirán en:
+
+1. Grado de vibración.
+2. Etapa de desarrollo. <pin lang="es">543</pin> <pin lang="en">671</pin>
+3. Nivel de conciencia.
+4. Fuerza fohática, magnética y dinámica.
+
+Además se ha de recordar que en cada ronda cambia la sustancia o evolución dévica; ellos también evolucionan y, por lo tanto, el tema de los devas, en su aspecto dual, como sustancia negativa y positiva que produce objetividad, debe ser estudiado en forma triple si queremos llegar a tener un verdadero concepto. Por consiguiente, los devas -suma total de la sustancia- deben ser considerados desde el punto de vista de:
+
+1. La evolución de la ronda.
+2. Un Logos planetario, puesto que forma Su cuerpo de manifestación, un esquema.
+3. El reino humano.
+
+Si esto no se considera desde dichos puntos de vista se obtendrá un concepto estrecho y erróneo. En el futuro, como podrá observarse mediante el estudio de La Doctrina Secreta [^35], el Logos en Su naturaleza septenaria será visto como el Macrocosmos para el Hombre, mientras que el Microcosmos, el Hombre mismo, será visto también como el Macrocosmos para los tres reinos inferiores. Ésta es simplemente una manera de estudiar la evolución de la Entidad consciente -Dios, el Hombre o la vida inferior- por medio de la sustancia dévica; involucra el estudio de la interacción positiva y negativa. Nuevamente, como dice El Antiguo Comentario:
+
+> “Cuando el Padre se acerca a la Madre, aquello que ha de ser toma forma. La unión de ambos oculta el verdadero misterio del Ser.
+>
+> Cuando los dos grandes devas se buscan, encuentran y fusionan, se cumple la promesa de la vida.
+>
+> Cuando aquel que ve y conoce permanece entre sus progenitores, entonces puede verse la fructificación del conocimiento y se conoce todo lo que existe en los planos de la conciencia.
+>
+> Cuando se ve que Anu, el infinitesimal, contiene a Ishvara en Su poder, cuando las esferas y ciclos inferiores se expanden en el <pin lang="en">672</pin> circulo de los Cielos, entonces la Unidad esencial será conocida y plenamente manifestada.
+>
+> Cuando el Uno que contiene la vida se transforma en el tres, tras del cual se oculta esa vida; cuando el tres por rotación se convierte en el siete y el diez; cuando los trescientos mil millones de vidas dévicas repiten la rotación; cuando se llega al punto central y éste revela al tres, al nueve y a la JOYA radiante interna, entonces el circulo de manifestación se habrá consumado y el Uno se convierte nuevamente en el diez, el siete, el tres y el punto.”
+
+Aquí reside la clave del matrimonio místico; el estudio de estos pares de opuestos le revelará mucho al estudiante de ocultismo <pin lang="es">544</pin> -le revelará el proceso en tiempo y espacio, mediante el cual esta unión y su fruto son consumados, observando la creación resultante del divino Hermafrodita en Su elevado plano.
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -1308,3 +1414,7 @@ Por consiguiente existe una analogía entre ambos. La razón de que exista una a
     Véase llamada D. S. III, 129. Compárese D. S. II, 362
 
 [^33]: D. S. IV, 116-119
+
+[^34]: D. S. III, 236
+
+[^35]: D. S I, 280; III, 172 180.
