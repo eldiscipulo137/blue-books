@@ -1197,15 +1197,41 @@ Nuevamente se verá por qué los Agnisuryas son de tan suprema importancia; pers
 
 #### Resumen
 
+2. Resumen. Antes de entrar a considerar <pin lang="en">676</pin> esos devas que se ocupan de la construcción del cuerpo causal del hombre y son el grupo de enlace entre la Triada y el Cuaternario, tanto en el hombre como en el Logos, enumeraremos brevemente los grupos principales de Agnisuryas que se hallan en el plano astral del sistema, pues forman, en su totalidad, el cuerpo de manifestación del gran deva o Señor Raja del plano correspondiente.
 
+Primero. El Señor Raja, gran deva Varuna, Vida central de la sustancia del plano astral de nuestro esquema planetario, que a su vez es la avanzada de la conciencia de ese Deva mayor que personifica a la sustancia del plano astral solar, el sexto subplano <pin lang="es">547</pin> del plano físico cósmico, quien, a Su vez, refleja también a Su prototipo, esa gran Entidad cósmica que anima al plano astral cósmico.
 
+Segundo. Los siete grandes devas, fuerza positiva de cada uno de los siete subplanos del plano astral del sistema.
 
+Tercero. Varios grupos de devas, que realizan diferentes funciones, llevan a cabo diversas actividades y producen resultados constructivos. Pueden ser enumerados, teniendo presente que sólo tratamos con algunos de los muchos grupos existentes, habiendo un sinnúmero de ellos cuyo nombre es absolutamente desconocido para el hombre y, si fueran mencionados, serían ininteligibles:
 
+1. Aquellos devas que forman la sustancia atómica permanente de todas las mónadas, ya sea en encarnación física o fuera de ella. Se dividen en siete grupos de acuerdo al Rayo de la Mónada.
+2. Aquellos devas que forman el aspecto “líquido” del cuerpo físico de los Logos planetario y solar. Constituyen miríadas, e incluyen a las existencias dévicas desde las que animan al plano astral y a las corrientes astrales de naturaleza religiosa y aspiracional superior, hasta los pequeños espíritus <pin lang="en">677</pin> del agua, reflejo de dichas entidades astrales precipitadas en materia física acuosa.
+3. Un grupo de devas que constituyen el cuerpo de deseos de esa gran entidad que anima al reino animal. Son la total manifestación kámica (divorciada de la mentalidad) del deseo animal en su aspecto impulsor e incentivador.
+4. Ciertos devas que -por ser de tercer orden- constituyen el Cielo del cristiano o creyente ortodoxo común de cualquier credo. Otro grupo -de séptimo orden- constituye el infierno para el mismo tipo de pensador.
+5. Aquellos devas que constituyen la vida astral de cualquier forma mental. Nos ocuparemos de esto más adelante cuando estudiemos la construcción de formas mentales.
+6. Un misterioso grupo de devas íntimamente relacionados en la actualidad con la expresión sexual de la familia humana en el plano físico. Grupo que en esta oportunidad ha sido impulsado a la existencia, y personifica el fuego de la expresión sexual tal como lo comprendemos, impulso o instinto que se halla detrás del deseo sexual físico. Dominó en la cuarta raza raíz, época en que las condiciones sexuales alcanzaron una etapa de increíble horror desde nuestro punto de vista. A dichos devas se los va controlando gradualmente y, cuando el último lemuriano haya pasado a la quinta raza raíz, este grupo, lenta y totalmente, habrá desaparecido del sistema solar. Se halla relacionado con el “fuego” pasional del Logos solar y con uno de Sus centros en particular; dicho centro <pin lang="es">548</pin> está paulatinamente entrando en la oscuridad y su fuego será transferido a un centro más elevado
+7. Hay también un grupo de devas vinculados a la Logia de Maestros, cuyo trabajo consiste en construir las distintas formas de aspiración, que puede lograr el hombre común. Se clasifican en tres grupos, vinculados con la ciencia, la religión y la filosofía, y por intermedio de los grupos de sustancia dévica, quienes dirigen estos tres sectores llegan hasta los hombres. Constituyen uno de Sus <pin lang="en">678</pin> canales para trabajar. El Maestro Jesús se halla especialmente activo en esta línea, trabajando en la línea científica en colaboración con ciertos adeptos, que -mediante la deseada unión entre la ciencia y la religión- tratan de destruir por una parte el materialismo occidental y por otra la devoción sentimental de la mayoría de los devotos de todos los credos. Esto es posible ahora debido a que está saliendo el sexto Rayo y entrando el séptimo. Los estudiantes deben tener presente cuando estudian los planos -la sustancia y energía de los planos-, que éstos cambian continuamente pues se hallan condicionados por el flujo y el reflujo. La materia de todos los planos circula y, cíclicamente, ciertas partes están más energetizadas que otras; de este modo se halla sometida a una triple influencia o -empleando otras palabras- la sustancia dévica está sujeta a un estímulo cíclico triple:
+   1. El estimulo de rayo, depende del rayo que se halle en el poder. Es inter-sistemático y planetario.
+   2. El estímulo zodiacal, proveniente de fuera del sistema, siendo también cósmico y cíclico.
+   3. El estímulo solar, impacto de la fuerza o energía que proviene directamente del sol sobre la sustancia de un plano; emana del “corazón del Sol” y es particularmente potente.
+ Todos los planos se hallan sujetos a esta triple influencia pero, en el caso de los planos búdico y astral, la fuerza de este tercer estímulo es enorme. Los adeptos -trabajando juntos con los grandes devas- utilizan la oportunidad cíclica para lograr resultados definidamente constructivos.
+8. Un grupo de devas estrechamente conectado con los misterios de la iniciación. Constituyen lo que se llama esotéricamente el “Sendero del Corazón” y son el puente entre los planos astral y búdico. De ninguna manera están <pin lang="en">679</pin> vinculados con los átomos permanentes del cuerpo causal, pero están totalmente asociados con la hilera central de pétalos del loto egoico o con los “pétalos de amor”. Por una parte la fuerza interactúa entre los tres pétalos, y por otra sobre los devas que forman el “Sendero del Corazón” <pin lang="es">549</pin> los cuales son el puente de materia astral-búdica por el cual los iniciados de cierto tipo místico realizan el “gran acercamiento”.
+9. Devas de todo grado y capacidad vibratoria, quienes constituyen todos los tipos de deseo.
+10. Los devas de fuerza transmutadora. Constituyen un grupo peculiar de devas que personifican los “fuegos de transmutación” y tienen varios nombres, como por ejemplo:
+    1.  Las hogueras de purificación.
+    2.  Los elementos fundidores.
+    3.  Los dioses del incienso.
 
+Por ahora resulta imposible e igualmente inútil enumerar otros; se ha considerado conveniente llevar al conocimiento de los estudiantes estos innumerables tipos de sustancia dévica debido a la importancia primordial que tiene el cuerpo astral en los tres mundos. Dominando estas vidas dévicas, “transmutando el deseo” en aspiración y por medio de los fuegos purificadores del plano astral, el hombre oportunamente adquirirá conciencia búdica.
 
+:::note Recuerda
 
+Dominando estas vidas dévicas, “transmutando el deseo” en aspiración y por medio de los fuegos purificadores del plano astral, el hombre oportunamente adquirirá conciencia búdica.
 
+:::
 
+El reconocimiento del poder purificador de los fluidos ocultos -agua y sangre- ha hecho que los cristianos (aunque erróneamente interpretado) den tanta importancia a ambos
 
 [^1]: El pecado de los sin Mente. D. S.. III, 187,192. Este pecado tiene que ver con el período de la Separación de los Sexos durante la primitiva tercera raza raíz, la Lemuria. El mismo hecho histórico se insinúa en La Biblia, Génesis VI, 2, 4. "Ellos (los sexos) ya se habían separado antes de que el rayo de la razón divina iluminara la región oscura de sus mentes, hasta entonces adormecidas, y pecaran, es decir, antes de haber cometido el mal inconscientemente, produciendo un efecto antinatural." D. S. IV. 242-248
 
