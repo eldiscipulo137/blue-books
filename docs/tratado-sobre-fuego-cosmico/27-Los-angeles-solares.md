@@ -80,8 +80,81 @@ El hombre tiene que aprender a controlar, guiar y utilizar las sustancias dévic
 
 ## a. El Quinto Principio.
 
+Los Ángeles solares son los Pitris, los Agnishvattas, los grandes devas de la Mente, los constructores del cuerpo del Ego y productores de la individualización o logro de la conciencia.
 
+Algunas afirmaciones amplias y generales fueron expuestas a fin de abocarnos a esta materia estupenda y práctica, en un esfuerzo por vincular con el pasado y el futuro al actual sistema solar en su aspecto manásico fundamental.
 
+La parte que ahora abordaremos concierne al desarrollo de los divinos Manasaputras, considerados como un todo colectivo conteniendo a la Mente divina y también a la Mónada individual que responde a Su vida y forma parte del cuerpo de estos Dhyan Budas.
+
+### Considerados cósmicamente
+
+a. **Considerados cósmicamente**. Aquí tiene cabida una frase oculta. Encierra la clave del misterio de los quíntuples Dhyanes:
+
+> Los Tres superiores cíclicamente al unísono trataron de conocer y ser conocidos. Los Tres inferiores (sin contar al octavo) nada sabían ni veían, sólo oyeron y tocaron. El cuarto no tenía lugar. El Quinto (que es también el cuarto) formó en el punto medio una TAU cósmica, que fue reflejada sobre el Séptimo cósmico. <pin lang="es">557</pin>
+
+H. P. B. afirma [^9] [^10] que cuando la Mónada se individualiza tiene más conciencia espiritual que la misma en su propio plano, el segundo. Debe recordarse aquí que los Logos planetarios encarnan sólo físicamente en nuestro sistema; sus cuerpos de individualización se hallan en el planos mental cósmico, por consiguiente, les resulta imposible <pin lang="en">690</pin> expresarse plenamente durante la manifestación. Por lo tanto, durante la manifestación, el hombre es apenas capaz de expresarse a sí mismo plenamente cuando adquiere la “conciencia de los lugares elevados”. Antes de estudiar este quinto principio debemos señalar que los Manasaputras divinos, en su propio plano, deben ser considerados desde el punto de vista de la encarnación física, mientras que el hombre puede ser considerado desde lo que para él constituye un aspecto espiritual. [^11]
+
+La individualización humana o la aparición de los entes autoconscientes en el plano mental, involucra un desarrollo mayor, porque se sincroniza con la apropiación, por el Logos planetario, de un cuerpo físico denso; este cuerpo está compuesto de materia de nuestros tres planos inferiores. Cuando los centros etéricos de los Manasaputras en el cuarto plano etérico cósmico se vitalizan, producen una acrecentada actividad en el plano mental del sistema, el gaseoso cósmico, y la conciencia del Hombre celestial y Su energía vital empiezan a hacerse sentir. Simultáneamente, de acuerdo a la Ley, la fuerza mental o energía manásica afluye desde el quinto plano cósmico, el mental cósmico. Esta energía dual, al entrar en contacto con aquello que es inherente al cuerpo físico denso del Logos, produce analogías en los centros de ese plano y aparecen los grupos egoicos. Contienen fusionados en potencia los tres tipos de electricidad, constituyendo ellos mismos fenómenos eléctricos. Están compuestos de esos átomos o tipos de vidas que forman parte <pin lang="es">558</pin> de la cuarta Jerarquía <pin lang="en">691</pin> creadora, el conjunto de Mónadas puramente humanas. Similarmente, esta triple fuerza, producida por la apropiación consciente del Hombre celestial, anima a la sustancia dévica, y el cuerpo físico denso del Logos planetario se manifiesta objetivamente. Esto es lo que se quiere significar en la enunciación de que los devas se encuentran únicamente en los tres mundos. Afirmación análoga a aquella donde se expresa que la humanidad se halla sólo en los tres mundos, sin embargo, las mónadas humanas, en sus siete tipos, se encuentran en el plano del espíritu -el plano de la dualidad- así como también las mónadas dévicas.
+
+Los estudiantes deberían recordar que estos temas esotéricos pueden expresarse de doble manera:
+
+1. En términos de los tres mundos, o desde el punto de vista del cuerpo físico denso logoico.
+2. En términos de fuerza o energía, o desde el punto de vista del cuerpo logoico pránico o de vitalidad, los cuatro éteres cósmicos.
+
+Lo que comprendemos por quinto principio sólo es la expresión en el plano causal de esa fuerza o energía que emana del cuerpo causal logoico en el quinto plano cósmico, por intermedio de la analogía logoica de la unidad mental. (Dichas analogías implican un concepto mucho más avanzado que el que puede tener un iniciado en la actualidad.) En la quinta ronda, el significado interno será más evidente para el discípulo. A medida que la voluntad logoica se transmuta gradualmente en deseo, produciéndose así la encarnación física, tiene lugar un enorme descenso de fuerza vitalizadora desde el quinto plano cósmico hasta llegar a nuestro quinto plano, el mental. Esta fuerza es la que, en el exacto momento cíclico, en tiempo y espacio y en los tres mundos, produce ciertos acontecimientos, Su cuerpo físico denso. El primero es la apropiación, por el Logos, de ese vehículo físico denso y el surgimiento a la manifestación <pin lang="en">692</pin> del Sol físico y de los planetas físicos. Aunque desde nuestro ángulo esto abarca un período de tiempo inconcebiblemente vasto, para el Logos es sólo el breve período de gestación que sufren todos los cuerpos. Otro acontecimiento importante lo constituye la apropiación, por los distintos Prajapatis [^12] u Hombres celestiales, de sus cuerpos físicos -también en distintas épocas de acuerdo a su etapa evolutiva. Esto por lo general sucede primero <pin lang="es">559</pin> a los tres, luego a los siete. Una idea del significado de esta diferencia se podrá vislumbrar cuando se estudie el proceso de la encarnación del ego.
+
+:::note Recuerda
+
+Lo que comprendemos por quinto principio sólo es la expresión en el plano causal de esa fuerza o energía que emana del cuerpo causal logoico en el quinto plano cósmico, por intermedio de la analogía logoica de la unidad mental.
+
+:::
+
+Por lo tanto, ¿Qué encontramos? Ante todo, el impulso o la voluntad de ser que emana del plano mental; luego, deseo que emana del plano astral, produciendo la manifestación en el físico denso.
+
+Esta idea debe extenderse a los tres Logos o Aspectos logoicos, entonces tenemos la clave del misterio de los nueve Sephiroth, la triple Trimurti.
+
+Puede además observarse el otro acontecimiento -la apropiación, por las Mónadas individuales de sus cuerpos de manifestación, en un período aún posterior en tiempo y espacio.
+
+La afluencia de esta fuerza de energía, que emana del quinto Principio logoico, da lugar a dos cosas:
+
+1. La apropiación, por el séptuple Logos, de Su cuerpo físico denso. La aparición de los cuerpos causales de las Mónadas humanas, en el quinto plano del sistema.
+2. La encarnación para la Vida mayor. La individualización para las vidas menores. Debe reflexionarse sobre esto.
+
+<p><pin lang="en">693</pin> Será evidente para todos los pensadores por qué el quinto principio hizo vibrar el tercer aspecto para que entrara en actividad autoconsciente.</p>
+
+### Considerados hilozoísticamente.
+
+b. **Considerados hilozoísticamente.** [^13] Continuando nuestra consideración del quinto Principio logoico, lo analizaremos en su aspecto hilozoísta. Hemos visto que puede ser, considerado como la fuerza, la energía o la cualidad que emana de la unidad mental logoica en el plano mental cósmico; necesariamente esto tiene un efecto definido en el quinto plano del sistema y en el quinto subplano del plano físico, el gaseoso. Antes de tratar en detalle el tema de los Agnishvattas, tres puntos deben tenerse en cuenta.
+
+Primero, se ha de recordar que todos los planos de nuestro sistema, considerados como sustancia dévica, forman las espirillas en el átomo físico permanente del Logos solar. Esto ha sido ya <pin lang="es">560</pin> señalado antes, pero es necesario que volvamos a insistir sobre este punto. Toda conciencia, toda memoria y toda facultad están depositadas en los átomos permanentes. Aquí estamos tratando de esa conciencia; sin embargo, el estudiante debe tener en cuenta que en los subplanos atómicos se centraliza la conciencia logoica (por muy alejada que esté de la Realidad). Este átomo permanente del sistema solar, que tiene la misma relación con el cuerpo físico logoico que el átomo permanente humano con el del hombre, es un receptor de fuerza y, por lo tanto, recibe emanaciones de fuerza de otra fuente foránea al sistema. Una idea de la naturaleza ilusoria de la manifestación, tanto humana como logoica, puede extraerse de la relación que existe entre los átomos permanentes y el resto de la estructura. El <pin lang="en">694</pin> cuerpo físico humano no puede existir separado del átomo permanente.
+
+Igualmente las formas y los reinos difieren de acuerdo a la naturaleza de la fuerza que fluye a través de ellos. En el reino animal lo que corresponde al átomo permanente, responde a la fuerza de carácter involutivo que emana de un grupo determinado. El átomo permanente humano responde a la fuerza que emana de un grupo en el arco evolutivo y del Rayo de un Logos planetario particular, en Cuyo cuerpo la Mónada humana tiene un lugar definido.
+
+Segundo, por lo que antecede, será evidente que en este período de afluencia y desarrollo manásicos nos concierne la adquisición de la plena vitalidad y la entrada en actividad de la quinta espirilla logoica; esta vitalización se manifiesta en la intensa actividad del plano mental y en la triple naturaleza de los fenómenos eléctricos que en él se observa.
+
+|                        |                               |                      |
+| ---------------------- | ----------------------------- | -------------------- |
+| a. El subplano atómico | átomos manásicos permanentes. | Positivo             |
+| b. El cuarto subplano  | unidades mentales             | Negativo.            |
+| c. Los grupos egoicos  | cuerpos causales              | Neutro o equilibrio. |
+
+Esto se halla en proceso de manifestación durante el transcurso de la evolución. Tratamos aquí del aspecto sustancia y consideramos a la energía en sus diversas manifestaciones. La respuesta de la sustancia dévica a la afluencia de fuerza en el plano mental tiene un triple efecto en conexión con el Logos o el Septenario:
+
+1. Produce una actividad muy acrecentada, en los centros logoicos, en el cuarto éter cósmico, debido a la acción refleja que se siente arriba o abajo del plano de actividad.
+2. Estimula los esfuerzos de las especies más desarrolladas del tercer reino, produciéndose en ello un efecto <pin lang="en">695</pin> dual, pues <pin lang="es">561</pin> aparece el cuarto reino de la naturaleza en el plano físico y las Tríadas se reflejan en los cuerpos causales que se encuentran en el plano mental.
+3. Como ya se ha dicho, el físico denso está ligado y coordinado con los cuerpos etéricos de los Logos solar y planetario. En consecuencia los tres planos inferiores se sintetizan con los cuatro superiores, y los devas de un mahamanvantara anterior o ciclo solar, entran en conjunción con aquellos que pertenecen a un nuevo orden y esperaban las condiciones adecuadas. La encarnación física del Logos se completa. Los tres reinos inferiores, que son negativos a la fuerza superior, la atracción mutua de ambos y su interacción, traen a la existencia al cuarto reino o humano. Los tres fuegos: de la mente, del Espíritu y de la materia se unen, iniciándose el trabajo de la plena autoconciencia.
+
+Por último, el estudiante debería reflexionar muy cuidadosamente sobre el significado de los números tres, cuatro y cinco en la evolución de la conciencia. Hasta ahora, la numerología ha sido estudiada principal y correctamente desde el aspecto sustancia, pero no desde el punto de vista de la energía consciente. Los estudiantes, por ejemplo, consideran generalmente a la Tríada como el triángulo formado por los átomos permanentes manásico, búdico y átmico; el cubo representa al hombre material inferior y la estrella de cinco puntas frecuentemente se interpreta en forma materialista. Todos estos puntos de vista son necesarios y deben preceder al estudio del aspecto subjetivo, pero el énfasis se pone más bien sobre lo material; sin embargo, el tema debe ser estudiado psicológicamente. Los números citados en este sistema solar, son los más importantes desde el punto de vista de la evolución de la conciencia. <pin lang="en">696</pin> En el sistema anterior, los números seis y siete encerraban el misterio. En el próximo sistema, serán el dos y el uno. Esto se refiere al desarrollo síquico. Permítaseme ilustrar: La estrella de cinco puntas en el plano mental significa (entre otras cosas) la evolución, por medio de los cinco sentidos, en los tres mundos -factibles también de una quíntuple diferenciación- del quinto principio, la adquisición de la autoconciencia y el desarrollo de la quinta espirilla.
+
+En el plano búdico, cuando este número resplandece en la iniciación, significa el pleno desarrollo del quinto principio o cualidad -el ciclo completo del Ego en los cinco Rayos regidos por el Mahachohan- la asimilación de todo lo que ha de aprenderse respecto a ellos y la obtención no sólo de la plena autoconciencia, sino también de la conciencia del grupo al cual pertenece el <pin lang="es">562</pin> individuo. Implica también el pleno desenvolvimiento de cinco pétalos egoicos, quedando dos, los cuales se abrirán antes de la iniciación final.
+
+Durante las iniciaciones que se llevan a cabo en el plano mental la estrella de cinco puntas aparece resplandeciente sobre la cabeza del iniciado. Significa que las tres primeras iniciaciones se reciben por intermedio del vehículo causal. Se ha dicho que las dos primeras se llevan a cabo en el plano astral, lo cual es correcto, pero ha dado lugar a una mala interpretación. Se sienten grandemente en los cuerpos físico, astral y mental inferior, controlándolos. Debido a que se siente el efecto principal en esos cuerpos, el iniciado puede interpretarlo como que ha tenido lugar en los planos correspondientes, pues el efecto es muy vivido y estimula ampliamente al cuerpo astral. Debe recordarse siempre que las iniciaciones principales se reciben en el cuerpo causal o -cuando están desvinculadas de ese cuerpo- en el plano búdico. En las dos iniciaciones finales, que liberan al hombre de los tres mundos y lo capacitan para actuar en el cuerpo vital logoico y a manejar la fuerza que anima a ese <pin lang="en">697</pin> vehículo, el iniciado se convierte en la estrella de cinco puntas, que desciende sobre él, se fusiona con él y se lo ve en el centro de la misma. Este descenso lo produce la actividad del Iniciador, que maneja el Cetro de Poder, poniendo al hombre en contacto con ese centro en el Cuerpo del Logos planetario del cual es una parte, ello se efectúa conscientemente. Las dos iniciaciones llamadas sexta y séptima tienen lugar en el plano átmico; la estrella de cinco puntas “resplandece desde dentro de sí misma” según una expresión esotérica, y se convierte en la estrella de siete puntas, la cual desciende sobre el hombre, entonces él penetra en la Llama.
+
+La iniciación y el misterio de los números conciernen principalmente a la conciencia, pero no fundamentalmente a la “capacidad de actuar en un plano” ni tampoco a la energía de la materia, como podría deducirse de lo que expresan tantos libros ocultistas. Se ocupan de la vida subjetiva, la vida como parte de la conciencia y autorrealización de un Logos planetario o Señor de un Rayo, y no de la vida en la materia tal como la comprendemos El Hombre celestial funciona en Su vehículo pránico, encontrándose allí Su conciencia en lo que a nosotros atañe en este sistema; trabaja conscientemente por intermedio de Sus centros.
+
+**Resumiendo**: Hay una etapa en la evolución de la conciencia en que el tres, el cuatro y el cinco se mezclan y fusionan perfectamente. De esto surge una confusión debido a dos causas, siendo ambas el punto de realización individual del estudiante. Interpretamos y matizamos las afirmaciones de acuerdo al estado de <pin lang="es">563</pin> nuestra conciencia interna. H. P. B. menciona esto [^14] cuando trata de los principios; también la interpretación de estos números varía de acuerdo a la clave empleada. Se entra en el reino espiritual o quinto, cuando las unidades del cuarto reino han conseguido vitalizar la quinta espirilla en todos los átomos del triple hombre inferior; cuando <pin lang="en">698</pin> han desarrollado tres de los pétalos egoicos y están en proceso de desarrollar el cuarto y el quinto y cuando van adquiriendo conciencia de la fuerza pránica del Hombre celestial.
+
+### Los Ángeles solares y el quinto principio.
 
 
 
@@ -111,3 +184,17 @@ El hombre tiene que aprender a controlar, guiar y utilizar las sustancias dévic
 [^7]: Estos tres planos son las analogías de las tres espirillas inferiores en el átomo físico permenanete del Logos solar y del Logos planetario.
 
 [^8]: D. S. III, 88-89, 229
+
+[^9]: D. S. I, 206-208.
+
+[^10]: Ver D. S. I, 207-208.
+
+[^11]: Esto tiene dos significados, uno cósmico y otro del sistema; para arrojar luz sobre ese acontecimiento que concierne a nuestro propio esquema deben estudiarse las estanzas que se refieren a la llegada de los Señores de la Llama
+
+[^12]: Prajapatis. Los Progenitores, los que dan vida a todo lo que existe en la Tierra. Son los siete y los diez que corresponden a los siete y a los diez Sephiroth. En el cosmos son los siete Rishis de la Osa Mayor, en el sistema son los siete Logos planetarios y, desde el punto de vista de nuestro planeta, son los siete Kumaras. D., S. I, 130, 141; II, 130, 298-299; III, 44, 48, 86 (llamada 10)
+
+[^13]: Hilozoísmo: Del griego "ule", materia; "zoom", animal; e "ismo". Ismo es un sufijo que representa la doctrina o idea abstracta del sustantivo al cual se adhiere. Hilozoísmo es la doctrina que sostiene que toda materia está dotada de vida.
+
+     "Cuando se haya comprendido el concepto hilozoísta de un universo material viviente, se solucionará el misterio de la naturaleza." Diccionario Standard.
+
+[^14]: D. S. VI, 98.
