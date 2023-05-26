@@ -156,6 +156,42 @@ La iniciación y el misterio de los números conciernen principalmente a la conc
 
 ### Los Ángeles solares y el quinto principio.
 
+c. **Los Ángeles solares y el quinto principio**. Podemos estudiar ahora a las Entidades relacionadas con ese quinto principio y el efecto que produce sobre la evolución de la conciencia.
+
+En lo que al hombre se refiere, los Ángeles solares o Agniswhattas, producen la unión de la Tríada espiritual o Yo divino, con el Cuaternario o yo inferior. En lo que se refiere al Logos solar o planetario, producen condiciones por las que el etérico y el físico denso se convierten en una unidad.
+
+Representan un tipo peculiar de fuerza eléctrica; su trabajo consiste en mezclar y fusionar y, sobre todo, son los “fuegos transmutadores” del sistema y esos agentes a través de cuyos cuerpos flamígeros pasa la vida de Dios cuando desciende de lo superior a lo inferior y cuando asciende de lo inferior a lo superior. Los grupos más avanzados están relacionados con esa parte del centro logoico coronario que corresponde al corazón, y aquí reside la clave del misterio de kama-manas. Los ángeles kámicos son vitalizados desde el centro “cardíaco” y los ángeles manásicos desde el centro logoico coronario, por intermedio del punto, dentro de ese centro, conectado con el corazón. Estos dos grupos predominantes son la suma total de kama-manas en todas sus manifestaciones. Los ángeles solares forman tres grupos que se relacionan con el aspecto autoconciencia y están energetizados y relacionados con la quinta espirilla del átomo permanente logoico, funcionando como una unidad.
+
+Un grupo, el más elevado, está vinculado con el centro logoico coronario ya sea solar o planetario. Actúa con los átomos permanentes manásicos y representa la voluntad de ser en la encarnación física densa. Su poder se siente en el subplano atómico, y en el segundo subplano constituye la <pin lang="en">699</pin> vida y sustancia de dichos planos. Otro grupo está definidamente relacionado con los cuerpos causales de todos los egos y es de principal importancia en este sistema solar. Viene desde el centro del corazón y expresa esa fuerza. El tercer grupo, que corresponde al centro laríngeo, demuestra su poder en el cuarto subplano por intermedio de las unidades <pin lang="es">564</pin> mentales. Es la suma total del poder del Ego para ver, oír y hablar (o emitir sonido) en sentido estrictamente esotérico.
+
+Aquí se dará una indicación para aquellos que tienen el poder de ver. Estas constelaciones se relacionan con el quinto principio logoico en su triple manifestación: Sirio, dos de las Pléyades y una pequeña constelación que debe ser reconocida por la intuición del estudiante. Las tres rigen la apropiación por el Logos, de Su cuerpo denso. Cuando el último pralaya finalizó y el cuerpo etérico se hubo coordinado, se formó en los cielos, de acuerdo a la ley, un triángulo que permitió la afluencia de fuerza produciendo vibración en el quinto plano del sistema. Ese triángulo persiste aún y es la causa de la continua afluencia de fuerza manásica; está vinculado con las espirillas de la unidad mental logoica, y mientras persista Su voluntad de ser, la energía continuará afluyendo. En la quinta ronda se hará sentir su máxima potencialidad.
+
+Considerando a las Entidades [^15] que dieron el principio manásico al hombre, debemos recordar que son los seres que en manvantaras anteriores lograron la realización y -en esta ronda- esperaron el momento exacto <pin lang="en">700</pin> para entrar, a fin de continuar su trabajo. Un caso similar puede verse en la entrada -durante la época atlante- de Egos provenientes de la cadena lunar. La similitud no es exacta, ya que una condición particular prevalecía en la luna, y un propósito kármico particular los trajo a todos en esa época.
+
+Se ha de recordar aquí que en la Luna, el quinto principio de manas incubó normalmente y se desarrolló gradualmente el instinto hasta fusionarse imperceptiblemente con manas, que es de naturaleza similar; en la ronda actual debido a una condición peculiar fue necesario un estímulo foráneo al planeta y este grupo especial de Pitris efectuó una transición de lo inferior a lo superior mediante un descenso de energía, por conducto del Primario de la Tierra, proveniente de un centro fuera del sistema.
+
+Las tres rondas centrales, tanto en los planos como en los <pin lang="es">565</pin> principios, son las más importantes para la evolución de los entes autoconscientes de este sistema, y este afán por lograr la perfección del tres, del cuatro y del cinco señala, tanto para el Logos planetario como para el hombre, el ciclo de madurez. Los ciclos anterior y posterior indican el progreso hacia la madurez y la cosecha de los frutos de anteriores experiencias. Las tres Aulas podrían ser consideradas desde este ángulo y ubicar el periodo central en el Aula del Aprendizaje.
+
+En todos los planetas dichos manasadevas trabajan siempre en tres grupos, pero variando los métodos empleados de acuerdo a la etapa de evolución del planeta en cuestión y el karma de su Señor planetario. Su método de trabajo en la Tierra puede ser estudiado en La Doctrina Secreta y tiene un interés muy significativo para los hombres en la actualidad. [^16] Los tres grupos deben ser cuidadosamente considerados desde el punto de vista de su trabajo oculto, y son insinuados en las frases siguientes:
+
+1. Aquellos que rehusaron encarnar.
+2. Aquellos que implantaron la chispa de manas.
+3. Aquellos que tomaron cuerpo y modelaron el tipo.
+
+<p><pin lang="en">701</pin> El segundo grupo, el intermedio, puede subdividirse en dos grupos menores:</p>
+
+1. Aquellos que implantan la chispa de manas,
+2. Aquellos que avivan y nutren la llama latente en los mejores tipos del hombre animal,
+
+formando así nuevamente cinco. Estas afirmaciones han sido aceptadas en su valor intrínseco, pero se presta poca atención a su verdadero significado. Mucho se aprovecharía si el lector estudiara el tema desde el punto de vista de la energía y de la interacción magnética. Quienes rehusaron encarnar o energetizar con su vida las formas ya preparadas, actuaban de acuerdo a la Ley y su oposición a encarnar en estas formas se fundaba en la repulsión magnética. No podían energetizar las formas proporcionadas porque implicaba oponerse a aquello que esotéricamente es similar. La vida menor no era negativa a la Vida mayor. Allí donde fue implantada la Chispa tenemos la receptividad del aspecto negativo a la fuerza positiva y por lo tanto el progreso del trabajo. En todos los casos, tenemos sustancia dévica de una polaridad energetizada por otra polaridad con el objeto de producir -por mutua interacción- un equilibrio de fuerzas y obtener un tercer tipo de fenómeno eléctrico.
+
+
+
+
+
+
+
+
 
 
 
@@ -198,3 +234,7 @@ La iniciación y el misterio de los números conciernen principalmente a la conc
      "Cuando se haya comprendido el concepto hilozoísta de un universo material viviente, se solucionará el misterio de la naturaleza." Diccionario Standard.
 
 [^14]: D. S. VI, 98.
+
+[^15]: Una pregunta muy lógica podría formularse aquí: ¿Por qué consideramos la materia de los devas del sistema intermedio (como podrían denominarse a los que están vinculados a nuestro sistema y con budi y kama-manas) cuando elucidamos las formas mentales? Por dos razones: Una, que todo lo que está en el sistema solar no es más que sustancia energetizada desde los planos mental y astral cósmicos, con ella se construyen la forma por el poder de la Ley eléctrica; todo lo que es posible conocer son formas animadas por ideas. La otra, que por el conocimiento de los procesos creadores del sistema, el hombre aprende con el tiempo por sí mismo a convertirse en un creador. Podríamos ilustrarlo diciendo que una de las principales funciones del movimiento teosófico en todas sus ramas consiste en contruir una forma que pueda ser animada, a su debido tiempo, por la idea de la Fraternidad.
+
+[^16]: Véase la primera parte del T. III de La Doctrina Secreta.
