@@ -335,6 +335,102 @@ Con el fin de obtener claridad y elucidar un tópico extremadamente difícil sob
 
 Como acabo de decir, un avatar es un Rayo de gloria refulgente y perfecta que se reviste de materia con el propósito de servir. En el sentido estricto de la palabra todos los avatares son almas liberadas, con la diferencia de que los avatares cósmicos y solares se han liberado de los dos planos inferiores de los planos cósmicos, mientras que los avatares planetarios e interplanetarios sólo se han emancipado del plano físico cósmico, los planos de nuestro sistema; el avatar humano ha logrado liberarse de los cinco planos del esfuerzo humano. En sentido estrictamente técnico e inferior, un Maestro encarnado físicamente constituye un tipo de avatar, porque es un “alma liberada” que ha elegido encarnar con un propósito específico, pero <pin lang="en">723</pin> de esto no nos ocuparemos. Podemos subdividir estos grupos a fin de aclarar más nuestras ideas.
 
+#### Avatares cósmicos
+
+1. **Avatares cósmicos**: representan la fuerza personificada proveniente, entre otros; de los siguientes centros cósmicos:
+   1. Sirio
+   2. Una de las siete estrellas de la Osa Mayor, animada por el arquetípico Señor de nuestro tercer Rayo principal.
+   3. Nuestro centro cósmico.
+
+Representan a entidades tan alejadas de la conciencia del Hombre como el hombre lo está de la conciencia del átomo de sustancia. Millares de esos grandes ciclos denominados “cien años de Brahma”, han pasado desde que Ellos se aproximaron a la etapa humana, personificando la fuerza y la conciencia que se ocupa de la coordinación inteligente de los Cielos estelares.
+
+Han realizado todo lo que el hombre puede concebir, tal como <pin lang="es">582</pin> trascender la voluntad, el amor y la inteligencia, y a esta triple síntesis le han agregado cualidades y vibraciones, las cuales no tenemos palabras para expresarlas, ni siquiera pueden ser visualizadas por nuestros adeptos más elevados. Muy rara vez aparecen en un sistema solar y sólo son reconocidos en los dos planos superiores. Sin embargo, dada la naturaleza material de nuestro sistema solar, Su advenimiento constituye literalmente la aparición, en forma física, de un Ser espiritual plenamente consciente.
+
+Dichas Entidades, provenientes de Sirio, aparecen cuando el Logos solar recibe una iniciación, y están vinculadas peculiarmente con los cinco Kumaras y por medio de ellos (utilizados como puntos focales de fuerza) con el departamento del Mahachohan en todas las Jerarquías ocultas del sistema. Sólo una vez, en relación con la aparición en tiempo y espacio de los cinco Hijos de Brahma nacidos de la mente, un Ser de esa naturaleza ha visitado nuestro sistema. El efecto que produce la visita de un Avatar como el de Sirio, se considera que <pin lang="en">724</pin> es la culminación de la civilización y de la cultura, desde el punto de vista de todo el sistema, en un relámpago de tiempo.
+
+Cuando se acerque el pralaya y produzca en el cuerpo del Logos lo que llamamos “Muerte”, entonces aparecerá un avatar desde el centro cósmico. Es el Segador cósmico y (para reducir lo dicho en palabras comprensibles) pertenece a un grupo que representa a la energía abstrayente del cosmos, de la cual existe una tenue analogía en el trabajo del aspecto “destructor” del Logos y en las fuerzas que producen la muerte física y la desintegración del cuerpo físico del hombre. No es posible decir más sobre estos asuntos fundamentalmente esotéricos, y el valor de lo que se ha dicho reside principalmente en llevar a la mente del estudiante la realidad de nuestra interrelación cósmica.
+
+#### Avatares solares
+
+2. **Avatares solares**: Son de tres tipos, aunque en realidad hay muchos más. Son también visitantes que provienen de fuera del sistema y se ocupan principalmente de ciertos procesos del mismo, entre otros, la aplicación de la ley de causa y efecto o ley de karma. Personifican el karma de los kalpas pasados, en lo que respecta a nuestro Logos, dando el impulso inicial a los procesos de ajuste, expiación y reconocimiento en lo que concierne al sistema actual como un todo. Una Entidad como el “Avatar kármico” apareció en la segunda vibración logoica, vino impulsado por el segundo Aliento, ha permanecido hasta ahora y permanecerá, con nosotros, hasta que todos los esquemas hayan entrado en su quinta ronda y estén cercanos a su “Día del Juicio”. En ese momento podrá retirarse dejando que los Logos planetarios implicados cumplan el propósito kármico sin ser vigilados. El impulso vibratorio será entonces <pin lang="es">583</pin> tan fuerte y la comprensión del principio búdico tan conscientemente vívida, que nada podrá detener la marcha de los acontecimientos. Bajo Su dirección trabaja un número determinado de entidades cósmicas que, como se dice en La Doctrina <pin lang="en">725</pin> Secreta, [^23] tienen el privilegio de trasponer “el círculo no se pasa”; sin embargo no son avatares, pues Ellos Mismos evolucionan aplicando la ley del karma. Tal es Su trabajo y Su oportunidad para progresar. Un avatar nada puede aprender en el lugar donde aparece. Su trabajo consiste en aplicar la fuerza de cierto tipo de energía eléctrica a la sustancia en cualquiera de sus diversos grados, y lograr así resultados anticipados.
+
+:::note Recuerda
+
+Un avatar nada puede aprender en el lugar donde aparece. Su trabajo consiste en aplicar la fuerza de cierto tipo de energía eléctrica a la sustancia en cualquiera de sus diversos grados, y lograr así resultados anticipados.
+
+:::
+
+Otro tipo de Avatar solar, que aparece en los esquemas, tiene relación con el centro cardíaco de un Logos planetario, apareciendo en los planos superiores (nunca en los inferiores) cuando comienza a hacerse sentir la actividad del corazón y los procesos energetizantes producen tres cosas:
+
+1. Expansión de conciencia.
+2. Acrecentamiento de luz y brillo espirituales.
+3. Radiactividad planetaria.
+
+Este fenómeno planetario (en conexión con el cuarto reino de la naturaleza) abre al hombre la puerta de la iniciación. Dichos avatares no tienen vinculación con determinada Jerarquía, sino con la totalidad del sistema. Producen la fusión de los colores y la síntesis de las unidades de sus grupos.
+
+Cuando un Logos planetario recibe la iniciación puede aparecer un avatar, en el séptimo globo de Su esquema, proveniente de esa estrella o centro cósmico animado por el Rishi particular que (en la constelación de la Osa Mayor) es Su prototipo cósmico. Para la Entidad implicada esto significa tomar una forma física, pues nuestros planos superiores sólo constituyen materia desde Su punto de vista. Se ha insistido frecuentemente sobre esto pues su significado aún no ha sido captado suficientemente. Debido a la aparición de ese avatar, en el séptimo globo, el Logos planetario <pin lang="en">726</pin> puede mantener la continuidad de conciencia cósmica, aunque se halle en encarnación física; el avatar solar desempeña la misma función para el Logos planetario que el Gurú para Su discípulo. Posibilita ciertos acontecimientos por medio del estímulo y la protección de Su aura, y actúa como transmisor de energía eléctrica desde el centro cósmico. Debemos tener cuidado de no ajustarnos demasiado a la analogía, pues el verdadero trabajo que realiza no puede ser comprendido por el hombre. Dicho avatar tiene lógicamente un efecto directo sobre los centros del Hombre celestial, en <pin lang="es">584</pin> consecuencia aunque sólo indirectamente, sobre los entes o mónadas humanas y sobre la Mónada en su propio plano. Tal influencia obtiene poca respuesta de la Mónada hasta después de la tercera Iniciación, cuando su vida consciente se hace tan fuerte que se aferra nuevamente a su expresión egoica en una sola dirección, despertando a la realización planetaria en otra. Este tipo de avatar aparece sólo en el momento de la iniciación de un Logos planetario. Éste recibe en el actual sistema de dos a cuatro iniciaciones.
+
+#### Avatares interplanetarios.
+
+3. Avatares interplanetarios. Tenemos aquí un grupo interesante de avatares. Se ocupan principalmente de tres cosas: primero, de supervisar la trasferencia de unidades de fuerza o grupos egoicos de un esquema a otro (no de entes individuales de una cadena a otra). Aparecen generalmente dos veces en las historia de un esquema y aunque no puedan tomar cuerpos físicos de materia más burda que la de las sustancias átmica y búdica, trabajan con los impulsos efectuados sobre la materia mental, realizando estas trasferencias grupales. Se subdividen en tres grupos:
+   1. Aquellos que efectúan la transferencia de los esquemas menores o manifestaciones de Rayo, en el tercer Rayo; ocupándose de los resultados producidos por la fusión de los polos opuestos de los cuatro <pin lang="en">727</pin> esquemas menores, hasta que sólo queda uno, transfiriendo luego la vida y la cualidad de lo que queda, al tercer Rayo.
+   2. Aquellos que se ocupan de la transferencia e interacción de las fuerzas vitales entre los tres Rayos mayores.
+   3. Aquellos que producen la última transferencia del sistema al finalizar la era.
+
+Segundo, ciertos avatares provenientes de la cuarta Jerarquía creadora, por razones esotéricas inexplicables, abandonan la propia Jerarquía y aparecen en una de las Jerarquías dévicas. Esto sólo sucede una vez en la historia de cada esquema; ocurre en el momento en que es más densa la apariencia física y tiene relación con la transferencia del impulso dévico de un esquema a otro, vinculándose así con la aparición de los entes autoconscientes, pues son la primordial personificación de la latente autoconciencia del átomo de la sustancia dévica y establecen el tipo de devas en cualquier esquema determinado.
+
+Tercero, sólo una vez en la historia de cada esquema aparece en niveles mentales un avatar de la constelación de Capricornio. Éste es el nivel más inferior en el cual se exteriorizan dichas deidades interplanetarias. Nada más puede decirse sobre esta cuestión. Aquí reside oculto “el misterio de la cabra”. Este avatar hace <pin lang="es">585</pin> su aparición en la tercera ronda de la tercera cadena y desaparece en la quinta ronda de la cuarta cadena.
+
+Dichos avatares interplanetarios vienen como resultado de kalpas muy remotos, cuando las condiciones del sistema están suficientemente refinadas como para permitir su aparición. Son los nirmanakayas de un ciclo solar anterior que ahora aprovechan la oportunidad para efectuar (activamente y por medio de la manifestación física) cierto trabajo inconcluso.
+
+#### Avatares planetarios.
+
+4. Avatares planetarios. Emanan del Logos <pin lang="en">728</pin> planetario central de un esquema y personifican Su voluntad y propósito. Son de dos tipos. El primero constituye una manifestación, en niveles físico etéricos, del Logos planetario mismo durante un lapso específico. Significa que uno de los Kumaras toma definitivamente un cuerpo físico. Puede decirse que Sanat Kumara es uno de estos avatares que, con los otros tres Kumaras, personifica los cuatro principios cuaternarios planetarios. En un sentido muy real Sanat Kumara es la encarnación del Señor del Rayo Mismo; es el Observador Silencioso, el gran Sacrificio para la humanidad. [^24]
+
+En segundo lugar, como he indicado en el párrafo anterior, tenemos tres Entidades que personifican los principios planetarios. Son (hablando desde el punto de vista actual) la energía dinámica que mantiene unidos a cada uno de los tres reinos inferiores, considerando como unidades y no como diferenciaciones. Estas unidades están estrechamente relacionadas con el aspecto energía de las tres cadenas anteriores y sólo se necesitó el trabajo de un avatar interplanetario que les permitió (cuando se formó el triángulo que dio por resultado el período de individualización en los días lemurianos) tomar cuerpos etéricos y encarnar entre los hombres. Actúan como puntos focales para la energía del Logos planetario en Su propio plano. En sentido misterioso, el primer Kumara es la energía que produce la autoconciencia en la familia humana. Los otros tres Kumaras o los tres Budas de Actividad, actúan como puntos focales similares para la energía que anima a los tres reinos inferiores y produce sus diferentes grados de conciencia. No es posible expresar este gran misterio con más claridad, pero si el estudiante agrega estas pocas insinuaciones a las dadas anteriormente en La Doctrina Secreta, el misterio de los “Cuatro Santificados” puede ser parcialmente esclarecido desde el punto de vista de la energía y de la evolución.
+
+Las épocas y momentos de su aparición varían de acuerdo <pin lang="en">729</pin> al karma particular del Señor de Rayo y lo que esté vinculado a estos grandes ciclos y períodos de encarnación no puede ser revelado a profanos y neófitos. <pin lang="es">586</pin>
+
+#### Avatares humanos.
+
+5. 5. Avatares humanos. Ya han sido considerados totalmente por H. P. B. y nada más puede añadirse a su información, pues el momento no es propicio. [^25] Lo mencionado tiene cabida aquí, porque concierne al misterio de la fuerza y de la conciencia; detrás del efecto y aparición de estos distintos avatares se halla oculta la máxima manifestación, en cuerpo físico denso, de un Logos planetario y de un Logos solar.
+
+### La individualización, una forma de Iniciación.
+
+e. **La individualización, una forma de Iniciación**. Poco es lo que se puede agregar actualmente respecto a la individualización. Lo que aquí y en La Doctrina Secreta se ha expuesto no es más que una tentativa para expresar hechos profundos y significativos, en términos de pensamiento humano, sobre la existencia y la manifestación, valiéndonos de lo restringido del lenguaje. Desde un punto de vista más esotérico “el Hombre es un deva”, Espíritu y sustancia dévica unidos por la actividad de la energía dévica consciente. Reúne en sí los tres aspectos de la deidad. Mientras está en objetividad constituye:
+
+1. El Yo, el no-yo y el vínculo inteligente en un sentido muy vital.
+2. Shiva, Vishnu y Brahma en manifestación sintética.
+3. El medio por el cual la Voluntad de Dios, el Amor de Dios y la Mente de Dios se hacen inteligibles y evidentes.
+4. La fuerza eléctrica positiva, la fuerza eléctrica negativa y el medio equilibrador.
+5. La llama, el Fuego y la Chispa en manifestación esencial.
+6. El fuego eléctrico, el fuego solar y el fuego por fricción.
+
+<p><pin lang="en">730</pin> Pero sobre lo que se ha de insistir es que el hombre, en tiempo y espacio y en los tres mundos, manifiesta todos estos aspectos simultáneamente sólo al finalizar el proceso de evolución. Así como en el Macrocosmos Brahma manifiesta primeramente actividad, luego el segundo aspecto o intermedio, y finalmente evidencia el primer aspecto, voluntad o propósito, lo mismo sucede con el microcosmos.</p>
+
+El **aspecto Brahma**, en el cual se evidencia y predomina el aspecto del no-yo materialista. Esto abarca las etapas subhumanas y los primeros tres ciclos de la Vida de la Personalidad:
+
+1. Primer ciclo: estado salvaje.
+2. Segundo ciclo: hombre medio.
+3. Tercer ciclo: el triunfante hombre intelectual.
+
+El **aspecto Vishnu**, en el cual predomina gradualmente el aspecto amor-sabiduría y surge por intermedio del aspecto Brahma.
+
+<p><pin lang="es">587</pin> Abarca las dos etapas finales de la vida de la personalidad humana y ese período de crecimiento egoico que incluye las dos Iniciaciones finales:</p>
+
+1. Primer ciclo: El Sendero de Probación.
+2. Segundo ciclo: El Sendero de Iniciación (hasta la tercera Iniciación).
+3. Tercer ciclo: El Sendero que abarca la cuarta y quinta Iniciaciones.
+
+Ésta constituye una consumación momentánea pero, así como en el reino animal está latente y en estado instintivo la mente humana, y en el reino humano lo está el aspecto búdico, durante el ciclo final del esfuerzo humano, Atma o aspecto superior de la Mónada, también está latente y en estado instintivo. Esto deberá producir posteriores etapas de desarrollo. No existen lapsos en la evolución ni períodos en los cuales falte cualquiera de estos aspectos; todos se hallan presentes pero <pin lang="en">731</pin> aparecen en forma alternada. Únicamente cuando el fuego de la materia arde vivamente y llega a irradiar, entonces el fuego de la mente puede surgir, aunque siempre es inherente a la misma. Sólo cuando los fuegos de la materia han alcanzado la etapa en que producen calor y luz energéticos, el fuego eléctrico del Espíritu puede aparecer en toda su gloria. Únicamente cuando estos tres arden juntos, se extingue el fuego de la materia por falta de combustible y, sólo cuando esto ocurre, el fuego de la mente (en niveles mentales) consume aquello que hasta entonces había animado. Cuando esto se realiza, el fuego del Espíritu puro (aumentado e intensificado por la esencia gaseosa del fuego de la materia o “fuego por fricción, coloreado y hecho irradiante” por el fuego de la mente) resplandece en perfecta gloria, de manera que lo único que se ve es una llama vibrante. Esta idea puede ser extendida desde el Hombre al Hombre celestial y también hasta el Logos en su relación cósmica.
+
+La individualización marca una etapa en el proceso de la intensificación del “fuego por fricción”. Se relaciona con la realización de Brahma y marca un punto en la energetización de la sustancia. Ciertas formas están preparadas para obtener autoconciencia. Dos Rayos cósmicos de distintas polarizaciones se atraen mutuamente.
+
+La Iniciación marca una etapa en la intensificación del “Fuego solar”. Se vincula con la realización de Vishnu, marcando un punto en la evolución de la conciencia, que va de la autoconciencia a la conciencia grupal o conciencia universal.
+
+La identificación con el conjunto de grupos podrá ser el término empleado para expresar las etapas finales del proceso evolutivo; más un período hacia el final del mahamanvantara cuando <pin lang="es">588</pin> todos los grupos comienzan conscientemente a cumplir la Voluntad eterna. Involucra un tipo de realización, inconcebible hoy para el hombre, pero concebible <pin lang="en">732</pin> (aunque todavía no practicable) para los Chohanes de la Jerarquía que se hallan ahora en la Tierra. Trabajan conscientemente cumpliendo la Voluntad del Logos planetario en el planeta, pero aún así están muy lejos de comprender plenamente la Voluntad y el propósito del Logos a medida que actúa a través del sistema. Pueden tener vislumbres y una idea del plan general, pero los detalles son todavía irrecognoscibles.
+
+## c. La Encarnación.
 
 
 
@@ -408,3 +504,9 @@ Como acabo de decir, un avatar es un Rayo de gloria refulgente y perfecta que se
     6. Dos razas más	sucederán a la actual.
 
 [^22]: Estos son los Veddhas de Ceylan, los Bosquimanos de Australia y algunos ejemplares de las razas africanas más inferiores. D.S. III, 196-197, 279,402-403.
+
+[^23]: Son los Señores Lipika. D. S. I, 170.
+
+[^24]: D. S. II, 58-59, 113-114, 308-309.
+
+[^25]: D. S. VI. Sección XLI; V. 308.
