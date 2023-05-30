@@ -432,7 +432,102 @@ La identificación con el conjunto de grupos podrá ser el término empleado par
 
 ## c. La Encarnación.
 
+### Cósmica, planetaria y humana.
 
+a. **Cósmica, planetaria y humana**. Habiendo considerado la autoconciencia, a medida que se logra por intermedio de un tipo determinado de sustancia dévica proporcionada por los Agnishvattas para el cuerpo del Ego, entraremos ahora a estudiar la encarnación cósmica, planetaria y humana. Un indicio respecto a la constitución de los Pitris y Manasadevas solares puede llegarle al estudiante que reflexione respecto al lugar que ocupa el ente egoico en el cuerpo del Logos planetario y en el centro particular del cual es parte componente. Los Manasadevas y los Dhyan Chohanes que producen la autoconciencia en el hombre, constituyen en realidad la energía y la sustancia del Hombre celestial cósmico.
+
+La palabra “encarnación” en su acepción radical significa expresar la verdad fundamental que implica tomar un cuerpo físico denso, y técnicamente debería ser aplicada sólo a ese periodo de manifestación que concierne a los tres subplanos inferiores del
+
+1. plano físico cósmico, en relación con un Logos solar y un Logos planetario;
+2. plano físico del sistema, en relación con el hombre.
+
+Se ha conservado su significado respecto a las entidades cósmicas, pero cuando se considera al hombre, el término se aplica a la unificación del doble etérico con el cuerpo físico denso, o a la apropiación, por parte del hombre, del vehículo compuesto de la <pin lang="en">733</pin> sustancia del subplano superior del plano físico cósmico en sus aspectos más inferiores. Esta diferencia tiene cierto significado y debe recordarse. Dicha apropiación está regida por las mismas leyes que gobernaron la apropiación, por parte del Logos, de Su vehículo físico. A fin de tener una idea de lo que es este procedimiento, sería de valor considerar los distintos tipos de pralaya y meditar sobre los períodos que transcurren entre las diferentes encarnaciones. Desde el punto de vista de cualquier ente implicado, un pralaya es un período de pasividad, de cesación de toda actividad, que involucra objetividad, pero desde el punto de vista <pin lang="es">589</pin> del gran todo, con el cual el ente puede estar implicado, un pralaya podría considerarse simplemente como una transferencia de fuerza de una parte a otra. Aunque el ente pueda estar temporalmente desvitalizado en lo que se refiere a su forma, sin embargo, la Entidad mayor persiste y sigue activa.
+
+Consideraremos el tema primeramente desde el punto de vista humano y estudiaremos el pralaya en lo que afecta a la Mónada en encarnación. [^26] Tenemos cinco tipos de pralaya de los cuales podemos muy bien ocuparnos. Primero debemos observar el hecho de que esta condición se refiere principalmente a las relaciones entre Espíritu y materia, donde se produce una condición en la sustancia por la acción del factor energetizante, el Espíritu. Por lo tanto, tiene que ver con la relación existente entre los devas mayores y los devas menores que representan la sustancia viviente cuando realizan la construcción de la forma <pin lang="en">734</pin> regidos por la Ley proveniente de la Voluntad de Dios. Será evidente para el estudiante, que se refiere a la relación del Espíritu Santo con la Madre en la producción del Hijo y a la relación del Hijo con la Madre. Si las ideas formuladas en este tratado han sido cuidadosamente seguidas, es obvio que al estudiar la cuestión del pralaya estamos estudiando la relación que existe (en tiempo y espacio) entre la energía positiva del Logos solar, del Logos planetario y del Hombre con la sustancia, única sustancia por la que le es posible manifestarse. Debido a esta relación se produce la existencia en los planos objetivos.
+
+### La naturaleza del pralaya.
+
+b. **La naturaleza del pralaya**. Podemos considerar al pralaya como el trabajo de “abstracción” y el método que pone a la forma bajo el aspecto Destructor del Espíritu, actuando siempre bajo la Ley de Atracción, de la cual la Ley de Síntesis es subsidiaria. La ley básica del sistema rige la relación de todos los átomos con el conglomerado de átomos, y del Yo con el no-yo. Desde el punto de vista ocultista es la más poderosa demostración de <pin lang="es">590</pin> fuerza en el sistema y si, inconcebiblemente, la ley cesara de actuar, instantáneamente el sistema y todas sus formas planetarias, humanas y no humanas dejarían de ser. Por un acto de voluntad los esquemas planetarios persisten; por un acto de voluntad el sistema ES; por un acto de voluntad egoica el hombre aparece. Cuando la Voluntad del Logos, del Hombre celestial y del Ego divino humano se abocan a otros fines, la sustancia de Sus vehículos es afectada y sobreviene la desintegración. Los cinco tipos de pralaya que conciernen al ser humano son los siguientes:
+
+#### El periodo de pralaya entre dos encarnaciones.
+
+1. El periodo de pralaya entre dos encarnaciones. Es de naturaleza triple y afecta a la sustancia de los tres vehículos: físico, astral y mental, reduciendo la forma a su sustancia primitiva y disipando su estructura atómica. La energía del segundo aspecto (el constructor de la forma) se retira por voluntad del Ego, <pin lang="en">735</pin> y los átomos que componen la forma se disocian entre sí, retornando a la fuente de reserva de donde volverán a ser retirados cuando llegue el momento. Esto se produce gradualmente por medio de las etapas que ya conocemos:
+   1. La primera etapa consiste en retirar la fuerza vital del vehículo etérico del triple cuerpo físico (denso, líquido y gaseoso) y la consiguiente “corrupción", siendo “dispersado en los elementos”. El hombre objetivo desaparece y el ojo físico ya no lo ve aunque se halla en su cuerpo etérico. Cuando la visión etérica esté desarrollada, la idea de la muerte asumirá proporciones muy diferentes. Cuando la mayoría de la raza pueda ver a un hombre actuar en su cuerpo físico etérico, el abandono del cuerpo denso será considerado como una “liberación”.
+   2. La siguiente etapa consiste en retirar la fuerza vital del cuerpo etérico y en desvitalizarlo. El etérico sólo es una extensión de un aspecto del sutratma o hilo, y este hilo es hilado por el Ego dentro del cuerpo causal en forma similar a como una araña teje su tela. Puede ser acortado o alargado a voluntad, y cuando ya se ha decidido la duración del período del pralaya, este hilo de luz o de fuego solar (observen la palabra solar) se retira y vuelve al subplano atómico donde seguirá vitalizando al átomo permanente, manteniéndose conectado dentro del cuerpo causal. Entonces los impulsos de vida, en lo que se refiere al plano físico, se centralizan dentro de la esfera atómica.
+   3. La tercera etapa consiste en retirar la fuerza vital de la forma astral para que se desintegre en forma similar y la vida se centralice dentro del átomo astral permanente. Ha adquirido una acrecentada vitalidad por medio de la existencia en el plano físico, y le ha dado color por medio de la experiencia astral.
+   4. La etapa final para el átomo humano consiste en ser retirado <pin lang="es">591</pin> <pin lang="en">736</pin> del vehículo mental. Las fuerzas vitales, después de esta abstracción cuádruple, se centralizan totalmente dentro de la esfera egoica; el contacto con los tres planos inferiores sigue siendo posible por medio de los átomos permanentes, centros de fuerza de los tres aspectos de la personalidad.
+
+En cada encarnación las fuerzas vitales han adquirido, por medio del empleo de los vehículos,
+
+1. una actividad acrecentada, almacenada en el átomo físico permanente,
+2. una coloración, almacenada en el átomo astral permanente
+3. una cualidad de fuerza o propósito activo, almacenada en la unidad mental,
+
+actuando como facultad en el Devachan.
+
+El Devachan [^27] [^28] es un estado de conciencia que refleja <pin lang="en">737</pin> la <pin lang="es">592</pin> vida de la Personalidad, ese estado elevado que llamamos conciencia nirvánica, logrado por la acción egoica, reflejado tenuemente en los entes separados (y, por consiguiente, matizados por el placer egoísta y separatista) que se hallan grupalmente en dicho estado. En ese estado elevado de conciencia cada ente separado, por medio de la autorrealización, participa de la realización grupal, residiendo allí su felicidad, no sintiendo ya la separación sino únicamente unión y unidad esenciales. Por lo tanto, como puede naturalmente deducirse, no existe devachán para el salvaje o el hombre poco evolucionado, pues no les corresponde ni tienen mentalidad para comprenderlo; a ello se debe la rapidez con que vuelven a encarnar y la brevedad del período praláyico. En tales casos el Ego, en su propio plano, tiene muy poco que asimilar en el resto de las encarnaciones, de allí que el principio vida se retira rápidamente de la forma mental, impulsando al Ego a reencarnar casi inmediatamente.
+
+Cuando la vida de la personalidad ha sido plena y rica, pero no ha alcanzado la etapa en que el yo personal puede colaborar conscientemente con el Ego, la personalidad atraviesa por períodos nirvánicos cuya duración depende del interés en la vida y de la capacidad del hombre para reflexionar sobre sus experiencias. Más tarde, cuando el Ego domina la vida de la personalidad, el hombre se interesa en cosas más elevadas, y el nirvana del alma se convierte <pin lang="en">738</pin> en su meta. Ya no le interesa el devachán. Empero, aquellos que están en el Sendero (ya sea el de probación o el de Iniciación) por regla general no van al devachán, sino que encarnan inmediatamente al girar la rueda de la vida, lo cual ahora sucede por la colaboración consciente entre el yo personal y el Yo divino o Ego.
+
+#### El período entre ciclos egoicos.
+
+2. **El período entre ciclos egoico**s. Aquí se oculta el misterio de las 777 encarnaciones que concierne al vínculo que existe entre <pin lang="es">593</pin> la unidad y su grupo en el plano egoico, antes de desarrollarse el quinto pétalo. Atañe al período del hombre comprendido entre la etapa del salvaje y la del discípulo, cuando es un hombre común, pero que todavía se halla en las dos Aulas. Aquí reside el misterio de todas las razas raíces; los ciclos egoicos coinciden con la construcción de las formas y civilizaciones raciales. Un hombre encarnará repetidas veces en las diferentes subrazas de una raza raíz hasta haber atravesado determinado ciclo, luego ha de pasar por un período praláyico, hasta que en una raza raíz posterior (y a veces muy posterior) responderá a su llamado vibratorio, que le hará sentir nuevamente el impulso egoico por encarnar. Como ejemplo de ello debemos recordar que la actual humanidad más avanzada no encarnó hasta la cuarta raza raíz. Estos ciclos constituyen uno de los misterios de la iniciación, aunque uno de los primitivos que se revelan en la segunda iniciación, y permiten al iniciado comprender su posición, percibir algo de la naturaleza de los impulsos kármicos y leer su propio archivo a la luz astral.
+
+Estos deben ser considerados como los dos períodos praláyicos menores y conciernen principalmente a la vida en los tres mundos.
+
+#### Después viene el período en que adquiere la liberación.
+
+3. **Después viene el período en que adquiere la liberación**. En esta etapa, el hombre, el alma liberada, ha logrado de acuerdo a la ley, “abstraerse” de la materia de los tres mundos. Ha empleado sustancia dévica, ha trabajado con ésta y establecido todos los contactos <pin lang="en">739</pin> vibratorios posibles, adquiriendo todos los “conocimientos” y “revelaciones” que le corresponden; los devas ya no pueden mantenerlo prisionero. Es libre hasta que consciente y voluntariamente, pueda regresar, en otra ronda como miembro de una Jerarquía, a fin de continuar Su trabajo de servicio para la humanidad poco evolucionada de esa época lejana. Como esto se refiere a los siete senderos de oportunidad que se le presentan a un Maestro, no nos ocuparemos de ello. [^29] Este es el gran pralaya humano.
+
+#### Pralaya planetario.
+
+4. **Pralaya planetario.** El hombre, después de estos acontecimientos cíclicos, forma parte consciente de su grupo y es un punto vibrante en un centro del cuerpo de un Hombre celestial, percibiendo conscientemente el lugar que le corresponde en el gran todo.
+
+<p><pin lang="es">594</pin> Esto significa que él ha de saber de qué centro es un punto de energía, debe conocer qué tipo de fuerza ha de transmitir y manipular desde niveles cósmicos y ha de estar en relación consciente con los otros seis centros de la Vida planetaria a la cual está asociado.</p>
+
+Este período de actividad consciente en sustancia etérica (de la cual está formado el cuerpo planetario) persiste de acuerdo al karma del Señor planetario, pues el ente está ahora conscientemente asociado al karma planetario y ayuda a cumplir la voluntad y propósito del Señor de su Rayo. En los planos superiores del sistema esta etapa persiste durante la vida de un esquema, a la cual sigue un período de pralaya que comienza antes de finalizar la séptima ronda de cualquier esquema, o de la quinta ronda si la Ley de Persistencia de un esquema actúa en ciclos quíntuples. Aquí <pin lang="en">740</pin> estoy hablando en términos amplios y generales; el karma de los entes difiere, y un hombre -de acuerdo al sendero que elige después de la quinta iniciación- permanece en, y trabaja dentro de su propio esquema, pero pueden ocurrir cambios ocasionados por los siguientes factores:
+
+1. El karma planetario.
+2. La voluntad del Señor de su Rayo.
+3. Las órdenes que emanan del Logos solar y le son impartidas después de la liberación, vía el Logos planetario y por intermedio del Chohan de su Rayo.
+
+Entonces es “abstraído”, de acuerdo a una misteriosa ley planetaria que sólo se aplica en niveles etéricos cósmicos, y transferido a su destino. Si interpretamos lo que antecede en términos de energía y de radiactividad, evitando los peligros de hacerlo en forma materialista, el significado se esclarecerá.
+
+#### El gran pralaya.
+
+5. **El gran pralaya**. Este intervalo ocurre al finalizar cada cien años de Brahma, y destruye cualquier tipo de formas -sutiles y densas- en todo el sistema. Es un período análogo al que nos ocupamos de dilucidar, el retiro del hombre de su vehículo etérico y de su capacidad para actuar en el plano astral, disociado de su forma física dual. Podrá observarse que dentro del sistema el hombre pasa por un proceso similar cuando retira el cuerpo etérico del vehículo físico denso, al finalizar el mahamanvantara. Abarcará el período en que los cuatro Rayos menores se fusionan y mezclan, a fin de hallar la dualidad y sus polos opuestos. Oportunamente los cuatro se convierten en dos, los dos en uno, sintetizándose todos en el tercer Rayo mayor. Pero aún no ha llegado el momento, pues faltan incontables eones. Ello constituye la primer aparición del aspecto destructor vinculado a los esquemas <pin lang="es">595</pin> planetarios y marca el principio del <pin lang="en">741</pin> período en que “el efervescente calor derretirá los “Cielos” y el Sol se transformará en siete soles. [^30]
+
+La analogía microcósmica puede observarse en el proceso siguiente. El átomo físico permanente absorbe toda la fuerza vital del cuerpo físico, de allí que aumente su calor y luz ingénitos, hasta que en la cuarta iniciación las siete espirillas están completamente vitalizadas y vibrantes. El calor interno del átomo más el calor externo del cuerpo egoico, donde el átomo está ubicado, producen aquello que destruye al átomo permanente. Momentáneamente, y justo antes de la destrucción, se transforma en un minúsculo séptuple sol debido a la irradiación y a la actividad de las espirillas. Lo mismo sucede con el sol físico del sistema; en forma similar se transformará en siete soles cuando haya absorbido la esencia vital de los planos totalmente evolucionados y de los esquemas planetarios que en ellos existen. La conflagración resultante es el trabajo final del aspecto Destructor. Marca el momento de desarrollo más elevado de la sustancia dévica en el sistema, la consumación del trabajo de Agni y de sus ángeles de fuego y la iniciación de Brahma. Entonces la sustancia atómica se individualizará (lo que, como ya sabemos, es la meta para el átomo), y después del gran pralaya, el próximo sistema solar empezará a manifestarse con el triple Espíritu, a través de la sustancia esencialmente caracterizada por el amor activo inteligente. Esto lógicamente resulta incomprensible para nuestras mentes de cuarta ronda.
+
+Hemos considerado así los diversos tipos de pralaya, en lo que afectan al ente humano; cada ente encuentra oportunamente su camino hacia uno de los centros astrales cósmicos de esa determinada Entidad cósmica, el Señor que corresponde a su Rayo; por lo tanto, durante el gran pralaya, esos entes humanos, que han obtenido la realización y no pasaron a otros centros cósmicos lejanos, encontrarán allí su lugar.
+
+Antes de ocuparnos de los pralayas planetario y cósmico, podríamos considerar las relaciones existentes entre los Agnishvattas <pin lang="en">742</pin> (que causaron la individualización del hombre animal en este planeta) y otros ciclos anteriores de evolución, y la razón por la cual solo los hemos tratado desde el punto de vista de un mahamanvantara y de un kalpa. No hemos considerado específicamente al grupo de Agnishvattas, Kumaras y Rudras relacionados con la Tierra, porque hemos tratado el tema desde el punto de vista planetario y no en relación con la familia humana. El estudiante que procura obtener una información detallada respecto a los Agnishvattas de la cadena terrestre, no tiene más que estudiar La <pin lang="es">596</pin> Doctrina Secreta. Hemos procurado llevar el pensamiento del estudiante más allá de su pequeña esfera propia, hasta considerar el trabajo de los Manasadevas en el sistema solar. En cada esquema tienen Su lugar, pero en algunos -como en el esquema de Júpiter- recién ahora están comenzando Su trabajo y en otros -como en los esquemas de Vulcano y de Venus -casi Lo han terminado. Venus pasa por su última ronda y casi ha desarrollado a la perfección su cuarto reino, o hasta donde le es posible lograrlo en el sistema. En el esquema terrestre están en pleno trabajo, sólo en la próxima ronda demostrarán la culminación de Su actividad. Pasan cíclicamente a través de los esquemas de acuerdo a la Ley -Ley del Karma para el Logos planetario, pues se ocupan esencialmente de Su vida a medida que activan Sus centros. Llegan a un esquema en una oleada de energía manásica, proveniente del centro coronario del Logos, y al pasar a través de su centro cardíaco ocurren tres cosas:
+
+1. Se dividen en siete grupos.
+2. Se dirigen como corrientes de energía a algún esquema particular.
+3. Su contacto con un esquema produce la manifestación de la cuarta Jerarquía creadora y lleva a las Mónadas a adquirir forma en los tres mundos.
+
+<p><pin lang="en">743</pin> Las entidades que Se sacrifican por la Jerarquía humana (debemos observar aquí la veracidad del hecho de que emanan del centro coronario logoico o aspecto voluntad), son los verdaderos Salvadores que ofrendan Sus vidas por el bien de la raza. Constituyen para la totalidad de los esquemas lo que la Jerarquía oculta de cualquier planeta en particular es para el hombre del planeta implicado. Durante el pralaya se retiran (como todos los demás) de la manifestación y regresan a un centro cósmico del cual el centro coronario logoico no es más que un tenue reflejo, retornando enriquecidos por la experiencia recogida.</p>
+
+El Antiguo Comentario dice:
+
+> El deva brilla con mayor luz cuando lo ha penetrado la virtud de la voluntad. Cosecha color, como el segador recoge el trigo y lo almacena para nutrir a la multitud. La mística Cabra reina sobre las huestes dévicas. Makara es y no es, sin embargo el vinculo persiste
+
+Las rondas aparecen y desaparecen (excepto desde el punto de vista de un planeta determinado), los Manasadevas están siempre presentes, aunque su influencia no se hace sentir siempre.
+
+#### Pralaya planetario
+
+Al considerar el pralaya planetario podríamos enumerar brevemente los siguientes períodos de pasividad que tienen lugar entre: <pin lang="es">597</pin>
+
+**Dos Globos de una Cadena**. Abarca el período en que es abstraída la simiente de toda vida y transferida de una esfera a otra. El Manu de las Simientes de un globo recoge para Sí todas las fuerzas vitales como lo hace el Logos al final de un sistema; lo mismo ocurre también al finalizar una cadena y las mantiene pasivas en Su aura. Esto comprende el período de un manvantara o un día de Brahma.
+
+**Dos Cadenas**. Abarca el período de un mahamanvatara o un año de Brahma. Hay muchas maneras de llegar a conocer los ciclos mayores, pero es innecesario provocar confusión citando guarismos complicados. Los Diez Prajapatis o Rishis o <pin lang="en">744</pin> los diez Logos planetarios se manifiestan por intermedio de Sus diez esquemas, en tiempo y espacio, difiriendo la hora de Su aparición. Cada uno se manifiesta como lo hace el Logos por medio de un septenario y una tríada, sumando el diez de la perfección.
+
+**Dos Sistemas Solares**. Abarca el período de cien años de Brahma; estudiando los ciclos planetarios se podrá llegar a comprender estos ciclos mayores. Sin embargo, la confusión del estudiante se debe a que dos de los esquemas cubren sus períodos cíclicos en cinco rondas, mientras que otros lo hacen en siete; un esquema contiene nada más que tres rondas, y aquí se oculta un misterio: durante la ronda interna un planeta tiene que recorrer nueve ciclos antes que se cumpla el propósito de su Señor.
+
+Ciertos períodos menores de pralaya no se relacionan con el hombre, conciernen al átomo de materia, cuando se libera de cualquier tipo de forma en los reinos subhumanos. El pralaya es el resultado de la radiactividad llevada a su fin.
+
+### Tipos de renacimiento humano.
 
 
 
@@ -510,3 +605,33 @@ La identificación con el conjunto de grupos podrá ser el término empleado par
 [^24]: D. S. II, 58-59, 113-114, 308-309.
 
 [^25]: D. S. VI. Sección XLI; V. 308.
+
+[^26]: Fundamentalmente existen tres clases de Pralaya. D. S. II, 78-79-80.
+
+    1. Pralaya solar. Ocurre al finalizar cien años de Brahma. Marca la reabsorción dentro de la unidad; el fin de la manifestación del sistema solar. Concierne al Logos solar.
+    2. Pralaya incidental. Es posterior a los días de Brahma. Marca períodos entre manvantaras. La forma temporal cesa pero la dualidad permanece. Concierne a un Logos planetario.
+    3. Pralaya individual. Logrado por un hombre en la quinta iniciación. Marca el logro de la perfección. Concierne a la mónada.
+
+    Existe también el pralaya vinculado con la evolución humana que llamamos devachánica. Concierne a la personalidad.
+
+[^27]: Deva-Chan. "(3) ¿ Quiénes van al Deva-Chan? Lógicamente el Ego personal, pero beatificado, purificado y santificado. Cada Ego - la combinación del sexto y séptimo principios que después del período de gestación ha vuelto inconscientemente a nacer en el Deva-Chan, es necesariamente tan inocente y puro como una criatura recién nacida. Por haber vuelto a nacer se demuestra sencillamente la preponderancia del bien sobre el mal en su antigua personalidad. Mientras el Karma (del mal) se aparta momentáneamente a fin de seguirlo a su futura reencarnación terrena; no lleva consigo más que el Karma de sus buenas acciones, palabras y pensamientos al Deva Chan. "Malo" es un término relativo para nosotros - como se ha dicho más de una vez-; la Ley de Retribución es la única que nunca falla. Por eso, todos los que no han caído en el fango del pecado y de la bestialidad irredimibles van al Deva-Chan. Más adelante, tendrán que pagar por los pecados cometidos voluntaria o involuntariamente. Mientras tanto son recompensados, reciben los efectos de las causas producidas por ellos.
+
+    "Lógicamente, es un estado por así decir, de intenso egoísmo durante el cual un Ego cosecha la recompensa de su altruísmo en la tierra. Se halla totalmente absorbido en la felicidad producida por todos sus efectos personales terrenos, preferencias y pensamientos, recogiendo el fruto de sus acciones meritorias. Ningún dolor, aflicción, ni siquiera una sombra de pena oscurece el luminoso horizonte de su felicidad absoluta, es un estado de "Maya" perpetuo... Considerando que la percepción consciente de la personalidad de un individuo sobre la tierra sólo es un sueño que se desvanece, esa sensación será también un sueño en el Deva-Chan- solo que cien veces intensificado"
+
+    "Bardo" es el período entre la muerte y el renacimiento - y puede durar desde algunos años hasta un kalpa. Está dividido en tres subperíodos; (1) cuando el Ego liberado de su mortal envoltura penetra en el Kama-Loka (la residencia de lo Elementales); (2) cuando entra en "Estado de Gestación"; (3) cuando vuelve a nacer en el Rupa-Loka del Deva-Chan. El 1er. subperíodo puede durar desde algunos minutos hasta cierto número de años -si se emplean las palabras "pocos años" sin una explicación anterior confunden y resultan inútiles; el 2do. subperíodo es "muy largo", quizás más largo de lo que pueden imaginar, sin embargo está de acuerdo al vigor espiritual del Ego; el 3er. subperíodo dura en proporción al buen karma, después del cual la mónada vuelve a reencarnar."
+
+    ". . . Cada efecto debe estar en proporción con la causa. Así como la extensión del período de la existencia encarnada del hombre proporcionalmente es pequeña, comparado con los períodos de existencia entre nacimientos en el ciclo manvantárico, así los buenos pensamientos, palabras y acciones de cualquiera de estas "vidas" en un globo, causan efectos cuyo desarrollo requiere mucho más tiempo que la evolución de las causas." De Mahatma Letters to A. P. Sinnet, págs. 100-106.
+
+[^28]: Devachan. Un estado intermedio entre dos vidas terrenas en el cual entra el Ego después de haberse separado de sus aspectos o envolturas inferiores.
+
+[^29]: Los siete Senderos por uno de los cuales todos debemos pasar:
+
+    1. 1er. Sendero.	El Sendero de Servicio en la Tierra.
+    2. 2do. Sendero	El Sendero del Trabajo Magnético.
+    3. 3cer. Sendero	El Sendero de los Logos Planetarios.
+    4. 4to. Sendero	El Sendero hacia Sirio.
+    5. 5to. Sendero	El Sendero de Rayo.
+    6. 6to. Sendero	El Sendero de los Logos solares.
+    7. 7mo. Sendero	El Sendero de la Filiación Absoluta.
+
+[^30]: D. S. IV. 264-265-266.
