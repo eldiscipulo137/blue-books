@@ -529,6 +529,144 @@ Ciertos períodos menores de pralaya no se relacionan con el hombre, conciernen 
 
 ### Tipos de renacimiento humano.
 
+c. **Tipos de renacimiento humano**. Cuando hemos estudiado la manera de construir formas mentales y los agentes para construirlas, consideramos:
+
+1. La sustancia dévica con la cual se construyen.
+2. La energía que las anima y su fuente de origen.
+3. Su aparición en tiempo y espacio, o encarnación.
+4. Su desaparición o pralaya.
+5. Las entidades constructoras que producen estas formas, de manera triple, utilizan
+   1. La meditación, acto preliminar a la construcción.
+   2. La fuerza dinámica, o la energía positiva que se apodera de su polo opuesto (sustancia negativa) y la utiliza. [e598] [i745]
+   3. El método para impartir color o cualidad que moldea lo que ha sido preparado.
+   4. La vitalización secundaria que pone independientemente en movimiento a la forma mental así creada.
+
+Consideraremos ahora el misterio del renacimiento o la encarnación de esas vidas que existen en materia sutil y que, sin embargo, tratan de adquirir forma de acuerdo a la ley; nos referiremos a su propósito específico en los niveles físico densos. Podemos considerar esto en relación con las entidades cósmicas que tratan de existir en el plano físico del cosmos, nuestros planos del sistema solar, o con los jivas reencarnantes impelidos por la Ley hacia la manifestación terrenal, a fin de adquirir (por medio de la vida sensoria) plena conciencia y mayores facultades y poder.
+
+H. P. B. expresó que los renacimientos puedan dividirse en tres tipos: [^31]
+
+1. Los de los Avatares.
+2. Los de los Adeptos.
+3. Los de los jivas que tratan de evolucionar.
+
+A quienes se esfuerzan por captar algo del misterio del renacimiento, sus leyes y propósito, y se confunden cuando consideran el misterio de Buda y el propósito secreto de esa enigmática Entidad, el Observador Silencioso, y a quienes encuentran casi insuperable el problema de comprender la posición de los Kumaras y Su relación con el Logos planetario, sería conveniente decirles que estudien y mediten sobre la diferencia que existe entre los principios inferiores y los tres superiores, el lugar y la posición que estos principios inferiores tienen en el cuerpo del Logos planetario y también que reflexionen respecto a las analogías que existen entre:
+
+1. El devachán del jiva reencarnante.
+2. El nirvana del Adepto. [i746]
+3. El pralaya de una Entidad cósmica, tal como el Señor de una cadena, el Señor de un esquema y el Señor de un Rayo.
+
+Me refiero a la analogía en su sentido esotérico, únicamente en propósito y experiencia, y no a la analogía detallada. Puede decirse que los tres estados constituyen períodos de desarrollo, largos ciclos de meditación e intervalos entre etapas de actividad. De allí el énfasis puesto sobre la práctica de la meditación en Oriente y en todas las escuelas ocultistas, porque constituye el medio que otorga al ente, en entrenamiento, la capacidad de adquirir el poder de: [e599]
+
+1. Abstraerse o liberarse de la forma.
+2. Crear.
+3. Dirigir la energía por un acto de voluntad.
+4. Actuar constructivamente en el futuro.
+
+Por la meditación un hombre puede liberarse de la ilusión de los sentidos y de su atracción vibratoria; encuentra su propio centro de energía positiva y es conscientemente capaz de utilizarlo; por lo tanto se da cuenta que su verdadero Yo actúa libre y conscientemente más allá de los planos sensorios; penetra en los planes de esa Entidad mayor dentro de cuya capacidad irradiatoria tiene su lugar; entonces puede llevar a cabo conscientemente esos planes, a medida que llega a captarlos en las diversas etapas de realización y a ser consciente de la unidad esencial. Pero cuando un hombre ha llegado a liberarse de los objetos sensorios en los tres mundos, también se da cuenta de la necesidad de continuar meditando; esta forma de meditar -inconcebible para el hombre en los tres mundos- absorbe la atención del Adepto y durante dos grandes etapas, precediendo cada una a las dos Iniciaciones finales, la sexta y la séptima. No me refiero aquí únicamente a los Adeptos que “hacen el sacrificio” y eligen renacer para servir en el planeta, sino a todos los adeptos. La libertad de actuar en cualquier Sendero debe obtenerse por la meditación [i747] ocultista; la libertad de salir del “círculo no se pasa” también se obtiene de esta manera, y lo mismo sucede durante esa curiosa etapa de pasividad lograda por Quienes se han ofrecido servir como Jerarquía oculta en la próxima ronda. En Ellos se han de acumular las simientes síquicas del conocimiento, disponibles en la quinta ronda; esto Les exige mantener una actitud receptiva hacia los acontecimientos que se producen al final de cada raza raíz, cuando tiene lugar, en niveles más sutiles, un acopio de fuerzas síquicas, que acumularán Aquellos que están preparados para recibirlas. Su trabajo es análogo al del Manu de la Simiente, que trabaja por medio de un septenario, así como lo hacen esos acopiadores de fuerzas vitales síquicas.
+
+:::note Recuerda
+
+La libertad de actuar en cualquier Sendero debe obtenerse por la meditación ocultista
+
+:::
+
+También para dichas Entidades cósmicas, como los Logos planetarios, transcurren períodos de meditación, llevados a cabo en los planos cósmicos y sólo se sienten sus efectos en nuestro plano. Meditan por medio de Sus cerebros físicos, por lo tanto, emplean sustancia como lo hace el hombre, pero el proceso se efectúa en el cerebro etérico. Debe reflexionarse sobre esto, porque oculta un misterio. También debe tenerse muy presente el hecho de que algunos de estos Señores de Rayo, son más eficientes en la meditación que otros y los resultados obtenidos en Sus esquemas son distintos. [e600]
+
+## d. El futuro advenimiento del Avatar.
+
+### EL AVATAR QUE VIENE
+
+> Desde el cenit hasta el nadir, desde el alba hasta el crepúsculo, desde el surgimiento al ser de todo lo que es y será, hasta entrar en la paz de todo lo realizado, brilla el orbe azul y el fuego radiante interno.
+>
+> Desde los áureos portales hasta los abismos de la tierra, desde el fuego llameante hasta la esfera de las tinieblas, cabalga el Avatar secreto llevando la punzante espada.
+>
+> Nada puede temer su acercamiento, ni nadie puede decirle que no se acerque. Cabalga Él sólo hacia la oscuridad de nuestra esfera, y aquello que trata de oponérsele ve en Su acercamiento un desastre y el caos extremos.
+>
+> [i748] Los Asuras ocultan sus rostros, y el abismo de maya se estremece hasta sus cimientos. Las estrellas de los eternos Lhas vibran a ese sonido -la PALABRA pronunciada con séptuple intensidad.
+>
+> Grande es el caos; el centro mayor con las siete esferas vibratorias se estremecen a los ecos de la desintegración. Los vapores que emanan de la completa oscuridad ascienden y se disipan. El ruido discordante de los elementos combatientes da la bienvenida a Aquel que viene, pero no Lo detiene. La lucha y las exclamaciones de la cuarta gran Jerarquía, mezclándose con la nota suave de los Constructores de la quinta y sexta Jerarquías, van a Su encuentro. Sin embargo, sigue Su camino, atravesando el círculo de las esferas y emitiendo la PALABRA.
+>
+> Desde el nadir hasta el cenit, desde la víspera hasta que el Día sea con nosotros, desde el círculo de manifestación hasta el centro de la paz praláyica, se ve el azul que todo lo cubre, perdido en la llama de la realización.
+>
+> Ascendiendo desde el abismo de maya, regresando a los áureos portales de las tinieblas y de la oscuridad, retornando al esplendor del día, cabalga el Uno Manifestado, el Avatar, llevando la Cruz destruida.
+>
+> Nada puede detener Su retorno, nadie puede obstruir Su Sendero, pues viene por el camino elevado, conduciendo a Su pueblo. Llega el fin del sufrimiento, el fin de la lucha, la fusión de las esferas y la unión de las jerarquías. Entonces todo es reabsorbido dentro del orbe, el círculo de manifestación. Las formas de maya y la llama que todo lo devora son acaparadas por Aquel que cabalga en los Cielos y entra en el eterno Eón.
+>
+> Extraído de los Archivos de la Logia.
+
+Hemos considerado el tema de los Avatares y las diferentes clases en que pueden ser divididos. Ahora nos extenderemos algo más respecto a los métodos por los cuales ciertas Existencias cósmicas y Entidades altamente evolucionadas aparecen entre los hombres para realizar una tarea específica; podrían ser inadecuada y brevemente resumidos de la manera siguiente:
+
+1. El método de ejercer influencia.
+2. El método de personificar a algún principio. [e601] [i749]
+3. El método que se observa en el misterio del Bodhisattva o Cristo.
+4. El método de encarnar directamente.
+
+Las palabras limitan grandemente y las frases citadas apenas insinúan su verdadero significado. En ello reside la seguridad para el estudiante, pues su significado real le sería incomprensible y lo desviaría, llevándolo a una errónea interpretación. Mientras un hombre no sea un iniciado aceptado no puede comprender el tema. El método más común es el primero. Los métodos de manifestación empleados quizás los comprenda mejor el estudiante si son interpretados en términos de fuerza y energía y si observa que tenues reflejos e imperceptibles analogías de los mismos procesos pueden hallarse entre los jivas que reencarnan. Cuando un hombre ha alcanzado cierto grado de desarrollo y puede prestar servicio al mundo, ocurre a veces que es influenciado por un gran adepto o -como en el caso de H. P. B.- por un Ser más elevado que un adepto. Un chela puede ser un centro a través del cual su Maestro puede hacer fluir Sus energías y fuerzas para ayudar al mundo; durante ciertas crisis importantes, los hombres han sido influenciados por más de uno de los Grandes Seres. [^32] [i750] Lo que sucede en los planos inferiores es sólo un reflejo de procesos superiores, y en este concepto puede hallarse la iluminación. El Hombre es un centro de fuerza, ya sea para su Ego cuando ha evolucionado suficientemente o por conducto de éste, para su fuerza grupal; cuando [e602] está muy evolucionado puede ser conscientemente influenciado por un exponente de distinto tipo de fuerza, que se fusiona con su fuerza grupal o de Rayo, y produce resultados significativos en su vida terrena.
+
+Si un Ego es muy evolucionado puede elegir, en determinada encarnación, trabajar principalmente por medio de uno de los cuatro principios inferiores; cuando esto sucede, la vida del hombre en la tierra constituye, en forma significativa, un principio personificado. Parece pulsar una nota y emitir un tono. Se observará que su trabajo lo realiza exclusivamente en una línea. Es un fanático de alto grado, pero realiza grandes cosas para su subraza, aunque el cerebro físico no sea consciente del impulso egoico. Este proceso tiene una curiosa relación con la oscuración o la desaparición de la personalidad, pues el principio particular personificado actúa por medio del correspondiente átomo permanente, desarrollando en forma ultrarrápida sus espirillas, de ahí que el fin de su período de servicio llega a su fin. Sin embargo, éste es un hecho que se aprovecha cuando un superhombre o gran adepto se convierte en la personificación (durante una raza raíz) de un principio; las vestiduras o envolturas, de las cuales el átomo permanente es el núcleo (por medio de la fuerza innata de las espirillas desarrolladas), son conservadas por medio de fórmulas mántricas. La vibración se perpetúa durante ese lapso determinado en que él necesita la vestidura o envoltura. Aquí hay un indicio que puede ser de utilidad.
+
+Cuando un hombre se ha convertido en discípulo puede, si quiere, permanecer en el plano astral, seguir trabajando allí y -cuando lo desee y de acuerdo al reajuste realizado en su karma por [i751] su Gurú- reencarnar físicamente de inmediato. En estos dos pensamientos hay una sugerencia sobre el misterio del Bodhisattva, siempre que el estudiante transfiera el concepto a los niveles etéricos del plano físico cósmico y recuerde que, en dichos niveles, el adepto trabaja totalmente como parte de un grupo y no como Entidad separada, como lo hace el ego en los tres mundos. Por lo tanto, la energía que fluye a través de Él puede provenir de:
+
+1. Un determinado centro que se halla en la plenitud de su fuerza en el cuerpo del Logos planetario.
+2. Una serie particular de vibraciones dentro de ese centro, o una parte de su fuerza vibratoria.
+3. La energía de un principio particular, ya sea uno de Sus propios principios superiores con el cual trata de influenciar en la tierra y encarnar para ese propósito específico, o la energía de uno de los principios logoicos planetarios, cuando fluye a través de Él por una espirilla o corriente de [e603] vida particular en el átomo permanente del Logos planetario.
+
+Cuando estos tipos de fuerza se centralizan en algún Adepto y Éste expresa nada más que esa fuerza extraña, el efecto se observa en el plano físico por la aparición de un avatar. Un avatar es, un adepto se hace, aunque frecuentemente la fuerza, la energía, el propósito o la voluntad de una Entidad cósmica utilizará los vehículos de un adepto a fin de entrar en contacto con los planos físicos. Este método, por medio del cual ciertas Existencias cósmicas hacen sentir Su poder, puede verse actuando en todos los planos del plano físico cósmico. Un ejemplo evidente puede observarse en el caso de los Kumaras que, impelidos por ciertas fuerzas planetarias y formando un triángulo del sistema, dieron un impulso al tercer reino cuando, al ponerlo en conjunción con el quinto, produjo el cuarto. Estos Kumaras, Sanat Kumara y [i752] Sus tres discípulos, habiendo realizado la iniciación más elevada posible en el último gran ciclo, aunque todavía (desde Su punto de vista) tienen que dar otro paso, Se ofrecieron al Logos planetario de Su Rayo como “puntos focales” de Su fuerza, de manera que por este medio pudiera acelerar y perfeccionar Sus planes sobre la Tierra dentro del ciclo de manifestación. Han aplicado tres de los cuatro métodos. Están influenciados por el Logos planetario, quien trabaja directamente como el Iniciador -en lo que al hombre concierne- por intermedio de Sanat Kumara y con los tres reinos de la naturaleza por intermedio de los tres Budas de Actividad -Sanat Kumara se relaciona así directamente con el Ego en el plano mental, y Sus tres Discípulos se ocupan de los otros tres tipos de conciencia, de los cuales el hombre es la síntesis. En el momento de la iniciación (después de la segunda Iniciación) Sanat Kumara se convierte en vocero y agente directo del Logos planetario. Esa gran Entidad habla por Su intermedio y durante un segundo (si tal término puede aplicarse a un plano en que el tiempo, tal como lo comprendemos, no existe) el Logos planetario del Rayo a que pertenece el hombre dirige conscientemente -vía Su cerebro etérico- Su pensamiento sobre el Iniciado “llamándolo por Su Nombre”.
+
+También los Kumaras constituyen principios personificados, pero a este respecto debemos recordar que la fuerza y la energía de uno de los principios del Logos afluyen a través de Ellos por medio de lo que corresponde a la Mónada en lo que se refiere a los Kumaras. Por Su intermedio, durante Su período de encarnación y sacrificio voluntarios, el gran Prototipo del Logos planetario empieza a hacer sentir Su presencia y la fuerza de la constelación de la Osa Mayor vibra débilmente sobre la Tierra. Durante la iniciación el hombre se da cuenta conscientemente de la Presencia del Logos [e604] planetario mediante el contacto autoinducido con su propio Espíritu divino. En la quinta Iniciación se percibe la amplitud de esta influencia grupal planetaria y [i753] la parte que debe desempeñar en el gran todo. En la sexta y séptima Iniciaciones siente la influencia del Prototipo planetario que le llega por conducto del Logos planetario actuando por intermedio del Iniciador.
+
+Este método de encarnación directa se aplicaba anteriormente cuando los Kumaras poseían forma física. Esto sólo puede decirse de algunos de Ellos; Sanat Kumara y Sus Discípulos tienen forma física, pero no han tomado cuerpos físicos densos. Trabajan en los niveles etéricos vitales y moran en cuerpos etéricos. Shamballa, donde Ellos moran, existe en materia física igual que los Kumaras, pero es materia de los éteres superiores del plano físico, y sólo cuando el hombre haya desarrollado la visión etérica, develará el misterio que hay detrás de los Himalayas. Por lo tanto, aunque Sanat Kumara es el Logos planetario, sin embargo, no lo es. Un reflejo de este método de encarnación directa puede observarse cuando un discípulo abandona su cuerpo y permite que su Gurú o un chela más avanzado lo utilice.
+
+El misterio de los Bodhisattvas [^33] ha sido tratado por H. P. B., y hasta que los estudiantes hayan asimilado y estudiado lo que ella ha dicho, nada más puede agregarse. Captar la verdad es un factor que siempre merece una nueva revelación.
+
+Un período muy interesante tendrá lugar cerca del año 1966, y persistirá hasta el fin del siglo; para ese entonces los Grandes Seres ya se están preparando. Concierne al esfuerzo que realizan cada cien años la Logia y los Personajes que pertenecen a ella. En cada siglo la Logia hace un esfuerzo en una línea determinada de fuerza, con el objeto de llevar adelante los fines de la evolución; el esfuerzo que realizarán en el siglo veinte será de mayor envergadura que el efectuado durante mucho tiempo y abarcará a un número de Grandes Seres. H. P. B. y un sinnúmero de chelas intervinieron en un esfuerzo similar durante el siglo diez y nueve; el que se ha de realizar en un futuro inmediato [i754] involucrará a varios de los Grandes Seres y al Mismo Maestro de Maestros; ahora podríamos referirnos a tres de los distintos métodos anteriormente mencionados, que se aplicarán para Su advenimiento.
+
+En la aparición del Bodhisattva Mismo, se evidenciará el misterio del Bodhisattva en su más pleno significado, y no nos corresponde extendernos aquí sobre ello. Baste decir que se utilizarán las vestiduras del GRAN SER, pero el tiempo demostrará si el Señor que viene las revestirá con un vehículo físico en ese evento particular, o si el plano astral será el campo de Su actividad. Si el estudiante [e605] reflexiona sobre las consecuencias que implica apropiarse de ellas, se arrojará mucha luz sobre los probables acontecimientos. Las vestiduras actúan con capacidad dual:
+
+1. Por estar excesivamente magnetizadas, tienen, por lo tanto, un efecto profundo y de gran alcance.
+2. Por actuar como punto focal para la fuerza del Señor Buda y establecer un vínculo con el Señor que viene, Le permitirán acrecentar Sus propios y maravillosos recursos, extrayéndolos de centros de fuerza, aún superiores, por conducto del Señor Buda.
+
+Esta fuerza se expresará en el plano astral, produciendo vastos resultados de naturaleza tranquilizadora, trayendo, por acción refleja, paz en la tierra. La transmutación del deseo en aspiración y la transformación del deseo inferior en superior constituirán algunos de los efectos, mientras que el resultado de la fuerza que afluye producirá grandes reacciones en los habitantes dévicos de ese plano. Mediante la vibración así iniciada muchos tendrán oportunidad (que no hubieran tenido de otro modo) de recibir la primera Iniciación. Luego, a fines del ciclo mayor, el Avatar que viene volverá a emplear las vestiduras [i755] y todo lo que ello implica, y tomará un cuerpo físico, demostrando así en el plano físico la fuerza del Logos al aplicar la Ley. Cuando Él venga al final de este siglo y haga sentir Su poder, lo hará como Instructor del Amor y de la Unidad, y Su tónica será regenerar por medio del amor. Debido a que actuará principalmente en el plano astral, Su trabajo se manifestará en el plano físico, estableciendo grupos activos en toda ciudad, grande o pequeña, y en todo país, que trabajarán agresivamente para lograr la unidad, la colaboración y la fraternidad en todos los sectores de la vida -económico, religioso, social y científico.
+
+Dichos grupos obtendrán resultados imposibles de lograr ahora, debido a la retención de la fuerza búdica, pero más tarde esta fuerza será liberada sobre la tierra por intermedio del Gran Señor, que actuará como un aspecto del Logos y un punto focal para la conciencia y la energía del Buda.
+
+Ésta es la probabilidad inminente que se tiene en cuenta al celebrarse anualmente, durante un siglo, el Festival Wesak. Sería conveniente que los estudiantes apoyaran los fines de la Jerarquía oculta concentrándose en forma similar, en el período del festival, iniciando así corrientes mentales de gran atracción, en el sentido oculto de este término.
+
+Un indicio de la proximidad de este acontecimiento lo constituirá la opción que se iniciará durante los próximos veinte y cinco años contra la delincuencia, el sovietísmo y el radicalismo [e606] extremos, que en la actualidad están siendo empleados por ciertas potestades para lograr objetivos contrarios a los planes del Señor. Se inaugurará la era de paz, agrupando en la tierra a las fuerzas que patrocinan la construcción y el progreso, y reuniendo consciente y deliberadamente los grupos que personifican en cada país (hasta donde puede ser visualizado) el principio de la Fraternidad. Estén atentos a [i756] los signos de los tiempos, y no se desanimen por el futuro inmediato. La aparición del Gran Señor en el plano astral (seguida o no por Su encarnación física) tendrá lugar al celebrarse determinado Festival Wesak, en él Buda pronunciará un mántram (conocido sólo por aquellos que están por recibir la séptima Iniciación), liberando esa fuerza que permitirá a Su gran Hermano cumplir Su misión. Por eso sería conveniente que en Occidente, en forma gradual, se haga conocer el Festival Wesak y su verdadero significado, ofreciéndose así la oportunidad a todos aquellos que están dispuestos a situarse en la línea de esta fuerza, a fin de ser vitalizados por ella y preparados para servir. La reacción mencionada se producirá también debido a la presión que ejercen los niños de hoy, muchos de ellos son chelas y algunos iniciados. Han venido para preparar el camino que han de recorrer Sus Pies.
+
+Cuando llegue el momento (cinco años antes de la fecha de Su descenso) se los hallará cumpliendo plenamente su servicio y sabiendo cuál es su trabajo, aunque ignoren lo que el futuro les depara.
+
+Cuando llegue el momento habrá casos (aunque ya han habido algunos) en que se observará la actuación de esta influencia, manifestándose de tres maneras. En todas las naciones de Oriente y Occidente habrá discípulos preparados y hombres y mujeres muy evolucionados desempeñando su tarea en las líneas asignadas, ocuparán puestos destacados, que les permitirá llegar hasta los muchos; poseerán también cuerpos suficientemente puros para ejercer influencia. Esto sólo será posible en aquellos que se han consagrado desde la infancia o han servido a la raza durante todas sus vidas o, por el karma generado en vidas anteriores, han adquirido ese derecho. Esta triple manera de ejercer influencias se manifestará:
+
+Primero. Plasmando en el cerebro físico del [i757] hombre las ideas, proyectos de trabajo, ideales e intenciones que (aunque emanan del Avatar) se los considerará sin embargo como propios, quien los ejecutará ayudado inconscientemente por la fuerza que afluye. Esto constituye literalmente una forma de telepatía mental superior, actuando en niveles físicos.
+
+Segundo. Influenciando al chela mientras desempeña su trabajo (por medio de conferencias, escritos y enseñanzas), e iluminándolo para que preste servicio. Será consciente de ello aunque [e607] incapaz de explicarlo; inspirado por Su Señor tratará de estar cada vez más dispuesto a servir, ofrendándose con total desinterés. Esto se llevará a efecto por medio del Ego del chela, la fuerza que fluye a través de su átomo astral permanente, siendo sólo posible realizarlo cuando se ha abierto el quinto pétalo.
+
+Tercero. Colaborando conscientemente en este tercer método de influenciar, el chela se ofrendará a sí mismo (con pleno conocimiento de las leyes de su ser y de su naturaleza), y abandonará y entregará su cuerpo físico al Gran Señor o a uno de Sus Maestros. Esto sólo es posible cuando el chela ha alineado sus cuerpos inferiores, aunque todavía debe desarrollar el sexto pétalo. Por un acto de voluntad consciente entrega su cuerpo y se mantiene apartado durante determinado tiempo.
+
+Estos métodos de ejercer influencia serán empleados principalmente por el Gran Señor y Sus Maestros al finalizar el siglo y, por esta razón, en todos los países encarnan discípulos que tienen la oportunidad de responder a la necesidad de la humanidad. De allí la urgencia de entrenar a hombres y mujeres a fin de que reconozcan científicamente el psiquismo superior, la verdadera inspiración y la mediumnidad. Dentro de cincuenta años será muy grande la necesidad de verdaderos síquicos y médium conscientes (como H. P. B. por ejemplo), si se llevan a la fructificación [i758] los planes del Maestro y se inicia el movimiento de preparación para el advenimiento de Aquel a Quien todas las naciones esperan. Muchos deben desempeñar su parte en esta tarea siempre que posean la perseverancia necesaria.
+
+Lógicamente, el primer grupo será el más numeroso pues no necesita poseer mucho conocimiento, pero implica mayor peligro que los otros dos -peligro de que tergiverse los planes y acontezca un desastre al ente implicado. El segundo grupo será menos numeroso, y el último consistirá en sólo un puñado o dos o tres en ciertos países. En este caso, resultará verídico que, por el sacrificio, el Hijo del hombre nuevamente recorrerá los caminos de los hombres, y Su encarnación física será un hecho. Muy pocos estarán a Su disposición porque la fuerza que Él posee requiere un instrumento particularmente flexible, pero ya se está haciendo la debida preparación.
+
+También algunos Maestros e iniciados emplearán el método de encarnación directa por el proceso de:
+
+1. El nacimiento físico.
+2. La apropiación de un vehículo o cuerpo adecuado.
+3. La creación directa por un acto de voluntad. Esto será muy raro. [e608]
+
+El segundo método, o intermedio, será el más frecuentemente empleado. Seis Maestros, cuyos nombres son completamente desconocidos para el estudiante ocultista corriente, han encarnado físicamente -uno en la India, otro en Inglaterra, dos en América del Norte y uno en Europa central, mientras que otro ha hecho un gran sacrificio y tomado un cuerpo ruso en el deseo de actuar como centro de paz ese desviado país. Ciertos iniciados de la tercera Iniciación han tomado cuerpos femeninos -uno en la India, que a su debido tiempo hará mucho para emancipar a las mujeres de la India, mientras que otro tiene un trabajo peculiar vinculado al reino animal, e igualmente está esperando el día de Su aparición.
+
+<p>[i759] El Maestro Jesús tomará un vehículo físico y, con algunos de Sus chelas, llevará a efecto la re-espiritualización de la iglesia católica, derribando la barrera que separa las iglesias Episcopal y Griega de la Romana. Si los planes progresan, como es de esperar, esto podrá suceder alrededor del año 1980. El Maestro Hilarión también vendrá y se convertirá en un punto focal de energía búdica en el vasto movimiento espiritista, mientras que otro Maestro está trabajando en el movimiento de la Ciencia Cristiana (Christian Science) a fin de inducirla a adoptar líneas más sólidas. Es interesante observar que dichos movimientos han puesto un fuerte énfasis sobre el corazón o aspecto amor, por lo tanto, podrán responder con más rapidez a la fuerza que afluirá durante el advenimiento, que los demás movimientos considerados muy avanzados.</p>
+
+La “mente puede matar” el reconocimiento de lo Real, pues el odio entre hermanos aleja la corriente de la fuerza de amor. Los tres Maestros, estrechamente vinculados con el movimiento teosófico, ya están haciendo Sus preparativos y actuarán también entre los hombres, reconocidos por Sus seguidores y por quienes tienen ojos para ver. A esos chelas que están sometidos a la necesaria disciplina se les ofrecerá la oportunidad de trabajar en el plano astral y, si ellos así lo eligen, de encarnar inmediatamente, siempre que hayan logrado la continuidad de conciencia. El Maestro conocido por D. K. tiene proyectado restaurar -por medio de Sus estudiantes- algunos de los antiguos y ocultos métodos de curar, y también señalar:
+
+1. el lugar que ocupa el cuerpo etérico,
+2. el efecto que produce la fuerza pránica,
+3. el desarrollo de la visión etérica.
+
+Nada más puede decirse sobre los planes de los Grandes Seres. Su aparición no será simultánea, pues los pueblos no podrían resistir la enormemente acrecentada afluencia de fuerza; el reconocimiento de los Maestros y de Sus métodos dependerá de la intuición [i760] y del [e609] entrenamiento de los sentidos internos. No los anunciará ningún heraldo, y sólo Sus obras los proclamarán
+
+## Impulso y encarnación.
 
 
 
@@ -635,3 +773,13 @@ Ciertos períodos menores de pralaya no se relacionan con el hombre, conciernen 
     7. 7mo. Sendero	El Sendero de la Filiación Absoluta.
 
 [^30]: D. S. IV. 264-265-266.
+
+[^31]: D. S. VI. 17-18-19-20.
+
+[^32]: Discipulado o estado de Chela....Los antiguos misterios sólo fueron una escuela para el entrenamiento espiritual y el perfeccionamiento para adquirir la verdadera sabiduría; la purificación del corazón de todas las pasiones sensuales y falsas percepciones era uno de los requisitos preliminares, aunque el Maestro podía guiar al neófito a través de la peligrosa etapa en que, como el niño, no puede andar solo; en las etapas superiores debía aprender a orientarse y a cuidarse como el hombre adulto debe hacerlo en la vida común; la meta final era la expansión del yo hacia la existencia y potencialidades infinitas; sin embargo, aunque las formas y ceremonias iniciales podían diferir en apariencia, tenían idéntico objetivo. The Theosophist, T. IX, pág. 246.
+
+    Sólo el corazón puro y la mente limpia permiten obtener la salvación. Esta era su doctrina. Del mismo modo lo enseña el Mahabharata Aria (Sección CXCIX Vana Parva) donde dice:
+
+    "Esas personas de alma elevada que no cometen pecados de palabra, de hecho, de corazón ni de alma, se dice que practican austeridades ascéticas, pero no se dice que sus cuerpos se debilitan por los ayunos y las penitencias. Aquel que no es bondadoso con sus parientes no puede estar libre de pecado, aunque su cuerpo sea puro. Esta dureza de corazón es el enemigo del ascetismo. El ascetismo no significa abstenerse de los placeres del mundo. Aquel que es puro y lleno de virtudes, aquel que practica la bondad en su vida, es un Muni, aunque lleve una vida doméstica. "The Theosophist, T. XIII, pág. 259.
+
+[^33]: D. S. I. 107-108.
