@@ -809,7 +809,7 @@ En la literatura ocultista moderna se expone mucho acerca del proceso seguido pa
 
 Como hemos visto, los tres grupos de Agnishvattas vinculados con la evolución del hombre en el nivel mental, tiene cada uno una función específica, y el grupo más inferior se ocupa principalmente de transmitir la fuerza o energía a los tres átomos permanentes. Cuando éste emite dos veces el sonido del mántram egoico se producen cambios y los Pitris lunares (que se ocupan de los tres vehículos inferiores) inician su trabajo, facilitándoles la clave los Ángeles solares.
 
-Los Pitris lunares personifican la sustancia de los cuerpos inferiores del hombre, así como los Pitris solares se sacrifican para darle su cuerpo egoico y su conciencia, [^37] [^38] constituyendo la sustancia en su aspecto dual. Los Pitris lunares en sus grados superiores son la energía positiva de la sustancia atómica y en los inferiores el aspecto <pin lang="en">780</pin> negativo de la misma. En relación con el hombre puede considerarse que son de tres categorías:
+Los Pitris lunares personifican la sustancia de los cuerpos inferiores del hombre, así como los Pitris solares se sacrifican para darle su cuerpo egoico y su conciencia, [^37] [^38] [^39] constituyendo la sustancia en su aspecto dual. Los Pitris lunares en sus grados superiores son la energía positiva de la sustancia atómica y en los inferiores el aspecto <pin lang="en">780</pin> negativo de la misma. En relación con el hombre puede considerarse que son de tres categorías:
 
 1. El grupo superior, recibe la energía proveniente de niveles <pin lang="es">624</pin> superiores y anima a las espirillas de los tres átomos permanentes.
 2. El grupo medio, por ser la energía positiva atrayente, construye y forma el cuerpo del hombre en los tres planos.
@@ -1055,3 +1055,5 @@ Sería interesante también indicar que la interacción de la energía de los Pi
     3. Tuvieron que convertirse en conocedores. Léase cuidadosamente D. S. III, llamada 20.
     4. Estos ángeles solares son inteligencias elevadas. D. S. III, 243-244.
     5. Son los yoguis celestiales. D. S. III, 241-242.
+
+[^39]: "Nirmanakaya es un nombre formado por dos palabras y significa "que no tiene cuerpo", no se refiere a las cualidades morales. Es un estado de conciencia. A los grandes Instructores de las esferas nirvánicas se los denomina así."
