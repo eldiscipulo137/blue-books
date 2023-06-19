@@ -1084,6 +1084,76 @@ El propósito de este tratado consiste en aplicar el último método mencionado,
 
 :::
 
+### La evolución de los pétalos.
+
+b. **La evolución de los pétalos.** La construcción del cuerpo causal es el resultado de la energía dual, la energía del yo inferior con su acción refleja sobre la unidad superior y la natural energía del yo cuando impresiona directamente a la sustancia del loto egoico. Debería recordarse aquí que, por sutil que sea el material, el loto egoico es en realidad sustancia que posee una vibración particular como la del cuerpo físico, sólo que (debido a su tenuidad el hombre físico lo considera prácticamente como insustancial. En efecto, como ya se ha indicado, es el resultado de la vibración dual de los Dhyanes quíntuples o Dioses en conjunción con el Cuaternario cuádruple o los Pitris de los vehículos inferiores. Mediante el esfuerzo consciente de los Logos planetarios los Dhyanes y los Pitris inferiores entran en estrecha relación. Esto produce (en el tercer subplano del plano mental) una vibración nónuple o un verticilo en la materia gaseosa del plano -subplano gaseoso cósmico- que, después de cierto período de persistencia, asume la forma de un loto de nueve pétalos. Dicho loto está cerrado en forma de capullo sobre el punto central o corazón del loto -esa chispa de fuego eléctrico que por su acción o vitalidad innata, actuando sobre la sustancia del loto, atrae hacia sí la suficiente cantidad de sustancia para formar tres pétalos internos y proteger a la chispa central, siendo sin embargo de la misma sustancia o esencia que los otros nueve pétalos. El estudiante debe cuidar de no materializar demasiado su concepto; por lo tanto seria conveniente que considere este tema desde otros ángulos y emplee otros términos para expresar la misma idea. Por ejemplo, el cuerpo egoico podría ser visto de las cuatro maneras siguientes: <pin lang="en">817</pin>
+
+<p><pin lang="en">818</pin> Como nueve vibraciones, emanando de un punto central, cuyas pulsaciones o radiaciones producen tres vibraciones principales de gran fuerza que circulan alrededor del centro; las nueve vibraciones recorren un sendero en diagonal hasta que llegan a la periferia de la esfera egoica de influencia. Allí dan la vuelta, formando de esta manera la ya conocida forma esferoidal del cuerpo causal.</p>
+
+Como nueve pétalos de un loto, irradiando desde un centro común y ocultando dentro de sí tres pétalos centrales, que a su vez ocultan un punto de fuego central. Las irradiaciones que <pin lang="es">651</pin> <pin lang="es">652</pin> surgen de la punta de cada pétalo producen la ilusión de una forma esferoidal.
+
+<div style={{width: "100%", backgroundColor: "white"}}>
+ <img src={require("../assets/loto-egoico.gif").default} style={{width:"100%"}}/>
+</div>
+
+Como nueve rayos de una rueda, que convergen hacia un eje central, que en sí es triple y oculta la energía central o dinamo de fuerza -generadora de toda actividad.
+
+Como nueve tipos de energía que producen emanaciones definidas provenientes de una unidad triple, la cual a su vez sale de una unidad central de fuerza.
+
+Para nuestro propósito, la segunda definición será la más útil en el intento de imaginarnos la constitución, la naturaleza, el método de desarrollo y la verdadera evolución del Ego, actuando en el cuerpo causal.
+
+En términos de fuego, las mismas verdades pueden ser expresadas del modo siguiente, lo cual debería ser reflexionado detenidamente por quienes estudian este tratado:
+
+|     |                     |            |                   |                              |
+| --- | ------------------- | ---------- | ----------------- | ---------------------------- |
+| 1.  | Fuego eléctrico     | Espíritu   | Aspecto voluntad  | La Joya en el loto           |
+| 2.  | Fuego solar         | Conciencia | Aspecto amor      | Los nueve pétalos.           |
+| 3.  | Fuego por fricción. | Sustancia  | Aspecto actividad | Los tres átomos permanentes. |
+
+<p><pin lang="en">819</pin> En el fuego eléctrico, la Mónada está representada en su triple naturaleza y significa ese tipo de manifestación que será desarrollado en su más elevada etapa en el próximo sistema solar.</p>
+
+En el fuego solar, estos Pitris solares en su formación nónuple representan y posibilitan el desarrollo de la conciencia de la Mónada, por intermedio del Ego en los tres mundos de la evolución humana.
+
+En el fuego por fricción, los Pitris lunares están representados por, y constituyen, el yo inferior, la personalidad, o esos vehículos mediante los cuales el Ego a su vez adquiere experiencia en los planos inferiores.
+
+Sin embargo, dentro del huevo áurico egoico los tres son uno en manifestación, continuando constantemente el intercambio de energía y vitalidad. El Espíritu emplea al Alma o Ego como vehículo de iluminación, y el Ego emplea al Cuaternario inferior como medio de expresión. Por lo tanto, la evolución del Espíritu puede dividirse en tres etapas:
+
+En la primera actúan principalmente los Pitris lunares y preparan a los cuerpos inferiores para que sean ocupados. Las vibraciones inferiores controlan y el “fuego por fricción” calienta y nutre, excluyendo todo lo demás.
+
+En la segunda los Pitris solares predominan gradualmente, desarrollándose la conciencia egoica. Los cuerpos son ocupados por el Pensador, los controla y somete gradualmente a su voluntad y <pin lang="es">653</pin> propósito y los descarta oportunamente. Las vibraciones intermedias controlan y el fuego solar irradia, iluminando en el curso de la evolución a los cuerpos inferiores; gradualmente aumenta su calor, y con el tiempo ayuda a destruir las formas.
+
+En la tercera es revelado el fuego eléctrico y por la intensidad de su llama apaga los otros fuegos. Los Pitris lunares han cumplido su cometido, los Pitris solares <pin lang="en">820</pin> han desarrollado al ente autoconsciente, el hombre, y la Mónada (habiendo utilizado a ambos) los descarta y se retrae en sí misma, pero esta vez con lo adquirido durante la existencia física, además del amor-sabiduría desarrollado.
+
+El Antiguo Comentario expresa esta verdad de la manera siguiente:
+
+> El Señor de la Vida Misma está sentado en el corazón y vigila. Los Señores del fuego solar prosiguen su tarea y se sacrifican por los Señores lunares de los planos inferiores. Mueren, pero resucitan. Se retiran, y vuelven nuevamente. Sin embargo, el Señor de la Vida permanece sentado.
+>
+> Los Señores lunares comienzan a morir; su poder empieza a declinar sucesivamente en cada ciclo. Los Señores solares brillan triunfalmente, y arrojan los cuádruples al fuego -el fuego que consume y disipa la forma.
+>
+> La tarea se repite muchas veces; los ciclos crecen y declinan hasta el día triunfante en que el Señor solar se proclame a Sí mismo y se reconozca como regente.
+>
+> Entonces el Señor de la Vida se da vuelta y se yergue en todo Su poder. Consume a los Señores solares, que perecen al igual que los Señores lunares. Pronuncia una Palabra; el fuego desciende. La llama surge. El fuego inferior ha desaparecido a través de la llama del calor solar y el fuego intermedio ha desaparecido por la intensidad del fuego de los Cielos.
+>
+> Nada queda, salvo una triple llama de color violeta, índigo y amarillo. ÉSA desaparece. Entonces reina la oscuridad. Sin embargo, el Señor de la Vida persiste, aunque invisible.
+
+Como sabemos, el loto egoico está formado por tres hileras -cada hilera compuesta de tres pétalos y todas protegen el capullo interno, donde se oculta la joya. Tratamos aquí la evolución, formación, vitalización, nutrición y eventual desarrollo de los pétalos. Será útil para el estudiante, en esta etapa, recordar que nos referimos principalmente al desarrollo del segundo aspecto del hombre, el aspecto amor-sabiduría, considerando sólo en forma secundaria el tercer aspecto o la actividad, que tiene sus centros de energía en los tres átomos permanentes.
+
+<p><pin lang="en">821</pin> A estas tres hileras de pétalos se las denomina en terminología esotérica:</p>
+
+1. La tríada del “conocimiento externo” o los señores de la sabiduría activa. <pin lang="es">654</pin>
+2. La triada de la hilera media del “amor” o los señores del amor activo.
+3. La tríada interna del “sacrificio” o los señores de la voluntad activa.
+
+La primera constituye el resumen de la experiencia y del desarrollo de conciencia alcanzado, la segunda la aplicación de ese conocimiento, en forma de amor y servicio, o la expresión del Yo y el no-yo vibrando recíprocamente, y la tercera, la plena expresión del conocimiento y del amor dedicados a sacrificar todo, conscientemente, para llevar a cabo los planes del Logos planetario y realizar Sus propósitos grupalmente. Cada uno de estos tres grupos de pétalos están guiados por los tres grupos de Agnishvattas y formados con su propia sustancia que, en esencia, constituyen el triple Ego durante su manifestación. A través de ellos fluye la fuerza y la energía coherente de esas misteriosas Entidades a quienes (cuando se considera a la familia humana como un todo) denominamos:
+
+1. Los Budas o Señores de Actividad.
+2. Los Budas o Señores de Amor Compasivo.
+3. Los Budas de Sacrificio, de los Cuales el Señor del Mundo es, para el hombre, el exponente más conocido.
+
+A través de estos tres grupos fluye esa triple energía que halla su expresión en el plano mental y en relación con el reino humano en los tres grupos de Agnishvattas o Pitris solares mencionados anteriormente. Estos grupos forman la sustancia de las tres hileras de pétalos, y cada uno ejerce también una influencia especial sobre el pétalo particular que pertenece a su especial grado de vibración. Para mayor claridad podemos clasificar los distintos pétalos a fin de que el estudiante pueda <pin lang="en">822</pin> obtener una mejor comprensión de la conformación de su propio vehículo causal y una idea de las diferentes relaciones triangulares:
+
+
+
 
 
 
