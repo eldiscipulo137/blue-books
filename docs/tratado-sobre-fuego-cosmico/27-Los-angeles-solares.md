@@ -1152,6 +1152,47 @@ La primera constituye el resumen de la experiencia y del desarrollo de concienci
 
 A través de estos tres grupos fluye esa triple energía que halla su expresión en el plano mental y en relación con el reino humano en los tres grupos de Agnishvattas o Pitris solares mencionados anteriormente. Estos grupos forman la sustancia de las tres hileras de pétalos, y cada uno ejerce también una influencia especial sobre el pétalo particular que pertenece a su especial grado de vibración. Para mayor claridad podemos clasificar los distintos pétalos a fin de que el estudiante pueda <pin lang="en">822</pin> obtener una mejor comprensión de la conformación de su propio vehículo causal y una idea de las diferentes relaciones triangulares:
 
+#### I. La triada externa de “conocimiento”:
+
+|     |             |                                  |                                        |
+| --- | ----------- | -------------------------------- | -------------------------------------- |
+| a.  | 1er. Pétalo | Conocimiento en el plano físico. | Colores: anaranjado, verde y violeta.  |
+| b.  | 2do. Pétalo | Amor en el plano físico.         | Colores: anaranjado, rosado y azul.    |
+| c.  | 3er. pétalo | Sacrificio en el plano físico.   | Colores: anaranjado,amarillo e índigo. |
+
+Estos tres pétalos están organizados y vitalizados en el Aula de la Ignorancia, pero permanecen cerrados y sólo comienzan a abrirse cuando está organizado el segundo círculo.
+
+#### II. La triada intermedia de “amor”:
+
+|                             |             |                                                                                  |                                                                 |
+| --------------------------- | ----------- | -------------------------------------------------------------------------------- | --------------------------------------------------------------- |
+| a.                          | 1er. pétalo | Conocimiento superior aplicado por medio del amor en los planos físico y astral. | Colores: rosado y los tres originales. <pin lang="es">655</pin> |
+| <pin lang="es">656</pin> b. | 2do. pétalo | Amor inteligente superior en los planos físico y astral.                         | Colores: rosado y los tres originales.                          |
+| c.                          | 3er. pétalo | Sacrificio inteligente amoroso en los planos físico y astral.                    | Colores: rosado y los mismos originales.                        |
+
+Los tres pétalos conservan el color anaranjado fundamental, pero añaden el rosado en cada pétalo, de manera que ya se ven cuatro colores. Dichos pétalos están organizados y vitalizados en el Aula del Aprendizaje, pero permanecen cerrados. La hilera externa de pétalos se abre simultáneamente hasta quedar completamente abierta, revelando la segunda hilera; la tercera permanece protegida.
+
+<div style={{width: "100%", backgroundColor: "white"}}>
+ <img src={require("../assets/petalos-loto-egoico.gif").default} style={{width:"100%"}}/>
+</div>
+
+#### III. La tríada interna de “sacrificio”:
+
+|     |             |                                                                                                                                     |                                                            |
+| --- | ----------- | ----------------------------------------------------------------------------------------------------------------------------------- | ---------------------------------------------------------- |
+| a.  | 1er pétalo  | La Voluntad de sacrificarse por medio del conocimiento en el plano mental y así dominar inteligentemente al triple hombre inferior. | Colores: amarillo más anaranjado, verde, violeta y rosado. |
+| b.  | 2do. Pétalo | La voluntad de sacrificarse por medio del amor en el plano mental, a fin de prestar servicio.                                       | Colores: amarillo más anaranjado, violeta, rosado          |
+y azul.
+| c.	|3er. Pétalo	|El sumo y eterno sacrificio de todo lo que existe.	|Colores: amarillo, anaranjado, rosado, azul e índigo.
+
+
+
+
+
+
+
+
+
 
 
 
