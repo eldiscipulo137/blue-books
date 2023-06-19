@@ -1049,7 +1049,7 @@ esperarse antes de que hayan transcurridos ciento cincuenta años.
 **La Ciencia de la Psicología**. Las teorías psicoanalistas que (aunque indicadoras de progreso) tienden todavía hacia una dirección equívoca, pueden resultar desastrosas para el desarrollo superior de la raza, salvo que se desentrañe la verdadera naturaleza de la “siquís”. Cuando la mente pública capte, aunque ligeramente, los siguientes hechos brevemente enunciados, la tendencia de la educación popular, la finalidad de la ciencia política y la meta del esfuerzo económico y social tomarán una nueva y mejor dirección. Estos hechos pueden ser resumidos en los siguientes postulados:
 
 1. El hombre es divino en esencia. [^42] Siempre ha sido enunciado esto en el transcurso de las épocas, pero hasta ahora sigue siendo una bella teoría o creencia y no constituye un hecho científico comprobado ni aceptado universalmente. <pin lang="en">810</pin>
-2. El hombre es un fragmento de la Mente Universal o alma mundial y, como fragmento, participa de los instintos y de la cualidad de esa alma, tal como se manifiesta por medio de la familia humana. Por lo tanto, la unidad es sólo posible en el plano de la mente. Si esto es verdad, tenderá a desarrollar en el cerebro físico la comprensión consciente de las afiliaciones grupales en el plano mental, el reconocimiento consciente de las relaciones, ideales y metas grupales, y la manifestación consciente de esa continuidad de conciencia que actualmente es el objetivo de la evolución. Luego transferirá la conciencia de la raza <pin lang="es">646</pin> del plano físico al mental, y tenderá a la consiguiente solución de todos los problemas actuales por medio del “conocimiento, amor y sacrificio”. Esto nos emancipará del desorden actual en el plano físico. Conducirá a educar al público respecto a la naturaleza del hombre y al desarrollo de los poderes latentes en él -poderes que lo liberarán de sus limitaciones actuales y producirá en la familia humana un repudio colectivo hacia las condiciones actuales. Cuando todos los hombres se conozcan a sí mismo y conozcan a los demás como entes autoconscientes divinos que funcionan principalmente en el cuerpo causal utilizando los tres vehículos inferiores, sólo como medio para hacer contacto con los tres planos inferiores, tendremos gobierno, política, economía y orden social erigidos sobre bases sólidas, saludables y divinas.
+2. El hombre es un fragmento de la Mente Universal o alma mundial [^43] y, como fragmento, participa de los instintos y de la cualidad de esa alma, tal como se manifiesta por medio de la familia humana. Por lo tanto, la unidad es sólo posible en el plano de la mente. Si esto es verdad, tenderá a desarrollar en el cerebro físico la comprensión consciente de las afiliaciones grupales en el plano mental, el reconocimiento consciente de las relaciones, ideales y metas grupales, y la manifestación consciente de esa continuidad de conciencia que actualmente es el objetivo de la evolución. Luego transferirá la conciencia de la raza <pin lang="es">646</pin> del plano físico al mental, y tenderá a la consiguiente solución de todos los problemas actuales por medio del “conocimiento, amor y sacrificio”. Esto nos emancipará del desorden actual en el plano físico. Conducirá a educar al público respecto a la naturaleza del hombre y al desarrollo de los poderes latentes en él -poderes que lo liberarán de sus limitaciones actuales y producirá en la familia humana un repudio colectivo hacia las condiciones actuales. Cuando todos los hombres se conozcan a sí mismo y conozcan a los demás como entes autoconscientes divinos que funcionan principalmente en el cuerpo causal utilizando los tres vehículos inferiores, sólo como medio para hacer contacto con los tres planos inferiores, tendremos gobierno, política, economía y orden social erigidos sobre bases sólidas, saludables y divinas.
 3. La naturaleza inferior y los tres vehículos del hombre son un conglomerado de vidas menores, y la naturaleza grupal, el tipo de actividad y la respuesta colectiva de dichas vidas dependen de él, las cuales <pin lang="en">811</pin> -por medio de la energía o actividad del Señor solar- serán desarrolladas y elevadas posteriormente a la categoría humana.
 
 Cuando estos tres hechos sean bien comprendidos, sólo entonces tendremos un conocimiento correcto y exacto de la naturaleza del hombre, lo cual hará que se produzcan tres cambios en las ideas de la época:
@@ -1068,7 +1068,7 @@ Cuando estos tres hechos sean bien comprendidos, sólo entonces tendremos un con
    2. La comprensión de las leyes de la individualización, y el efecto que produce la influencia del cuarto reino o humano, sobre el tercero o reino animal.
    3. El trabajo que realiza un Avatar de menor categoría, Quien vendrá a principios del próximo siglo para revelar al hombre su relación con el tercer reino. Su camino está siendo preparado por aquellos que actualmente se ocupan de despertar el interés del público por medio de <pin lang="en">814</pin> sociedades de beneficencia y protectoras de animales y a través de relatos publicados en libros y periódicos.
 
- Ha expresado H. P. B. [^43] que el sentido de responsabilidad es uno de los primeros indicios del control ejercido por el ego; a medida que la humanidad esté regida por dicha influencia las condiciones se mejorarán lenta y constantemente en todos los sectores de la vida.
+ Ha expresado H. P. B. [^44] que el sentido de responsabilidad es uno de los primeros indicios del control ejercido por el ego; a medida que la humanidad esté regida por dicha influencia las condiciones se mejorarán lenta y constantemente en todos los sectores de la vida.
 
 3. **En el mundo de la educación** la comprensión de la verdadera naturaleza del hombre traerá un cambio fundamental en los métodos de enseñanza. Se procurará especialmente enseñar al hombre la realidad de la existencia del Ego en su propio plano, la naturaleza de los cuerpos lunares y el método para alinear los cuerpos inferiores, a fin de que el Ego pueda comunicarse directamente con el cerebro físico, controlar la naturaleza inferior y realizar sus propósitos. Por medio de la concentración y la meditación se enseñará a los hombres cómo pueden adquirir conocimiento por sí mismos, desarrollar la intuición y extraer los recursos del Ego. Así se enseñará al hombre a pensar, a asumir el control del cuerpo mental y a desarrollar sus poderes latentes.
 
@@ -1185,10 +1185,35 @@ Los tres pétalos conservan el color anaranjado fundamental, pero añaden el ros
 y azul.
 | c.	|3er. Pétalo	|El sumo y eterno sacrificio de todo lo que existe.	|Colores: amarillo, anaranjado, rosado, azul e índigo.
 
+Oculto en el misterio de los colores subsidiarios y del gradual fulgor dentro del loto de cinco colores, en cualquier pétalo por vez, se halla el misterio de los cinco Kumaras. [^45] El estudiante que busca el significado del predominio del color anaranjado y del rosado se está acercando al secreto de los dos Kumaras caídos. Sobre esto no es posible decir más, pero los colores contienen la clave esotérica de este gran acontecimiento. El circulo interno de pétalos está organizado y vitalizado en el Aula de la Sabiduría, abriéndose simultáneamente la hilera intermedia, de manera que dos hileras de pétalos se hallan debidamente abiertas y sólo la tercera permanece cerrada. La apertura final se efectúa durante el período en que se recorre el Sendero de Iniciación, y en la ronda actual se acelera mediante los ritos de la iniciación y los ingentes y anormales esfuerzos que hace el hombre ayudado por el trabajo eléctrico del Iniciador, quien maneja el Cetro de Poder.
 
+Aunque hayamos clasificado de esta manera las distintas <pin lang="es">657</pin> etapas de desarrollo, sólo hemos tratado el promedio general, extrayendo estos datos de los registros a los cuales tenemos acceso, estando clasificados en relación con este tema, en tres grupos vinculados a
 
+1. las Mónadas de poder,
+2. las Mónadas de amor,
+3. las Mónadas de actividad.
 
+El estudiante debe tener en cuenta que los pétalos tienden a abrirse de acuerdo a estas clasificaciones. Por ejemplo, por ser Mónadas de Amor, en la mayoría de los hombres <pin lang="en">825</pin> los pétalos de amor se abren con más facilidad, pues la naturaleza de la manifestación actual es amor; siendo en cualquier dirección (inferior, elevada o espiritual) la línea de menor resistencia para la mayoría. Sin embargo, las Mónadas de actividad son numerosas e influyentes, y el primer pétalo de cada hilera es el que se abre más fácilmente. Para ambos grupos el pétalo del “conocimiento” es el primero en abrirse, dada la naturaleza inherente de los mismos Manasadevas y su vibración fundamental. Para la generalidad, el pétalo del sacrificio es el más difícil, pues siempre involucra los dos factores de inteligencia y amor -conocimiento inteligente y amor hacia aquello que debe ser salvado por el sacrificio.
 
+En las tres hileras de pétalos se oculta otra clave del misterio de las 777 encarnaciones. Las cifras no indican el número exacto de años, sólo son representativas y simbólicas, y tienen por objeto dar la idea de tres ciclos de duración variable, basados en la naturaleza septenaria de la mónada en manifestación.
+
+Primero. Las 700 encarnaciones. Se refiere a la apertura de la hilera externa. Constituye el período más largo. La vibración inicial es lenta y pesada y han de transcurrir millones de vidas antes que el intercambio de energía entre el Ego y su reflejo, el yo personal (el triple hombre inferior), sea tal que la conciencia del hombre “despierte” esotéricamente en el “Aula del Aprendizaje”. En lo que respecta al hombre evolucionado de la actualidad, estas encarnaciones tuvieron lugar en la cadena lunar y, en algunos casos, en ciertos planetas vinculados a la ronda interna. Esta circunstancia hizo necesaria su “venida” durante la raza raíz Atlante. Los hombres de este tipo se negaron a encarnar antes porque los cuerpos eran demasiado burdos, repitiéndose cíclicamente (en el plano más inferior) la negación de las Mónadas a encarnar en los albores de la oportunidad manvantárica. No se cometió ningún “pecado” real; su privilegio fue la discriminación; esa negación <pin lang="en">826</pin> ha influido sobre las condiciones que existen en la tierra, base de las grandes dificultades de clase que -en todos los países- han sido <pin lang="es">658</pin> fuente de dificultades y el fundamento esotérico del sistema de “castas”, del que tanto se abusa hoy en la India. El problema del capital y el trabajo tiene sus raíces en la diferencia subjetiva que existe entre los Egos “capaces e incapaces”, entre los entes de la familia humana que han egresado del Aula de la Ignorancia y aquellos que aún recorren a tientas sus oscuros y sombríos corredores, y entre esos Egos que sólo son “capullos” y aquellos que han organizado la hilera externa de pétalos, los cuales ya están listos y en condiciones de abrirse.
+
+Debe reflexionarse cuidadosamente sobre la idea de un septenario de siglos y, como siempre en todo tema ocultista, también ha de tenerse en cuenta la idea de la triplicidad, conjuntamente con un período sintetizador, resumen de la triple coordinación:
+
+|                         |          |
+| ----------------------- | -------- |
+| 3 períodos de 3 decenas | 90 años  |
+| 1 período sintetizador  | 10 años  |
+| SUMAN                   | 100 años |
+| Repetido siete veces    | 7        |
+| SON                     | 700 años |
+
+Cada ciclo (nuevamente en forma figurada) vitaliza a uno de los pétalos más que a otro, teniendo un efecto definido sobre cada uno.
+
+Segundo. Las 70 encarnaciones. Se refiere a la apertura de la hilera media. Mucho podrá aprenderse si se trata de comprender lo que ocultamente significa que algún iniciado (como el Cristo) enviara a sus seguidores en grupos de setenta, de dos en dos. Estas setenta encarnaciones se ocupan principalmente de desarrollar el amor en la vida personal, la evolución de la naturaleza astral, basándose en el reconocimiento de los pares de opuestos, y el equilibrio de ambos por el amor y el servicio.
+
+Este ciclo abarca el período que ha pasado el hombre en el <pin lang="en">827</pin> Aula del Aprendizaje y tiene su analogía en la raza raíz Atlante y en el conflicto que existió entonces entre los Señores de la Faz Oscura y la Fraternidad de la Luz. En la vida de cada individuo tiene lugar, durante dicho período, un conflicto similar que finalmente termina en el kurukshetra o campo de batalla que otorga al hombre el derecho de hollar el Sendero de Probación y oportunamente el privilegio de permanecer ante el Portal de la Iniciación. También se ha de estudiar el significado numérico de los guarismos; éstos se hallan ocultos en el número diez, o tres ciclos de tres períodos menores, formando cada uno nueve, y un período sintetizador, produciendo la consumación y un período dentro del <pin lang="es">659</pin> ciclo mayor; esto está representado por el diez de la perfección [^46] [^47] relativa. La interacción entre el impulso kámico y la energía manásica produce la comprensión, en la conciencia del Ego, de lo <pin lang="en">828</pin> que ha aprendido en las dos Aulas; la hilera externa de pétalos se abre mientras la hilera central está por abrirse.
 
 
 
@@ -1350,3 +1375,35 @@ y azul.
 [^42]: Cada ser humano es una encarnación de Dios. D.S. VI, 91. Compárese IV, 82; D. S. VI, 114, y las palabras bíblicas: "He dicho, sois Dioses." "¿No sabéis que sois el Templo del Espíritu Santo?" Ningún Ser puede transformarse en un Dios sin pasar por los ciclos humanos. D. S. IV, 331. Por lo tanto, el hombre es igual a Dios en el sentido que representa los pares de opuestos, bien y mal, luz y oscuridad, macho y hembra, etc. Es una dualidad. Representa también a Dios porque es una triplicidad, siendo tres en uno y uno en tres. D. S. IV, 93-94. Por hombre se entiende la divina Mónada. D. S. IV, 187-188.
 
 [^43]: D. S. I, 79-80-81.
+
+[^44]: D. S. VI, 211.
+
+[^45]: D. S. II, 158.
+
+[^46]: El Número 10. D. S. I, 143-145.
+
+    1. Los tres, incluídos dentro del círculo, son los sagrados Cuatro.
+       1. Adi-Sanat, el Número, Unidad. El Logos o el Uno en encarnación física. Dios y el hombre funcionan como unidades en sus respectivos planos físicos.
+       2. La Voz de la Palabra, los números, pues Él es uno y nueve. El segundo aspecto. La idea personificada. Conciencia.
+       3. El Cuadrado amorfo, el aspecto materia, sustancia y forma. Limitación.
+          1. Un Logos solar, que da forma a un sistema solar.
+          2. Un Logos planetario, que da forma a un esquema planetario.
+          3. Un hombre que da forma a sus cuerpos de manifestación.
+    2. Los diez constituyen el universo arupa.
+
+    Aquí se hace hincapié sobre las Vidas subjetivas, o la Conciencia Inteligencia dentro de las formas. Estos diez podrían denominarse:
+
+      1. El primer Logos...Shiva...Padre.......... Voluntad.
+      2. El segundo Logos..Vishnu..Hijo........... Amor-Sabiduría.
+      3. El tercer Logos...Brahma..Espíritu Santo. Inteligencia, influenciando a la Materia, Madre.
+      4. El Señor de la Voluntad Cósmica........Primer Rayo.
+      5. El Señor del Amor Cósmico..............Segundo Rayo.
+      6. El Señor de la Inteligencia Cósmica....Tercer Rayo.
+      7. El Señor de la Armonía Cósmica.........Cuarto Rayo.
+      8. El Señor del Conocimiento Cósmico......Quinto Rayo.
+      9. El Señor de la Devoción Cósmica........Sexto Rayo.
+      10. El Señor del Ceremonial Cósmico........Séptimo Rayo.
+
+    Ellos son la conciencia subjetiva, la causa de la manifestación.
+
+[^47]: D. S. III, 407-408-409.
