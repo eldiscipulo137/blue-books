@@ -1223,6 +1223,47 @@ Las dos hileras externas de pétalos son estimuladas en un sentido nuevo y espec
 
 El fuego o energía de estas dos hileras empieza a circular por <pin lang="es">660</pin> el triángulo atómico, y cuando esto sucede, marca una época muy importante; ha culminado el trabajo dual tanto en la vida personal inferior como en la egoica:
 
+1. Las cuatro espirillas inferiores de los átomos permanentes están completamente activas (dos grupos de dos espirillas cada uno) y la quinta se halla en proceso de iniciar una actividad similar. El triángulo desarrolla una actividad circular, pero aún no ha logrado su plena brillantez ni su rotación o revolución cuatridimensional.
+2. Las dos hileras de pétalos están “activas”, una plenamente abierta y la otra por abrirse.
+
+De esta manera dos aspectos de la vida divina van evidenciándose en la vida del probacionista, y aunque todavía queda mucho por hacer, sin embargo, cuando la hilera interna de pétalos está “activa” -ayudada por el curioso y anormal proceso de la iniciación- el otro aspecto adquirirá una importancia similar y producirá al hombre perfecto en los tres <pin lang="en">829</pin> mundos. Así culmina el trabajo de los Pitris solares.
+
+Aquí debe hacerse hincapié sobre la anormalidad del proceso de la iniciación.
+
+La iniciación constituye un gran experimento que nuestro Logos planetario lleva a cabo durante esta ronda. En las rondas anteriores y quizás en las posteriores, el proceso seguirá la ley natural. En la ronda y cadenas actuales, nuestro Logos planetario en Su elevado nivel practica lo que en términos esotéricos se denomina yoga y está pasando por ciertos procesos de entrenamiento a fin de estimular Sus centros. Esto es aprovechado en la Tierra por la Jerarquía para producir mediante Su guía ciertos resultados en las razas. Este proceso es optativo y el hombre puede -si así lo elige- seguir el proceso normal y emplear eones para efectuar lo que algunos han preferido realizar en un período más breve, por medio de un proceso forzado y autoelegido.
+
+Al finalizar las 777 encarnaciones, el hombre atraviesa el portal de la iniciación y entra en un breve proceso sintetizador o período final en el cual cosecha los frutos de la experiencia adquirida en las dos primeras aulas, transmuta el conocimiento en sabiduría, transforma la sombra de las cosas vistas en la energía de aquello que es y finalmente logra liberarse de todas las formas inferiores que tratan de mantenerlo prisionero. Este período de iniciación está dividido en siete etapas, pero sólo cinco conciernen a la evolución del Ego, así como los cinco Kumaras conciernen principalmente a la evolución de la humanidad en este sistema y en este planeta. También tenemos los cuatro kumaras exotéricos, de <pin lang="es">661</pin> los cuales dos cayeron, y los tres esotéricos de los cuales Uno reúne las fuerzas vitales de los cuatro exotéricos, formando con Ellos los cinco ya mencionados. El estudiante debe analizar esto desde el punto de vista de la energía o fuerza vital, considerándola desde el ángulo de la polaridad y del matrimonio místico, de <pin lang="en">830</pin> la comprensión del verdadero significado de la relación sexual, del encuentro y la fusión de los pares de opuestos y del trabajo que realiza el que sintetiza todos los tipos de energía. Por ejemplo:
+
+1. El Ego sintetiza o reúne en sí las fuerzas vitales del cuádruple hombre inferior.
+2. El Rayo del Mahachoan en la tierra sintetiza las fuerzas vitales de los cuatro inferiores, siendo el tercer subrayo de nuestro Rayo planetario.
+3. El tercer Rayo mayor del sistema solar se fusiona con los cuatro menores.
+4. El quinto Kumara fusiona y une en Sí Mismo el trabajo de los cuatro inferiores.
+
+El reflejo de todo esto en el microcosmos puede ser estudiado por el hombre que comprende que el cuerpo físico es el vehículo de todos los principios.
+
+Cuando se recibe la tercera Iniciación, se abre la hilera interna de pétalos, y el loto puede verse en pleno florecimiento y en toda su belleza. En la cuarta Iniciación el capullo interno se abre por el efecto de la fuerza eléctrica del Cetro que atrae el poder del rayo sintético del sistema solar mismo; así es revelada la joya interna. El trabajo ha sido realizado; la energía que reside en los átomos permanentes ha vitalizado todas las espirillas, mientras que la fuerza perfeccionada del loto y la voluntad dinámica de la chispa central entran en plena y unida actividad, dando lugar a un triple despliegue de fuerza vital que provoca la desintegración de la forma y los siguientes resultados:
+
+1. Los átomos permanentes se hacen radiactivos y, por consiguiente, su “círculo no se pasa” ya no es una barrera para las unidades menores que se hallan dentro; entonces los distintos grupos de vidas electrónicas salen y vuelven al depósito eterno. Forman una sustancia de orden muy <pin lang="en">831</pin> elevado y producirán las formas de esas existencias que ocuparán vehículos en otro ciclo.
+2. Los pétalos son destruidos por la acción del fuego, y la multiplicidad de vidas dévicas que los componen y les proporcionan coherencia y cualidad son recogidas nuevamente en el Corazón del Sol por los Pitris solares de orden muy elevado; en otro sistema solar volverán a exteriorizarse. <pin lang="es">662</pin> La sustancia atómica será empleada en otro manvantara, pero a los Pitris solares no se les pedirá nuevamente que se sacrifiquen hasta el próximo sistema solar, en que vendrán como Rayos planetarios, repitiendo así en dicho sistema, en niveles monádicos, lo que han hecho en éste. Entonces serán Logos planetarios.
+3. La Vida central eléctrica retorna a su fuente, escapando de la prisión y funcionando como un centro de energía en los planos cósmicos de energía etérica.
+
+Con lo antedicho hemos tratado de dar una idea general del proceso evolutivo en relación con el Ego y su progreso, regido por las leyes kármica y cíclica. Si el estudiante medita sobre estas dos leyes, le será evidente que ambas podrían ser resumidas en el término genérico de Ley del Ritmo. Toda manifestación es el resultado del efecto producido por cierta energía en actividad; el empleo de energía en determinada dirección necesitará un consumo similar en la dirección contraria. Esto, en términos del Ego y su experiencia vital, da lugar a tres etapas:
+
+1. En la primera la energía manifestada actúa externamente. El Yo se identifica con sus cuerpos. Esta etapa es estrictamente personal.
+2. En la segunda se procura hacer un reajuste de acuerdo a la ley, y el Yo no se identifica totalmente con sus cuerpos ni Consigo Mismo. Está <pin lang="en">832</pin> aprendiendo a elegir entre los pares de opuestos. En este período la lucha es terrible y predomina el desorden, siendo el campo de batalla donde se ha de lograr el reajuste y el laboratorio donde el discípulo genera suficiente fuerza transmutadora que lo conduce al otro extremo de la etapa anterior -esa etapa donde la energía se manifestará dentro y no fuera.
+3. En la 3a Parte la energía del Ego está centrada en el corazón del círculo y no en la periferia, dedicándose allí al servicio grupal por medio del esfuerzo consciente del Ego. La naturaleza inferior es reemplazada por la atracción que ejerce aquello que es más superior que el Ego. Entonces debe repetirse el proceso anterior en una vuelta más alta de la espiral y la energía monádica comienza a actuar sobre el Ego, así como la egoica actuó sobre la personalidad. La Mónada, que se ha identificado con el Ego (su manifestación externa), también comienza a buscar su propio y verdadero centro “dentro del Corazón”; puede observarse nuevamente en los niveles superiores los resultados que afectan a la distribución y conservación de la energía.
+
+Se debe poner de relieve este procedimiento porque es importante que todos los ocultistas aprendan pensar en términos de energía y fuerza, interpretándolos como algo diferente de los <pin lang="es">663</pin> cuerpos o instrumentos empleados. El místico ha reconocido este factor “fuerza”, pero ha trabajado únicamente con el aspecto positivo de la misma. El ocultista debe reconocer y trabajar con tres tipos de fuerza o energía; aquí reside la diferencia entre su trabajo y el del místico. El ocultista reconoce:
+
+|                             |                                                                                                                                    |
+| --------------------------- | ---------------------------------------------------------------------------------------------------------------------------------- |
+| 1. La fuerza positiva       | Aquello que energetiza.                                                                                                            |
+| 2. La fuerza negativa       | Aquello que es receptor de energía; lo que actúa o toma forma bajo el impacto de la fuerza positiva. <pin lang="en">833</pin>      |
+| 3. La luz o fuerza armónica | Aquello que se produce por la unión de ambos, dando por resultado energía irradiante, siendo el resultado del equilibrio de ambos. |
+
+Estos tres aspectos de la energía han sido denominados, como frecuentemente se ha dicho:
+
+
 
 
 
