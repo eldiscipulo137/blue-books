@@ -1287,9 +1287,55 @@ Existe una constelación similar situada entre la Osa menor y nuestro sistema y 
 
 El párrafo que antecede está especialmente escrito así porque los efectos se hacen sentir en el cuerpo más inferior de todos, siendo responsables de la mayor parte de lo que ignorantemente se denomina “magia negra”. Ambas constelaciones han terminado sus ciclos y se están “disolviendo”. Parte de su fuerza vital y energía han sido transferidas a nuestro sistema solar, <pin lang="en">838</pin> análogamente como la fuerza vital lunar fue transferida a nuestra tierra, siendo la causa de la mayoría del mal cíclico. El proceso de descomposición y las emanaciones maléficas que todavía se producen tienen poder para influenciar a las formas que responden a lo que constituyó para ellas una vibración anterior. La sustancia de estas formas está magnéticamente vinculada al cuerpo en descomposición, así como el doble etérico está conectado con su cuerpo denso, siendo allí donde se manifiestan los efectos. El fuego purificador es la única cura para esta corrupción magnética, empleándolo libremente los Logos planetarios en Sus esquemas y el Logos solar en el sistema.
 
+#### FUEGO PURIFICADOR
 
+> El fuego ardía débilmente. Un fulgor rojo opaco dormitaba dentro del Corazón de la Madre. Su calor apenas se sentía. Las dos primeras líneas internas vibraban al quemarse, pero las restantes estaban frías.
+>
+> Los Hijos de Dios miraron abajo desde el centro más interno. Luego desviaron Sus miradas y pensamientos hacia otras esferas. Todavía no había llegado Su hora. Los fuegos elementales no habían preparado el altar para los Señores. El fuego del sacrificio esperaba en su lugar elevado y aumentaba el constante fulgor que estaba debajo.
+>
+> El fuego ardió con más intensidad, y lentamente se encendieron el primero y el segundo.
+>
+> Su fulgor se convirtió en una línea de brillante fuego, sin embargo los cinco permanecieron intocados. Los Hijos de Dios miraron nuevamente hacia abajo. Durante un breve segundo pensaron en la <pin lang="es">668</pin> Madre, y a medida que pensaban se encendió el tercer fuego. Rápidamente apartaron Su mirada, porque la forma aún no Los había llamado. El calor estaba latente, y ningún calor externo ascendía hasta Su lugar.
+>
+> Pasaron los eones. El fulgor aumentó. Las Esferas tomaron forma, pero se disiparon rápidamente por faltarles fuerza coherente. Desaparecieron. Reaparecieron. Incesante acción, ruido, fuego y calor latente caracterizaban Sus ciclos. Pero los Lhas en Su cielo elevado despreciaron este trabajo elemental y miraron dentro de Sí Mismos. Meditaban.
+>
+> <hr/>
+>
+> El fulgor se convirtió en un fuego constante y se vieron diminutas llamas.
+> 
+> La primera, la segunda y la tercera se convirtieron en tres líneas de fuego, y un triángulo fue consumado. Sin embargo, los cuatro permanecen pasivos <pin lang="en">839</pin> y no responden al calor. De esta manera los ciclos y las vidas elementales pasan y vuelven a pasar y su trabajo continúa.
+>
+> Las formas se solidifican, pero su duración es breve. Permanecen inmóviles, sin embargo pasan. Ha llegado el momento del gran despertar y ya no descienden sino que ascienden.
+>
+> Éste es el intervalo que los Lhas esperaron en Su elevado lugar. Aún no pueden entrar en las formas preparadas, pero sienten que Su hora se acerca. Meditan nuevamente y durante un minuto contemplan los millares de triples fuegos, hasta que responde el cuarto.
+>
+> Los sesenta segundos empleados en dinámica concentración producen formas de triple naturaleza, tres juegos de formas y miles de a tres. El Corazón de la Madre se contrae, y se expande con estos sesenta alientos ígneos. Se unen las líneas, formando cubos, que protegen al fuego interno. El altar está preparado y permanece en forma cuádruple. Fulgura, rojo en el centro y cálido externamente.
+>
+> <hr/>
+>
+> El altar llamea. Asciende Su calor, sin embargo no quema ni se consume. Su calor, sin llama, llega a una esfera superior; los Hijos de Dios durante un breve período, Se calientan en él, pero no se acercan hasta que haya pasado otro ciclo. Esperan el momento, el momento del sacrificio.
+>
+> Los Señores solares, tomando la Palabra tal como es emitida por los Hijos de Dios, Se yerguen en la implacabilidad de la vida solar y se acercan al altar. Las cuatro líneas fulguran y arden. El sol aplica un rayo; los Señores solares lo hacen pasar a través de Su sustancia, y nuevamente se acercan al altar. La quinta línea despierta y se convierte en un punto fulgurante, luego otra línea de color rojo opaco mide la distancia que media entre el altar y Aquel que vigila.
+>
+> El quíntuple fuego dinámico comienza a parpadear y a arder.
+>
+> Todavía no alumbra lo externo, simplemente fulgura. Los eones pasan, los ciclos vienen y van.
+>
+> Continuamente los Señores solares Se sacrifican; constituyen el fuego sobre el altar. El cuarto provee el combustible.
+>
+> <hr/>
+>
+> Los Hijos de Dios aún vigilan. El trabajo se acerca a su consumación final. Los Eternos Lhas en Su lugar elevado se llaman entre si y cuatro repiten el llamado: “El fuego arde. ¿Es suficiente el calor?”
+>
+> <pin lang="en">840</pin> Dos responden mutuamente: “El fuego arde; el altar está casi <pin lang="es">669</pin> destruido. ¿Qué sucede luego? Agreguen combustible al fuego de los cielos. Soplen el fuego y aventen su llama hasta que arda con gran intensidad".
+>
+> Así emite el mandato Aquel que durante incontables eones ha vigilado y permanecido silencioso. Los Lhas exhalan. Algo impide que el aliento pase. Piden ayuda. Aparece Aquel que aún no había sido visto.
+>
+> Levanta Su mano. El uno, el dos, el tres, el cuatro y el cinco se fusionan en uno y se mezclan con el sexto. La llama asciende, respondiendo al aliento. La desaparición final del cubo es necesaria, y luego el trabajo queda terminado.
+>
+> Extraído de los Archivos de la Logia.
 
-
+### Nombres de los lotos egoicos.
 
 
 
