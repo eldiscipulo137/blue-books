@@ -221,7 +221,7 @@ En esto y en la función de la quinta Jerarquía se halla oculto el enigma de lo
 | 4. El Señor cósmico de Armonía               | 2                          |
 | 5. El Señor cósmico de Conocimiento Concreto | 3                          |
 | 6. El Señor cósmico de Idealismo Abstracto   | 4                          |
-| 7. 	El Señor cósmico de Magia Ceremonial     | 5 <pin lang="en">705</pin> |
+| 7. El Señor cósmico de Magia Ceremonial      | 5 <pin lang="en">705</pin> |
 
 Debe meditarse sobre esto y tener presente Su estrecha vinculación como transmisor de fuerza dentro de la cadena lunar, la tercera cadena, en relación con el tercer reino o reino animal, y la tercera ronda. Uno de los símbolos que puede encontrarse en los registros arcaicos en lugar de Su nombre o descripción es una estrella de cinco puntas invertida, con el Triángulo luminoso en el centro. Se observará que los puntos involucrados en este símbolo suman ocho -representan ese estado peculiar de conciencia que se produce cuando la mente es el matador de lo Real. Aquí se oculta el secreto del avitchi [^17] planetario, así como el tercer esquema principal puede ser considerado como el avitchi del sistema; en un tiempo la Luna mantenía una posición análoga en relación con nuestro esquema. Esto debe ser interpretado en términos de conciencia y no de lugar.
 
@@ -248,25 +248,25 @@ El cuerpo causal, llamado a veces (inadecuadamente) “karana sarira”, está l
 Cuando llegan los Manasadevas para producir la autoconciencia y llevar a cabo la encarnación de los Egos divinos, cuatro cosas tienen lugar en ese plano. Si a éstas el estudiante agrega lo que ya he citado en diversos libros ocultistas referente al efecto de la individualización en el hombre animal y la aparición como <pin lang="es">571</pin> identidad autoconsciente en el plano físico, le proporcionará una hipótesis activa mediante la cual el hombre puede emprender científicamente su propio desarrollo. A continuación se mencionarán de acuerdo a su aparición en tiempo y espacio:
 
 1. Primero. Se inician en el tercer subplano del plano mental ciertos impulsos vibratorios –nueve en total- que corresponden a la quíntuple vibración de estos Manasadevas en conjunción con la cuádruple vibración iniciada desde abajo, inherente a la materia de este subplano, el quinto desde el punto de vista inferior. Esto produce “el loto egoico nónuple”, que en esta etapa está muy cerrado, con los nueve pétalos plegados uno sobre otro, siendo “luz” vibrante y centelleante pero no de brillo excesivo. Estos “capullos de loto” se agrupan de acuerdo a la influencia particular de los quíntuples Dhyanes, los que actúan sobre ellos, construyéndolos con Su propia sustancia y coloreándolos débilmente con el “fuego de manas”.
-2. <pin lang="en">709</pin> Segundo. Aparece un triángulo en el plano mental producido por la actividad manásica; este triángulo de fuego comienza a circular lentamente entre el átomo manásico permanente y un punto en el centro del loto egoico y desde allí a la unidad mental que ha aparecido en el cuarto subplano por medio del instinto innato, la cual se asemeja a la mentalidad. Este triángulo de fuego, formado por fuerza manásica, puramente eléctrica acrecienta su brillo para lograr una respuesta vibratoria tanto de lo inferior como de lo superior. Este triángulo es el núcleo del antakarana. *El trabajo del hombre altamente desarrollado consiste en reducir este triángulo a una unidad y, por medio de su aspiración elevada (que es simplemente deseo transmutado, el cual afecta a la materia mental), lo dirige al Sendero, reproduciendo así, en forma sintética y más elevada, el “sendero” anterior por el cual descendió el Espíritu para tomar Posesión de su vehículo, el cuerpo causal, llegando desde allí al Yo personal inferior*.
+2. <pin lang="en">709</pin> Segundo. Aparece un triángulo en el plano mental producido por la actividad manásica; este triángulo de fuego comienza a circular lentamente entre el átomo manásico permanente y un punto en el centro del loto egoico y desde allí a la unidad mental que ha aparecido en el cuarto subplano por medio del instinto innato, la cual se asemeja a la mentalidad. Este triángulo de fuego, formado por fuerza manásica, puramente eléctrica acrecienta su brillo para lograr una respuesta vibratoria tanto de lo inferior como de lo superior. Este triángulo es el núcleo del antakarana. _El trabajo del hombre altamente desarrollado consiste en reducir este triángulo a una unidad y, por medio de su aspiración elevada (que es simplemente deseo transmutado, el cual afecta a la materia mental), lo dirige al Sendero, reproduciendo así, en forma sintética y más elevada, el “sendero” anterior por el cual descendió el Espíritu para tomar Posesión de su vehículo, el cuerpo causal, llegando desde allí al Yo personal inferior_.
 
 :::note Recuerda
 
-Aparece un triángulo en el plano mental producido por la actividad manásica; este triángulo de fuego comienza a circular lentamente entre el átomo manásico permanente y un punto en el centro del loto egoico y desde allí a la unidad mental que ha aparecido en el cuarto subplano por medio del instinto innato, la cual se asemeja a la mentalidad. Este triángulo de fuego, formado por fuerza manásica, puramente eléctrica acrecienta su brillo para lograr una respuesta vibratoria tanto de lo inferior como de lo superior. Este triángulo es el núcleo del antakarana. *El trabajo del hombre altamente desarrollado consiste en reducir este triángulo a una unidad y, por medio de su aspiración elevada (que es simplemente deseo transmutado, el cual afecta a la materia mental), lo dirige al Sendero, reproduciendo así, en forma sintética y más elevada, el “sendero” anterior por el cual descendió el Espíritu para tomar Posesión de su vehículo, el cuerpo causal, llegando desde allí al Yo personal inferior*.
+Aparece un triángulo en el plano mental producido por la actividad manásica; este triángulo de fuego comienza a circular lentamente entre el átomo manásico permanente y un punto en el centro del loto egoico y desde allí a la unidad mental que ha aparecido en el cuarto subplano por medio del instinto innato, la cual se asemeja a la mentalidad. Este triángulo de fuego, formado por fuerza manásica, puramente eléctrica acrecienta su brillo para lograr una respuesta vibratoria tanto de lo inferior como de lo superior. Este triángulo es el núcleo del antakarana. _El trabajo del hombre altamente desarrollado consiste en reducir este triángulo a una unidad y, por medio de su aspiración elevada (que es simplemente deseo transmutado, el cual afecta a la materia mental), lo dirige al Sendero, reproduciendo así, en forma sintética y más elevada, el “sendero” anterior por el cual descendió el Espíritu para tomar Posesión de su vehículo, el cuerpo causal, llegando desde allí al Yo personal inferior_.
 
 :::
 
 3. Tercero. En cierta etapa de actividad vibratoria, el trabajo realizado por los Señores de la Llama, al producir un cuerpo o forma y una vibración que exige respuesta prácticamente da lugar a un acontecimiento simultáneo.
 
- En la línea del triángulo manásico tiene lugar una afluencia que desciende desde budi hasta alcanzar un punto en el centro mismo del loto. Allí, por el poder de su propia vibración, se origina un cambio en la apariencia del loto. En el corazón mismo del loto y aparecen tres pétalos más que se cierran sobre la llama central, cubriéndola totalmente y permaneciendo encerrada hasta llegado el momento de revelar la “Joya en el Loto”. Como vemos, el loto egoico está compuesto de doce pétalos, nueve de los cuales <pin lang="es">572</pin> aparecen en esta etapa en forma de capullo, estando tres totalmente ocultos y secretos.
+En la línea del triángulo manásico tiene lugar una afluencia que desciende desde budi hasta alcanzar un punto en el centro mismo del loto. Allí, por el poder de su propia vibración, se origina un cambio en la apariencia del loto. En el corazón mismo del loto y aparecen tres pétalos más que se cierran sobre la llama central, cubriéndola totalmente y permaneciendo encerrada hasta llegado el momento de revelar la “Joya en el Loto”. Como vemos, el loto egoico está compuesto de doce pétalos, nueve de los cuales <pin lang="es">572</pin> aparecen en esta etapa en forma de capullo, estando tres totalmente ocultos y secretos.
 
- Al mismo tiempo los tres átomos permanentes están encerrados dentro del loto y el clarividente los ve como tres puntos de luz en la parte inferior del capullo, debajo <pin lang="en">710</pin> de la parte central. En esta etapa forman un triángulo que arde tenuemente. El cuerpo causal, aunque en estado embrionario, pero completo en su triple naturaleza, está preparado para entrar en plena actividad a medida que transcurren los eones. El aspecto materia, que concierne a la forma material del hombre en los tres mundos, o a su Yo personal inteligente activo, puede ser desarrollado y controlado por intermedio de la unidad mental del átomo astral permanente y del átomo físico permanente. El aspecto Espíritu se halla oculto en el corazón del loto, para ser revelado a su debido tiempo cuando los manasadevas hayan realizado su trabajo. La voluntad perdurable está allí eternamente. El aspecto conciencia que personifica el amor sabiduría del Ego divino, al revelarse por intermedio de la mente, se encuentra predominantemente allí, y en los nueve pétalos y en su capacidad vibratoria residen ocultas toda oportunidad, capacidad innata para progresar y habilidad para funcionar como una unidad autoconsciente, esa entidad denominada Hombre. [^19] Mahadeva reside en el corazón, Surya o Vishnu lo revela en Su esencia como la Sabiduría del Amor y el Amor de la Sabiduría, y Brahma, el Logos Creador, hace posible esta revelación. El Padre en los <pin lang="en">711</pin> Cielos será revelado por el Cristo, el Hijo, mediante el método de la <pin lang="es">573</pin> encarnación, siendo posible por el trabajo del Espíritu Santo. Todo esto se lleva a cabo por el sacrificio y la meditación de ciertas entidades cósmicas que “Se ofrendan Ellas Mismas” a fin de que el Hombre pueda ser. Dan de su misma esencia aquello que se necesita para producir el principio individualizador y lo que llamamos “autoconciencia”, a fin de que el Espíritu divino adquiera una vida más plena dentro de las limitaciones que proporciona la forma, mediante las lecciones aprendidas durante el largo peregrinaje y la “asimilación lograda en múltiples existencias”.
+Al mismo tiempo los tres átomos permanentes están encerrados dentro del loto y el clarividente los ve como tres puntos de luz en la parte inferior del capullo, debajo <pin lang="en">710</pin> de la parte central. En esta etapa forman un triángulo que arde tenuemente. El cuerpo causal, aunque en estado embrionario, pero completo en su triple naturaleza, está preparado para entrar en plena actividad a medida que transcurren los eones. El aspecto materia, que concierne a la forma material del hombre en los tres mundos, o a su Yo personal inteligente activo, puede ser desarrollado y controlado por intermedio de la unidad mental del átomo astral permanente y del átomo físico permanente. El aspecto Espíritu se halla oculto en el corazón del loto, para ser revelado a su debido tiempo cuando los manasadevas hayan realizado su trabajo. La voluntad perdurable está allí eternamente. El aspecto conciencia que personifica el amor sabiduría del Ego divino, al revelarse por intermedio de la mente, se encuentra predominantemente allí, y en los nueve pétalos y en su capacidad vibratoria residen ocultas toda oportunidad, capacidad innata para progresar y habilidad para funcionar como una unidad autoconsciente, esa entidad denominada Hombre. [^19] Mahadeva reside en el corazón, Surya o Vishnu lo revela en Su esencia como la Sabiduría del Amor y el Amor de la Sabiduría, y Brahma, el Logos Creador, hace posible esta revelación. El Padre en los <pin lang="en">711</pin> Cielos será revelado por el Cristo, el Hijo, mediante el método de la <pin lang="es">573</pin> encarnación, siendo posible por el trabajo del Espíritu Santo. Todo esto se lleva a cabo por el sacrificio y la meditación de ciertas entidades cósmicas que “Se ofrendan Ellas Mismas” a fin de que el Hombre pueda ser. Dan de su misma esencia aquello que se necesita para producir el principio individualizador y lo que llamamos “autoconciencia”, a fin de que el Espíritu divino adquiera una vida más plena dentro de las limitaciones que proporciona la forma, mediante las lecciones aprendidas durante el largo peregrinaje y la “asimilación lograda en múltiples existencias”.
 
 4. Cuarto. Cuando han ocurrido estos tres acontecimientos la luz y el fuego que circulan alrededor del triángulo manásico se retiran al centro del loto, y este “prototipo” del futuro antakarana, si puede expresarse así, desaparece. La triple energía de los pétalos, los átomos y la “joya” se han centralizado, porque ha de generarse el impulso que hace descender energía desde el nuevo vehículo causal hasta los tres mundos del esfuerzo humano.
 
 Hemos tratado el método de la individualización mediante la introducción de los Señores de la Llama, pues es el método más importante en este sistema solar; cualquier método que se siga en los diversos esquemas y cadenas la individualización -durante la etapa intermedia- constituye la ley universal. Debido a que las condiciones kármicas tienen que ver con un Logos planetario, podrán efectuarse modificaciones y ponerse en acción a manasadevas cuya actividad puede no ser exactamente igual, pero los resultados son siempre similares, pues los Egos divinos en sus cuerpos causales poseen instrumentos análogos para trabajar.
 
-El último punto de gran significado es que los *Agnishvattas construyen los pétalos empleando Su propia sustancia* –sustancia energetizada por el principio <pin lang="en">712</pin> del “Yo ismo” o ahamkara. Éstos energetizan a los átomos permanentes con Su propia fuerza positiva, para llevar, oportunamente, a su máxima actividad y utilidad a la quinta espirilla. Toda posibilidad y esperanza, todo optimismo y todo éxito futuro se hallan ocultos en esto.
+El último punto de gran significado es que los _Agnishvattas construyen los pétalos empleando Su propia sustancia_ –sustancia energetizada por el principio <pin lang="en">712</pin> del “Yo ismo” o ahamkara. Éstos energetizan a los átomos permanentes con Su propia fuerza positiva, para llevar, oportunamente, a su máxima actividad y utilidad a la quinta espirilla. Toda posibilidad y esperanza, todo optimismo y todo éxito futuro se hallan ocultos en esto.
 
 Como hemos visto, el trabajo de los Agnishvattas en el plano mental dio por resultado un descenso de fuerza o energía desde la Mónada (o espíritu) y, en conjunción con la energía del cuaternario inferior, se produjo la aparición del cuerpo del Ego en el plano mental. En la luz eléctrica común tenemos una vaga ilustración del pensamiento que estoy tratando de expresar. La luz se crea por la aproximación de los dos polos. Mediante un tipo análogo de fenómeno eléctrico brilla la luz de la Mónada, pero tenemos que extender la idea a los planos más sutiles y tratar con siete tipos de fuerza o energía en conexión con un polo y con cuatro respecto al otro. Para el proceso de la individualización <pin lang="es">574</pin> existe una fórmula científica que explica este contacto dual, con sus diferentes tipos de energía, mediante un solo símbolo y guarismo, pero no puede ser revelado aquí.
 
@@ -782,29 +782,29 @@ El trabajo de los Ángeles solares es triple, consiste en:
 
 1. **Dirigir la vibración hacia el triángulo atómico.** Aquí debe recordarse un hecho muy interesante. Los tres átomos permanentes o los tres puntos del triángulo, no mantienen siempre la misma posición respecto al centro del loto, sino que de acuerdo al grado de desarrollo así será la posición de los átomos y la captación de la fuerza que afluye. En las primeras etapas, el átomo físico permanente es el primero en recibir dicha afluencia, haciéndola pasar a través de su sistema al átomo astral permanente y a la unidad mental. La fuerza circula cuatro veces alrededor del triángulo (nuestra ronda es la cuarta) hasta que hace contacto nuevamente con la unidad mental y la energía se centraliza en la cuarta espirilla de la unidad mental. Sólo entonces comienzan su trabajo los Pitris lunares y se establece la coordinación de la sustancia que formará la envoltura mental, actuando luego con el cuerpo astral y, finalmente, con el cuerpo etérico.
 
- En una etapa posterior de la evolución del hombre (en la que se halla hoy el hombre común) primeramente se hace contacto con el átomo astral permanente, y al circular la energía a través de él, llega a los otros dos. En la etapa del hombre intelectual avanzado, la unidad mental ocupa el principal lugar. En este caso existe la posibilidad de alinear los tres cuerpos, lo que más tarde será un hecho consumado. La quinta espirilla en los dos átomos inferiores aumenta su vibración. Como ya se sabe, hay únicamente cuatro espirillas en la unidad mental, y en el momento en que está plenamente activa es posible la coordinación del antakarana. Entonces se producen cambios en el loto egoico y se abren los pétalos, dependiendo parcialmente de la vibración y del despertar de las espirillas.
+En una etapa posterior de la evolución del hombre (en la que se halla hoy el hombre común) primeramente se hace contacto con el átomo astral permanente, y al circular la energía a través de él, llega a los otros dos. En la etapa del hombre intelectual avanzado, la unidad mental ocupa el principal lugar. En este caso existe la posibilidad de alinear los tres cuerpos, lo que más tarde será un hecho consumado. La quinta espirilla en los dos átomos inferiores aumenta su vibración. Como ya se sabe, hay únicamente cuatro espirillas en la unidad mental, y en el momento en que está plenamente activa es posible la coordinación del antakarana. Entonces se producen cambios en el loto egoico y se abren los pétalos, dependiendo parcialmente de la vibración y del despertar de las espirillas.
 
  <p><pin lang="en">776</pin> El estudiante debe recordar que tan pronto como la unidad mental se convierte en el ápice del triángulo atómico, se produce <pin lang="es">621</pin> una condición donde la fuerza futura penetrará simultáneamente por los tres átomos a través de los tres pétalos abiertos del círculo externo, entonces el hombre habrá alcanzado una etapa bien definida en la evolución. Dirigir y aplicar la fuerza a los átomos es la tarea de los Pitris solares. A medida que progresa la evolución su correspondiente trabajo se hace más complejo, pues los pétalos se van abriendo y el triángulo gira más rápidamente.</p>
 
 2. **Pronunciar el mántram que hará posibles las 777 encarnaciones**.
 
- Cada cifra de esta triplicidad representa:
+Cada cifra de esta triplicidad representa:
 
-   1. Un ciclo de manifestación egoica.
-   2. Un sonido particular que permitirá al Ego expresar algún subrayo del rayo egoico.
-   3. Los tres círculos de pétalos que se abren como resultado de las emanaciones.
-   4. El grupo particular de manasadevas que forman el cuerpo causal del Ego involucrado.
+1.  Un ciclo de manifestación egoica.
+2.  Un sonido particular que permitirá al Ego expresar algún subrayo del rayo egoico.
+3.  Los tres círculos de pétalos que se abren como resultado de las emanaciones.
+4.  El grupo particular de manasadevas que forman el cuerpo causal del Ego involucrado.
 
- Por consiguiente, los sonidos mántricos se basan en guarismos y por medio del mántram (que aumenta en volumen, profundidad y cantidad de sonidos involucrados a medida que pasa el tiempo) la fuerza es dirigida, los correspondientes pétalos son impulsados a la actividad y los Pitris lunares se hacen conscientes de la tarea de preparación para cualquier encarnación.
+Por consiguiente, los sonidos mántricos se basan en guarismos y por medio del mántram (que aumenta en volumen, profundidad y cantidad de sonidos involucrados a medida que pasa el tiempo) la fuerza es dirigida, los correspondientes pétalos son impulsados a la actividad y los Pitris lunares se hacen conscientes de la tarea de preparación para cualquier encarnación.
 
 3. **Construir lo que hace falta para completar el cuerpo causal**.
 
- En las primeras etapas este trabajo es comparativamente insignificante, pero cuando se ha alcanzado la tercera etapa de desarrollo y el hombre manifiesta carácter y capacidad, su trabajo aumenta rápidamente, ocupándose de perfeccionar el cuerpo egoico, o de expandir la conciencia egoica si se prefieren términos metafísicos. Esto <pin lang="en">777</pin> se lleva a cabo por el material que proporciona el yo inferior. Cuando la Personalidad inferior se va haciendo gradualmente radiactiva, dichas irradiaciones son atraídas por el ego positivo y absorbidas en su naturaleza por la actividad de los Angeles solares.
+En las primeras etapas este trabajo es comparativamente insignificante, pero cuando se ha alcanzado la tercera etapa de desarrollo y el hombre manifiesta carácter y capacidad, su trabajo aumenta rápidamente, ocupándose de perfeccionar el cuerpo egoico, o de expandir la conciencia egoica si se prefieren términos metafísicos. Esto <pin lang="en">777</pin> se lleva a cabo por el material que proporciona el yo inferior. Cuando la Personalidad inferior se va haciendo gradualmente radiactiva, dichas irradiaciones son atraídas por el ego positivo y absorbidas en su naturaleza por la actividad de los Angeles solares.
 
 Estas tres actividades constituyen el trabajo principal de los Pitris solares en lo que concierne al hombre. Cuando involucra al grupo y no al individuo, su trabajo reside en ajustar las unidades egoicas a sus grupos y hacerlas conscientes del mismo, pero esto sólo es posible en las etapas finales de la evolución cuando el trabajo del grupo más elevado de los Agnishvattas ha sido bien realizado. El grupo medio, que forma los nueve pétalos, es siempre el más activo. Los Pitris trabajan vinculados con el grupo inferior, quien transmite la energía directamente al triángulo atómico, que <pin lang="es">622</pin> a su vez lo recibe del grupo medio. No es posible dar más detalles sobre esto pues el trabajo de los Agnishvattas es grande y complicado y, en ciertos detalles, difiere en los distintos esquemas. Quienes trabajan en los esquemas de Urano, Neptuno y Saturno lo hacen en forma algo distinta a aquellos que actúan en el esquema de Venus, Vulcano, Marte, Mercurio, Júpiter, la Tierra y el esquema exotérico de Saturno, haciendo lo mismo los Manasadevas de la ronda interna. Se observará que tenemos nuevamente una triplicidad de grupos que representa una triplicidad de fuerza, y aquí hay una insinuación. En la lista central de esquemas, el grupo medio y el inferior de Agnishvattas están activos. En los otros, el grupo superior y el del medio son los que dominan, porque estos planetas, los más esotéricos y sagrados de la manifestación, se ocupan sólo de los egos que se hallan en el Sendero y, por lo tanto, están grupalmente activos. Esto podría esperarse de Urano, Neptuno y Saturno, pues constituyen los esquemas planetarios sintetizadores y proporcionan condiciones aptas únicamente para la etapas muy avanzadas. Son los planetas “cosechadores”. <pin lang="en">778</pin>
 
 Respecto a estos Egos existe mucha confusión en las mentes de los estudiantes debido a que no han comprendido (como lo señala H. P. B.) [^36] que La Doctrina Secreta se ocupa principalmente del esquema planetario de nuestra Tierra; tiene muy poco que impartir respecto a los demás esquemas y a los métodos para desarrollar la autoconciencia. El procedimiento general en los niveles mentales es el mismo, pero como cada esquema personifica un tipo de fuerza particular, la peculiaridad de esa fuerza colorará toda su evolución y los Agnishvattas harán el trabajo que les corresponde. No es posible establecer cuál es la coloración particular del Rayo que personifica a nuestro esquema, pues es uno de los más recónditos misterios que se revela en la iniciación; los estudiantes deben recordar que los fundamentos expuestos aquí no se refieren específicamente a nuestro esquema.
- 
+
 En la literatura ocultista moderna se expone mucho acerca del proceso seguido para lograr la perfección de los Egos que han elegido permanecer con la Jerarquía de nuestro planeta y seguir sus métodos de desarrollo (desde el chela hasta el adepto). Pero prácticamente nada se ha dicho sobre los muchos egos que alcanzan cierta etapa elevada de evolución en nuestro esquema y luego son transferidos a uno de los tres esquemas sintetizadores, pasando primero a ese esquema que es el polo opuesto del nuestro, y de allí al esquema sintetizador. Numéricamente son más que los que permanecen dentro del esquema de la Tierra. Cualquiera sea el <pin lang="es">623</pin> esquema sintetizador que los atraiga, indica el comienzo de su recorrido hacia uno de los tres senderos cósmicos. El trabajo de los Manasadevas se lleva a cabo en todo el sistema, teniendo lugar una constante circulación y transmisión de energía y de unidades de fuerza que personifican esa energía. Esta transmisión se hace posible en cualquier esquema cuando el <pin lang="en">779</pin> cuarto reino o humano llega a ser radiactivo; realmente esto marca el principio del período de oscuración. Venus es un ejemplo. Metafísicamente señala el punto en que los Logos comienzan a desprenderse de Sus cuerpos físico densos o de los tres mundos del esfuerzo humano.
 
 Como hemos visto, los tres grupos de Agnishvattas vinculados con la evolución del hombre en el nivel mental, tiene cada uno una función específica, y el grupo más inferior se ocupa principalmente de transmitir la fuerza o energía a los tres átomos permanentes. Cuando éste emite dos veces el sonido del mántram egoico se producen cambios y los Pitris lunares (que se ocupan de los tres vehículos inferiores) inician su trabajo, facilitándoles la clave los Ángeles solares.
@@ -864,11 +864,11 @@ Vinculadas a la construcción de los cuerpos del hombre ocurren en la manifestac
 
 <p><pin lang="en">787</pin> En todo el trabajo de construir formas suceden ciertas cosas muy importantes que conciernen al Ego más que a las envolturas, aunque la acción refleja entre el yo personal inferior y el superior es tan estrecha que casi son inseparables.</p>
 
-El *momento en que el Ego se apropia de la forma*. Esto tiene lugar únicamente después que la cuarta espirilla ha comenzado a vibrar, variando el período de acuerdo al poder que ejerce el ego sobre el yo inferior. Idéntica analogía, en conexión con el vehículo físico denso, puede observarse cuando el Ego cesa su trabajo de influenciar y, en algún período, entre el cuarto y el séptimo años, hace contacto con el cerebro físico del niño. Un suceso similar ocurre con los vehículos etérico, astral y mental.
+El _momento en que el Ego se apropia de la forma_. Esto tiene lugar únicamente después que la cuarta espirilla ha comenzado a vibrar, variando el período de acuerdo al poder que ejerce el ego sobre el yo inferior. Idéntica analogía, en conexión con el vehículo físico denso, puede observarse cuando el Ego cesa su trabajo de influenciar y, en algún período, entre el cuarto y el séptimo años, hace contacto con el cerebro físico del niño. Un suceso similar ocurre con los vehículos etérico, astral y mental.
 
-El *momento en que la energía del Ego se transmite de una forma inferior a otra*. Siempre se pasa por alto el hecho de que el sendero de encarnación no se recorre rápidamente, sino que el Ego desciende muy lentamente y toma posesión gradual de sus vehículos; cuanto menos evolucionado es el hombre, más lento es el proceso. Consideramos aquí el período que transcurre después que el Ego ha dado el primer paso hacia el descenso y no el tiempo transcurrido entre dos encarnaciones. Esta tarea de pasar a un plano, con el propósito de encarnar, señala una crisis definida que se caracteriza por el sacrificio voluntario, la amorosa apropiación de la sustancia y la energetización de ésta para que entre en actividad.
+El _momento en que la energía del Ego se transmite de una forma inferior a otra_. Siempre se pasa por alto el hecho de que el sendero de encarnación no se recorre rápidamente, sino que el Ego desciende muy lentamente y toma posesión gradual de sus vehículos; cuanto menos evolucionado es el hombre, más lento es el proceso. Consideramos aquí el período que transcurre después que el Ego ha dado el primer paso hacia el descenso y no el tiempo transcurrido entre dos encarnaciones. Esta tarea de pasar a un plano, con el propósito de encarnar, señala una crisis definida que se caracteriza por el sacrificio voluntario, la amorosa apropiación de la sustancia y la energetización de ésta para que entre en actividad.
 
-El *momento en que el tipo particular de fuerza se apropia y energetiza cualquier forma determinada*. Esto hace que el cuerpo implicado sea influenciado por:
+El _momento en que el tipo particular de fuerza se apropia y energetiza cualquier forma determinada_. Esto hace que el cuerpo implicado sea influenciado por:
 
 1. El rayo egoico.
 2. Un subrayo particular del rayo egoico.
@@ -968,11 +968,11 @@ También podríamos explicarlo diciendo que el aspecto voluntad o impulso inicia
 
 Si el estudiante considera estos puntos, es evidente que sólo podrá estudiar los efectos producidos por la yuxtaposición de los pares de opuestos; no puede disociarlos mentalmente ni considerar <pin lang="es">638</pin> al Espíritu o a la materia por sí mismos; tampoco puede disociarse del cuerpo físico del hombre el átomo de sustancia de ese cuerpo y considerarse libre de las influencias de la forma. Todos los átomos están siempre controlados por los mismos factores, así como un hombre en el cuerpo de un Logos planetario y un Logos planetario dentro de Su todo mayor son igualmente controlados por los siguientes principios básicos:
 
-1. *La influencia y la cualidad del órgano o unidad*, en la cual encuentra su lugar. En el átomo humano esto significa su fuerza o influencia grupal.
-2. *La influencia vital de todo el cuerpo físico* del que cualquier átomo es parte integrante. En el átomo humano esto significa la influencia del centro particular en el cual su grupo egoico tiene un lugar y el tipo de energía que personifica.
-3. *La influencia vital del deseo o del cuerpo astral*, el agente kármico más fuerte que debe tenerse en cuenta. <pin lang="en">800</pin> En el átomo humano esto involucra la influencia que ejercen los tres centros que forman cualquier “triángulo específico de fuerza” en el cuerpo del Hombre celestial, influyendo grandemente para que los grupos de Egos se liberen de la manifestación.
-4. *Las influencias vitales del cuerpo mental* o de ese principio que introduce en el átomo la cualidad activa de la forma, rige la reacción del mismo hacia su vida grupal y permite que se manifieste la cualidad de su vida. En el átomo humano concierne a esas causas incidentales al Rayo de un hombre, o constituye literalmente la influencia que ejerce la vida del Logos planetario cuando actúa como Vida autoconsciente en Su propio plano, a medida que desarrolla Sus propios proyectos y, en consecuencia, impele a la actividad a las células de Su cuerpo, como mero incidente, en lo que a Él (vida central básica) atañe.
-5. *El impulso vital del Pensador que actúa en el cuerpo causal*, quien -ya se refiera a la vida celular, a una gran abstracción o al Absoluto- es sin embargo un poderoso y activo factor en la implantación del ritmo sobre el átomo de cada cuerpo. En el átomo humano atrae la influencia de la vida del Logos solar, pues esa Vida impone el ritmo sobre cada átomo humano en el sistema, haciéndolo por intermedio de la sustancia y su cualidad inherente, la sensación.
+1. _La influencia y la cualidad del órgano o unidad_, en la cual encuentra su lugar. En el átomo humano esto significa su fuerza o influencia grupal.
+2. _La influencia vital de todo el cuerpo físico_ del que cualquier átomo es parte integrante. En el átomo humano esto significa la influencia del centro particular en el cual su grupo egoico tiene un lugar y el tipo de energía que personifica.
+3. _La influencia vital del deseo o del cuerpo astral_, el agente kármico más fuerte que debe tenerse en cuenta. <pin lang="en">800</pin> En el átomo humano esto involucra la influencia que ejercen los tres centros que forman cualquier “triángulo específico de fuerza” en el cuerpo del Hombre celestial, influyendo grandemente para que los grupos de Egos se liberen de la manifestación.
+4. _Las influencias vitales del cuerpo mental_ o de ese principio que introduce en el átomo la cualidad activa de la forma, rige la reacción del mismo hacia su vida grupal y permite que se manifieste la cualidad de su vida. En el átomo humano concierne a esas causas incidentales al Rayo de un hombre, o constituye literalmente la influencia que ejerce la vida del Logos planetario cuando actúa como Vida autoconsciente en Su propio plano, a medida que desarrolla Sus propios proyectos y, en consecuencia, impele a la actividad a las células de Su cuerpo, como mero incidente, en lo que a Él (vida central básica) atañe.
+5. _El impulso vital del Pensador que actúa en el cuerpo causal_, quien -ya se refiera a la vida celular, a una gran abstracción o al Absoluto- es sin embargo un poderoso y activo factor en la implantación del ritmo sobre el átomo de cada cuerpo. En el átomo humano atrae la influencia de la vida del Logos solar, pues esa Vida impone el ritmo sobre cada átomo humano en el sistema, haciéndolo por intermedio de la sustancia y su cualidad inherente, la sensación.
 
 Con estos conceptos sólo hemos estudiado el karma desde un nuevo ángulo, procurando demostrar los orígenes de las “influencias” que actúan sobre todas las vidas atómicas. <pin lang="es">639</pin>
 
@@ -1055,20 +1055,20 @@ esperarse antes de que hayan transcurridos ciento cincuenta años.
 Cuando estos tres hechos sean bien comprendidos, sólo entonces tendremos un conocimiento correcto y exacto de la naturaleza del hombre, lo cual hará que se produzcan tres cambios en las ideas de la época:
 
 1. Un reajuste en el conocimiento que posee el hombre respecto a la medicina, traerá por resultado un verdadero conocimiento del cuerpo físico, un mejoramiento en su tratamiento y protección, obteniéndose así un conocimiento más exacto de las leyes de la salud. El objetivo del médico consistirá entonces en averiguar qué es lo que impide, en la vida del hombre, a la energía egoica llegar a todas las partes de su ser; descubrir los pensamientos que lo embargan y ocasionan la inercia del aspecto voluntad que lo conducen a obrar mal; comprobar qué hay en el cuerpo emocional que afecta al sistema nervioso y obstruye la afluencia de energía proveniente de los pétalos de amor del loto egoico (vía el átomo astral permanente) al cuerpo astral, y de éste al sistema nervioso; descubrir que obstáculo hay en el cuerpo etérico que impide la correcta afluencia de prana o vitalidad solar, a todas las partes del cuerpo.
- 
- Es esencial que en el futuro los médicos comprendan que la enfermedad del cuerpo físico deriva de condiciones internas erróneas. A esto se lo tiene en cuenta en parte, pero (aunque es indiscutible en vista de las realizaciones de los científicos mentales y de <pin lang="es">647</pin> las innumerables personas que curan por la fe) no será más que una bella teoría hasta que la verdadera naturaleza del ego, su constitución, sus poderes y su campo de influencia sean debidamente comprendidos.
 
- Dicha revelación vendrá cuando los médicos acepten esta <pin lang="en">812</pin> enseñanza como una hipótesis aplicable, y luego comiencen a observar, por ejemplo, el poder de resistencia demostrado en la tierra por las grandes almas y su capacidad para trabajar a alta presión, permaneciendo prácticamente inmunes a las enfermedades, hasta que (al finalizar una útil y larga vida) el Ego elige premeditamente “retirarse” de la existencia física. Esto sucederá cuando la profesión médica se dedique a la acción preventiva, sustituyendo el actual régimen de drogas y operaciones quirúrgicas por la luz del sol, la dieta vegetariana y la aplicación de las leyes de vibración y vitalidad magnéticas. Entonces llegará la época en que se manifestarán en la tierra seres humanos mejores y más perfectos. Cuando los médicos estudien también la naturaleza del cuerpo etérico y el trabajo que efectúa el bazo como punto focal para la emanaciones pránicas, se introducirán sólidos principios y métodos qué eliminarán enfermedades tales como la tuberculosis, anemia, desnutrición y enfermedades de la sangre y de los riñones. Cuando los médicos comprendan el efecto que producen las emociones sobre el sistema nervioso, pondrán su atención al mejoramiento de las condiciones ambientales y estudiarán los efectos de las corrientes emocionales sobre los fluidos del cuerpo y principalmente sobre los grandes centros nerviosos y la columna vertebral. Cuando la relación entre el físico denso y los cuerpos más sutiles sea un hecho reconocido en los círculos médicos, entonces se sabrá cuál es el correcto tratamiento a aplicar en los casos de demencia, obsesiones y erróneas condiciones mentales, y los resultados serán más exitosos; finalmente, cuando se estudie la naturaleza de la fuerza egoica o de la energía y se comprenda mejor la función del cerebro físico como transmisor de la intención egoica, entonces se estudiará, en el hombre, la coordinación de todo su ser, se determinará con exactitud la causa que produce las dolencias, la anemia y las enfermedades y se tratará la causa, no simplemente él efecto.
+Es esencial que en el futuro los médicos comprendan que la enfermedad del cuerpo físico deriva de condiciones internas erróneas. A esto se lo tiene en cuenta en parte, pero (aunque es indiscutible en vista de las realizaciones de los científicos mentales y de <pin lang="es">647</pin> las innumerables personas que curan por la fe) no será más que una bella teoría hasta que la verdadera naturaleza del ego, su constitución, sus poderes y su campo de influencia sean debidamente comprendidos.
+
+Dicha revelación vendrá cuando los médicos acepten esta <pin lang="en">812</pin> enseñanza como una hipótesis aplicable, y luego comiencen a observar, por ejemplo, el poder de resistencia demostrado en la tierra por las grandes almas y su capacidad para trabajar a alta presión, permaneciendo prácticamente inmunes a las enfermedades, hasta que (al finalizar una útil y larga vida) el Ego elige premeditamente “retirarse” de la existencia física. Esto sucederá cuando la profesión médica se dedique a la acción preventiva, sustituyendo el actual régimen de drogas y operaciones quirúrgicas por la luz del sol, la dieta vegetariana y la aplicación de las leyes de vibración y vitalidad magnéticas. Entonces llegará la época en que se manifestarán en la tierra seres humanos mejores y más perfectos. Cuando los médicos estudien también la naturaleza del cuerpo etérico y el trabajo que efectúa el bazo como punto focal para la emanaciones pránicas, se introducirán sólidos principios y métodos qué eliminarán enfermedades tales como la tuberculosis, anemia, desnutrición y enfermedades de la sangre y de los riñones. Cuando los médicos comprendan el efecto que producen las emociones sobre el sistema nervioso, pondrán su atención al mejoramiento de las condiciones ambientales y estudiarán los efectos de las corrientes emocionales sobre los fluidos del cuerpo y principalmente sobre los grandes centros nerviosos y la columna vertebral. Cuando la relación entre el físico denso y los cuerpos más sutiles sea un hecho reconocido en los círculos médicos, entonces se sabrá cuál es el correcto tratamiento a aplicar en los casos de demencia, obsesiones y erróneas condiciones mentales, y los resultados serán más exitosos; finalmente, cuando se estudie la naturaleza de la fuerza egoica o de la energía y se comprenda mejor la función del cerebro físico como transmisor de la intención egoica, entonces se estudiará, en el hombre, la coordinación de todo su ser, se determinará con exactitud la causa que produce las dolencias, la anemia y las enfermedades y se tratará la causa, no simplemente él efecto.
 
 2. Los pensamientos del mundo social estarán dedicados a comprender la naturaleza emotiva de la <pin lang="en">813</pin> humanidad, las relaciones grupales involucradas y la interacción entre los individuos y los grupos. Dichas relaciones serán interpretadas sabia y ampliamente, y se le señalará al hombre su responsabilidad hacia las vidas menores que él anima. Esto hará que la fuerza individual sea dirigida correctamente y utilizada para equilibrar, desarrollar y refinar la sustancia de los distintos vehículos. También se le indicará la <pin lang="es">648</pin> responsabilidad que tiene, de acuerdo a la ley, con su propia familia. Esto dará lugar a la protección de la unidad familiar y su desarrollo científico; eliminará las dificultades matrimoniales y abolirá los abusos de diversa índole, que tanto prevalecen hoy en muchos círculos familiares.
 
- Además se hará hincapié sobre la responsabilidad del hombre hacia la comunidad. Se le enseñará el verdadero significado esotérico de la ciudadanía -basada en las relaciones grupales egoicas, la ley del renacimiento y el verdadero significado de la ley de karma. Se le inculcará su responsabilidad para con la nación, y el lugar que le corresponde a la comunidad dentro de la nación y el de la nación dentro de la comunidad de naciones. También, se le enseñará su responsabilidad para con el reino animal. Esto se logrará por medio de:
+Además se hará hincapié sobre la responsabilidad del hombre hacia la comunidad. Se le enseñará el verdadero significado esotérico de la ciudadanía -basada en las relaciones grupales egoicas, la ley del renacimiento y el verdadero significado de la ley de karma. Se le inculcará su responsabilidad para con la nación, y el lugar que le corresponde a la comunidad dentro de la nación y el de la nación dentro de la comunidad de naciones. También, se le enseñará su responsabilidad para con el reino animal. Esto se logrará por medio de:
 
-   1. Una mejor comprensión de su propia naturaleza animal.
-   2. La comprensión de las leyes de la individualización, y el efecto que produce la influencia del cuarto reino o humano, sobre el tercero o reino animal.
-   3. El trabajo que realiza un Avatar de menor categoría, Quien vendrá a principios del próximo siglo para revelar al hombre su relación con el tercer reino. Su camino está siendo preparado por aquellos que actualmente se ocupan de despertar el interés del público por medio de <pin lang="en">814</pin> sociedades de beneficencia y protectoras de animales y a través de relatos publicados en libros y periódicos.
+1.  Una mejor comprensión de su propia naturaleza animal.
+2.  La comprensión de las leyes de la individualización, y el efecto que produce la influencia del cuarto reino o humano, sobre el tercero o reino animal.
+3.  El trabajo que realiza un Avatar de menor categoría, Quien vendrá a principios del próximo siglo para revelar al hombre su relación con el tercer reino. Su camino está siendo preparado por aquellos que actualmente se ocupan de despertar el interés del público por medio de <pin lang="en">814</pin> sociedades de beneficencia y protectoras de animales y a través de relatos publicados en libros y periódicos.
 
- Ha expresado H. P. B. [^44] que el sentido de responsabilidad es uno de los primeros indicios del control ejercido por el ego; a medida que la humanidad esté regida por dicha influencia las condiciones se mejorarán lenta y constantemente en todos los sectores de la vida.
+Ha expresado H. P. B. [^44] que el sentido de responsabilidad es uno de los primeros indicios del control ejercido por el ego; a medida que la humanidad esté regida por dicha influencia las condiciones se mejorarán lenta y constantemente en todos los sectores de la vida.
 
 3. **En el mundo de la educación** la comprensión de la verdadera naturaleza del hombre traerá un cambio fundamental en los métodos de enseñanza. Se procurará especialmente enseñar al hombre la realidad de la existencia del Ego en su propio plano, la naturaleza de los cuerpos lunares y el método para alinear los cuerpos inferiores, a fin de que el Ego pueda comunicarse directamente con el cerebro físico, controlar la naturaleza inferior y realizar sus propósitos. Por medio de la concentración y la meditación se enseñará a los hombres cómo pueden adquirir conocimiento por sí mismos, desarrollar la intuición y extraer los recursos del Ego. Así se enseñará al hombre a pensar, a asumir el control del cuerpo mental y a desarrollar sus poderes latentes.
 
@@ -1280,7 +1280,7 @@ No sólo debemos estudiarlos en conexión con nosotros mismos y nuestro esfuerzo
 
 La palabra “lunar” es aquí un anacronismo y no es técnicamente exacta. La luna o las lunas de cualquier esquema son efectos y no causas del sistema. En ciertas relaciones planetarias son consideradas causas, pero en relación con nuestro sistema solar no lo son. Respecto a un sistema, existen también cósmicamente ciertos cuerpos en el espacio que tienen un efecto tan definido sobre el sistema como el de la luna sobre la tierra. Esto es todavía algo desconocido e incomprensible para los metafísicos, científicos y astrónomos. La guerra se libra todavía cósmicamente entre los señores “lunares” del sistema y esas Entidades análogas a los Señores solares en niveles cósmicos. Mientras los estudiantes no amplíen el concepto hasta incluir en sus cálculos a los cuerpos astral y mental logoicos a medida que el Logos trata de expresar la emoción y la mente en el plano físico (por medio de Su cuerpo físico, un sistema solar) no penetrarán mucho en el núcleo del misterio solar. Hasta que no se descubra la fuerza de los Señores lunares cósmicos, el hecho de existir detrás de nuestro sistema solar constelaciones enteras en proceso de desintegración, en tiempo y espacio, en forma similar a <pin lang="en">835</pin> la desintegración de la luna, no será conocido ni podrá comprobarse sus efectos. Oportunamente, nuestro sistema solar pasará a un estado similar. Aquí reside el verdadero misterio del mal [^48] y allí se ha de buscar la veracidad <pin lang="es">665</pin> de la “Guerra en los Cielos”. También se ha de recordar que los esquemas planetarios pasan a la oscuración y “mueren” en todos los casos debido a que le han sido retirados la vida y la energía positiva y el fuego eléctrico, principio animador de cada sistema, esquema, globo, reino de la naturaleza y ente humano. Esto también produce en cada caso la muerte de la “irradiación solar”, luz producida por la fusión de las energías positiva y negativa. Todo lo que queda en cada caso es la energía común de la sustancia sobre, y a través de, la cual la energía positiva ha tenido un efecto <pin lang="en">836</pin> tan notable. Este tipo de fuerza negativa se disipa o dispersa gradualmente yendo en busca del depósito central de energía. De esta manera se desintegra la forma esférica. La actuación de esto puede verse en el caso de la Luna, y la misma regla rige para todos los cuerpos. Podríamos enunciarlo de otra manera: Los Devas solares (o la energía irradiante) regresan al Corazón central o a la fuente que los exhaló. Esto hace que la sustancia dévica menor dependa de su propio calor interno, pues involucra retirar aquello que erigió a la sustancia en una forma. Existen muchas clases de sustancia dévica; quizás se comprenderá mejor el consiguiente procedimiento, si decimos que cuando la forma se desintegra los constructores y devas menores vuelven a su alma grupal. Algunos de ellos, los que forman los cuerpos del cuarto reino de la naturaleza, y son por lo tanto de un tipo superior de sustancia por medio de la cual la conciencia puede manifestarse en los tres mundos, se hallan en camino de individualizarse -están más cercanos a la etapa humana <pin lang="es">666</pin> que la sustancia de los otros tres reinos. Ocupan un lugar en la evolución dévica, análogo al que el hombre, que se está acercando al Sendero, ocupa en el reino humano (observen que digo reino, no evolución). La meta de un deva (de categoría inferior a la de los Pitris solares) es la individualización, y su objetivo consiste en llegar a ser hombres en un ciclo futuro. La meta de un hombre es la iniciación, o llegar a ser un Dhyan Chohan consciente y, en un lejano ciclo, hacer por la humanidad de esa época lo que los Pitris solares han hecho por él, posibilitando así su expresión autoconsciente. La meta de un Pitri solar es, como ya se ha dicho, llegar a ser un Rayo logoico. [^49] <pin lang="en">837</pin>
 
-<p>Volviendo al tema en consideración: Así como la Luna constituye una fuerza nociva o maléfica, en lo que se refiere a la Tierra y ejerce malas “influencias”, del mismo modo todos esos cuerpos en descomposición son igualmente destructivos. Dichos cuerpos existen dentro del “círculo no se pasa” solar [^50] y aún no son <pin lang="es">667</pin> reconocidos, habiendo constelaciones en desintegración (innumerables en el universo, desconocidas y no reconocidas por los científicos) que producen un efecto análogamente maléfico sobre nuestro sistema y todo lo que entra en su esfera de influencia.</p>
+Volviendo al tema en consideración: Así como la Luna constituye una fuerza nociva o maléfica, en lo que se refiere a la Tierra y ejerce malas “influencias”, del mismo modo todos esos cuerpos en descomposición son igualmente destructivos. Dichos cuerpos existen dentro del “círculo no se pasa” solar [^50] y aún no son <pin lang="es">667</pin> reconocidos, habiendo constelaciones en desintegración (innumerables en el universo, desconocidas y no reconocidas por los científicos) que producen un efecto análogamente maléfico sobre nuestro sistema y todo lo que entra en su esfera de influencia.
 
 Existe una constelación similar situada entre la Osa menor y nuestro sistema y hay otra interrelacionada con las Pléyades y nuestro sistema, que aún producen un marcado efecto sobre el cuerpo físico del Logos solar.
 
@@ -1301,7 +1301,7 @@ El párrafo que antecede está especialmente escrito así porque los efectos se 
 > <hr/>
 >
 > El fulgor se convirtió en un fuego constante y se vieron diminutas llamas.
-> 
+>
 > La primera, la segunda y la tercera se convirtieron en tres líneas de fuego, y un triángulo fue consumado. Sin embargo, los cuatro permanecen pasivos <pin lang="en">839</pin> y no responden al calor. De esta manera los ciclos y las vidas elementales pasan y vuelven a pasar y su trabajo continúa.
 >
 > Las formas se solidifican, pero su duración es breve. Permanecen inmóviles, sin embargo pasan. Ha llegado el momento del gran despertar y ya no descienden sino que ascienden.
@@ -1428,81 +1428,222 @@ Un tercer factor tiene que ver con la transferencia de Egos o lotos desde una es
 
 Toda la cuestión de transferencia de lotos egoicos de un esquema a otro, de una cadena a otra, en el plano mental, es verdaderamente muy complicada y no puede ser explicada al discípulo no juramentado. Sólo es posible dar estas indicaciones generales.
 
+En relación con nuestro planeta también debe recordarse que los Egos aparecen en esos grupos cuyos lotos no son producidos como resultado de la Ley de Atracción cuando actúa entre el reino animal del globo y las Tríadas superiores, sino que son Egos que se han individualizado en otra parte, viniendo, por lo tanto, con sus pétalos ya formados y quizás con varios <pin lang="en">853</pin> pétalos abiertos. Lógicamente, esto tiene un profundo efecto sobre los grupos en los cuales aparecen y sobre el tipo de hombre que encarnará, en consecuencia, en el plano físico. En La Doctrina Secreta se hace alusión a esto cuando se refiere al tema de los antiguos instructores y reyes divinos que ocuparon los toscos cuerpos de la primitiva humanidad. [^55] [^56]
 
+Continuando con nuestra consideración de los grupos egoicos, podría decirse brevemente que éstos, en conexión con nuestro planeta, pueden ser agrupados de manera general según la etapa de formación del loto: <pin lang="es">679</pin>
 
+1. Los egos que aparecieron por el proceso de individualización en los días lemurianos. Constituyen la verdadera humanidad de la Tierra, junto con el segundo grupo.
+2. Los egos que se individualizaron durante la raza raíz Atlante, hasta que se cerró la puerta.
+3. Los egos que han “venido” de la cadena lunar y están mucho más evolucionados que la humanidad terrestre.
+4. Los egos que fueron traídos desde la época atlante para ocupar el lugar de esos Egos que se liberaron, cuyos cuerpos causales desaparecieron y sus lotos han “muerto”, dejando un vacío, en la esencia de la fuerza, que debe ser llenado y provisto. Por lo general vinieron desde uno de los dos esquemas siguientes:
+   1. Del esquema personificado por el polo opuesto de nuestro Logos planetario.
+   2. Del esquema aliado a ambos, formando el triángulo del sistema. <pin lang="en">854</pin> Estos casos son necesariamente raros en la actualidad, pero serán cada vez más frecuentes a medida que un mayor número de seres humanos reciba la cuarta Iniciación.
+5. Ciertos raros Egos o lotos provenientes de esquemas no mencionados en la triplicidad anterior. Por lo general son traídos con el único fin de que puedan perfeccionar ciertas cualidades de su propia naturaleza, para llevar a cabo un trabajo experimental en conexión con el reino dévico, o para producir ciertos resultados grupales deseados por el Logos planetario. Con frecuencia no descienden a la encarnación física densa, sino que trabajan principalmente en niveles mentales y astrales, volviendo con el tiempo a sus propias esferas para alcanzar las etapas finales de liberación.
 
+Estos lotos en sus miles diferenciaciones producen recíprocamente efectos específicos aún incomprensibles para el hombre en niveles mentales. Sin embargo, constituyen la base de la verdadera psicología y de toda verdadera actividad. El estudiante haría bien en recapacitar sobre el efecto que probablemente produciría cualquier Ego avanzado sobre:
 
+1. Otros Egos de su grupo.
+2. Los Pitris solares que son la sustancia del grupo.
+3. Los Pitris lunares que están vinculados a los Pitris solares por medio de los átomos permanentes.
+
+Anteriormente hemos mencionado ciertas clasificaciones de grupos de los que se encuentran en los niveles causales <pin lang="es">680</pin> del plano mental, a fin de dar al estudiante alguna idea de la vastedad del tema y de la complejidad del problema. Debe recordarse que en el tercer subplano del plano mental no hay separación individual tal como existe en la manifestación física, sin embargo, es evidente la separación grupal. Estos grupos son muy numerosos para detallarlos. Hemos delineado y nombrado cinco de los grupos mayores tal como están enumerados en la parte inferior <pin lang="en">855</pin> de la clasificación de un esquema en el Aula de los Registros. Existen otros métodos, y hasta en la enumeración que hemos utilizado aquí, estos cinco grupos se subdividen cada uno en diez grupos, los cuales a su vez se dividen en unidades menores, representadas y conocidas por ciertos símbolos.
+
+Cuando llegamos al segundo subplano del plano mental (el plano en el cual se encuentran los cuerpos egoicos de la humanidad avanzada, de los discípulos y de los iniciados) el método de agruparlos estará de acuerdo al:
+
+1. Rayo
+2. Subrayo
+3. Departamento (regido por el Manu, el Mahachohan o el Bodhisattva de nuestro esquema terrestre o sus analogías en otros esquemas).
+
+Estos lotos egoicos están conformados y tienen un número de pétalos sin abrir, mientras que otros se hallan en las etapas finales del desarrollo.
+
+Han sido también agrupados bajo los tres encabezamientos siguientes:
+
+1. **Lotos de revelación**. Aquellos en los cuales la “joya” está a punto de ser revelada.
+2. **Lotos perfumados**. Aquellos cuyo “perfume” o aroma oculto compenetra su ambiente. Son los Egos que todavía no han abierto totalmente la última hilera de pétalos, pero cuyas vidas tienen fuerza magnética en los tres mundos y sus actividades se distinguen por el servicio altruista.
+3. **Lotos irradiantes**. Aquellos cuya luz comienza a brillar en la oscuridad.
+
+Están agrupados también de acuerdo al color primario, a la coloración secundaria, a la clave o tono, siendo una de las clasificaciones totalmente numérica. Podría ser de interés <pin lang="en">856</pin> para el estudiante si señaláramos que en el Aula de los Registros, en conexión con los Egos humanos, existen ciertos registros cuya terminología simbólica detalla minuciosamente los siguientes hechos respecto a cada ente:
+
+<p><pin lang="es">681</pin> **El registro lunar**. Se ocupa de todos los vehículos y formas inferiores empleados por las Mónadas humanas, registrando:</p>
+
+1. Su grado de vibración.
+2. Su tipo.
+3. Su número clave.
+4. El grupo particular de Señores lunares que se relacionan con esos cuerpos.
+5. La historia detallada de las vidas elementales que constituyen los cuerpos.
+
+Esta información la utiliza el agente kármico responsable de la construcción de una nueva serie de vehículos en cada encarnación a fin de ayudar a agotar el karma. La historia de los cuerpos lunares está reproducida en los átomos permanentes.
+
+**El registro solar**. Se ocupa del vehículo egoico permanente, registrando:
+
+1. El grado de vibración.
+2. La historia de la apertura de los pétalos.
+3. La historia de cualquier grupo determinado de Ángeles solares ocupados de la formación del loto.
+4. La actividad de la sustancia dévica con la cual se construye el loto.
+5. Las relaciones grupales.
+
+Esta información es utilizada por el Maestro que se ha hecho responsable del estimulo y crecimiento de una serie particular de Egos y también por esos Egos avanzados que trabajan conscientemente con su grupo.
+
+**El registro de la conciencia**. Concierne a la respuesta a su medio ambiente de la Entidad inmanente. Registra <pin lang="en">857</pin> el empleo del conocimiento por parte del conocedor, siendo, por muchas causas, el más complicado y extenso de los registros.
+
+Dichos registros son utilizados frecuentemente por el Señor del Mundo y Sus discípulos a fin de obtener información relativa a los centros planetarios. Tienen tal disposición que el registro de cualquier grupo, aunque vasto y extenso, está descrito en siete páginas, conteniendo cada una cuarenta y nueve símbolos. Las páginas se cambian y corrigen cada siete años y son precipitadas en materia astral debido al esfuerzo de voluntad realizado por el Chohan responsable del grupo particular involucrado.
+
+### Los pétalos y los centros etéricos.
+
+d. Los pétalos y los centros etéricos. Sólo queda señalar la estrecha relación que existe entre el desarrollo de los pétalos de los lotos egoicos y los centros etéricos del hombre. A través de los <pin lang="es">682</pin> centros fluye la energía síquica. Los estudiantes deberían tener cuidadosamente presente los dos hechos siguientes:
+
+:::note Recuerda
+
+A través de los centros fluye la energía síquica.
+
+:::
+
+Primero, como ya sabemos, el prana vitaliza el cuerpo etérico. La energía pránica estimula la actividad animal y el desarrollo del plano físico, y afecta principalmente a los átomos del cuerpo físico teniendo un triple efecto sobre la sustancia del mismo:
+
+1. Conserva la salud animal del cuerpo.
+2. Construye y erige en el cuerpo, por medio de su energía y sus corrientes de fuerza, lo que se necesita para reemplazar el desgaste y la deterioración diaria.
+3. Es el medio por el cual el hombre entra en contacto físico con sus semejantes. El magnetismo físico depende amplia, aunque no totalmente, del prana.
+
+Los centros etéricos son los vórtices de fuerza formados de materia etérica debido al impulso astral trasmitido por conducto de los <pin lang="en">858</pin> centros astrales. Dichos centros a su vez trasmiten una energía aún superior y, de esta manera, la afirmación de que los centros etéricos son la fuente de la energía síquica del hombre es técnicamente verídica, siendo por lo tanto afectados por el desarrollo de los pétalos. A su vez cada pétalo es una especie de centro de fuerza, y la energía que emana de ellos afecta a los centros etéricos y produce el verdadero tipo de energía síquica.
+
+La energía que fluye desde el Ego se siente muy poco en las primitivas etapas de desarrollo. El hombre sigue su sendero por medio del instinto animal y racial, y puede recibir sin peligro el estímulo que emana de sus centros grupales y la fuerza impulsora común inherente a la forma y a las primitivas oleadas de vida anteriores. Sólo cuando ha alcanzado una etapa relativamente avanzada (en comparación con la del hombre animal) esa fuerza egoica o síquica fluye a través de sus centros de tal manera que produce resultados en la conciencia -los cuales oportunamente él percibirá en su cerebro físico. No me refiero aquí al psiquismo animal corriente desplegado por los animales superiores y por algunos miembros de las razas post lemurianas. Este tipo de conciencia es inherente a los átomos y parte constituyente del “alma del mundo”, siendo inconsciente e incontrolado, y no tiene cabida en esta enseñanza. Aquí me refiero al psiquismo consciente desplegado por la humanidad avanzada, discípulos e iniciados de todas las categorías, resultante de la afluencia de energía egoica a través de los centros etéricos (principalmente en cinco de ellos), de tal manera que la conciencia del cerebro físico se da cuenta de ella y también de
+
+1. su propósito,
+2. su técnica. <pin lang="es">683</pin>
+3. los efectos producidos en el yo inferior del hombre y también en el de otros, <pin lang="en">859</pin>
+4. su capacidad para aplicarla o no, según lo desee, estando controlada por el hombre. Como ya sabemos, los centros con los cuales el estudiante está relacionado,
+   1. el coronario,
+   2. el cardíaco,
+   3. el laríngeo,
+   4. la base de la columna vertebral,
+
+son los únicos que deberían ser considerados. El trabajo que se ha de realizar consiste en transferir la fuerza o energía de los centros inferiores -el de la columna vertebral y el del plexo solar- a los tres centros superiores. Se presume que ya ha transferido o está en proceso de transferir la energía de los órganos genitales al centro del deseo, el plexo solar, a fin de ayudarla a ascender al centro laríngeo. El centro del bazo, por ser el vehículo del prana, está especialmente desarrollado de acuerdo a la ley evolutiva y su energía no es transferida a otro centro, sino que es distribuida conscientemente. Cuando se despierta la analogía que se halla en el centro coronario, éste se convierte en órgano de curación esotérica, por su intermedio el sanador (por un acto de voluntad) absorbe prana y vitalidad de los éteres y luego los exhala sobre el sujeto que va a ser curado, por un acto de curación compasiva
+
+En conexión con los centros etéricos, deberíamos señalar el hecho de que el centro superior de la cabeza es de estructura dual y constituye un loto de noventa y seis pétalos ubicado entre las cejas y un loto de doce pétalos ubicado en la cima de la cabeza, con un vórtice secundario de noventa y seis pétalos. El significado del número de pétalos es muy profundo. En todos los casos tenemos el número doce, lo cual demuestra una relación definida con los lotos síquicos básicos en los niveles egoicos. Doce multiplicado por ocho representa los doce pétalos de cada caso, mientras que en el número ocho se halla oculta la idea de dualidad en <pin lang="en">860</pin>
+
+1. el cuatro del cuaternario,
+2. el cuatro del huevo áurico egoico (los tres aspectos y el “círculo no se pasa”).
+
+Debemos observar también que el doce está vinculado a tres centros,
+
+1. el coronario superior,
+2. el coronario secundario y
+3. el cardíaco.
+
+<p><pin lang="es">684</pin> Si el estudiante analiza esto y vincula las tres hileras de pétalos del loto de doce pétalos, puede hallar iluminación. No es posible dar más indicaciones en esta etapa.</p>
+
+Sólo cuando los centros etéricos -los dos centros de la cabeza y el centro del corazón- están plenamente activos con sus doce pétalos completamente abiertos, entonces la hilera central de pétalos del loto egoico (la cuarta o hilera interna) se abre. El significado de las cuatro hileras en el loto egoico y las ocho hileras de doce pétalos en los lotos etéricos del plano mental es de gran importancia.
+
+Los centros con los cuales el hombre tiene que ver son necesariamente cinco en esta etapa, debido a los siguientes hechos, los cuales deben ser estudiados si el hombre quiere despertar sus centros de acuerdo al plan y seguir sin peligro la línea del verdadero desarrollo síquico:
+
+1. La energía parte del quinto plano, el mental, en lo que se refiere al hombre.
+2. Por intermedio del quinto principio el hombre puede trabajar conscientemente para su propio desarrollo.
+3. El sendero de evolución es quíntuple para el hombre, abarcando los cinco planos del desarrollo humano, estando dividido en cinco etapas en lo que respecta al Ego.
+4. Aunque el actual es el segundo sistema solar, o Su segundo ciclo egoico principal, <pin lang="en">861</pin> desde el punto de vista de los ciclos egoicos del Logos, sin embargo es el quinto visto desde otro ángulo, el de los ciclos menores. Corresponde al quinto período de la evolución humana, en el cual el hombre recorre el Sendero. El Logos está hollando ahora el Sendero cósmico.
+5. La quinta espirilla está en proceso de despertar. Esto ha de efectuarse antes que la interacción de energía entre el loto egoico y los centros etéricos sea tan poderosa que despierte al cerebro físico del hombre y lo haga consciente de las corrientes internas. Ello tiene lugar generalmente cuando el quinto pétalo ya está formado.
+
+Lo precedente puede encararse en forma más amplia desde el punto de vista de los cinco Kumaras. Debe recordarse que el conjunto de centros etéricos de cualquier grupo de hombres forma los centros de fuerza o diminutas “unidades de energía” en los pétalos más grandes de su centro grupal. También forma los pétalos de cualquier centro planetario determinado, y el conjunto de dichos pétalos forma esos centros mayores de energía que denominamos “centros planetarios”, los cuales a su vez son los centros de fuerza del Logos.
+
+<p><pin lang="es">685</pin> En relación con ello el misterio es tan profundo que si el estudiante no evita formularse un concepto demasiado matemático y materialista, se desorientará. Los centros etéricos del hombre no se hallan ubicados en el mismo plano que los centros etéricos de un Logos planetario, sino en el plano del cuarto éter cósmico, el plano búdico del sistema, y sólo cuando el hombre ha recibido la iniciación final su energía se incorpora a ese centro planetario en su propio plano. Los centros etéricos del Logos planetario son transmisores y transmutadores de fuerza, y tienen con él la misma relación que los centros físicos con un ser humano. Los centros físico densos, por ejemplo, la boca, <pin lang="en">862</pin> son transmisores de algún tipo de energía que surge del cerebro o voluntad humana.</p>
+
+Es un secreto del conocimiento ocultista la comprensión de la fuerza, su transmisión y los efectos que produce la fuerza liberada sobre los planos superiores. La fuerza o energía afluye desde el Ego. Actúa por intermedio de los centros etéricos y produce resultados en los tres planos, variando de acuerdo a la edad del alma. Hasta ahora, por falta de alineamiento, la fuerza egoica no llega al cerebro físico tan plenamente como lo hará más adelante, pero si a los centros astrales, siendo frecuentemente la causa de la incontrolada emotividad que se observa en todas partes. La sustancia astral está aún insuficientemente organizada, y cuando es despertada por la energía egoica actúa violentamente. Dos corrientes contrarias de fuerza actúan sobre la sustancia astral: primero, la egoica y, segundo, esa vibración iniciada durante incontables épocas en el plano físico, latente en la sustancia misma, resultado de un sistema solar anterior. Esto produce las acciones y reacciones violentas que se observan en cada vida.
+
+No es posible dar más datos sobre el desarrollo de los pétalos y su conexión con los centros etéricos. Sin embargo, pueden hacerse tres indicaciones de importancia práctica respecto a este estupendo tema, y si se reflexiona debidamente sobre ellas, puede llevar a la iluminación a los que están preparados.
+
+La primera es que los centros etéricos se hacen activos en un sentido cuatridimensional (o se transforman en ruedas que giran sobre sí mismas) cuando el aspirante ha cumplido con ciertos requisitos, quien debe entonces dedicarse a desarrollar el quinto y sexto pétalos, o los dos finales de la segunda hilera, y esforzarse en llevar a cabo dos cosas en relación con su triple naturaleza inferior: <pin lang="en">863</pin>
+
+1. Alinear sus tres cuerpos de manera de formar un canal directo de contacto entre el Ego y el cerebro físico.
+2. Esforzarse por estabilizar el cuerpo astral y la mente, y procurar obtener ese equilibrio emocional que se produce por el consciente “equilibrio de fuerzas”.
+
+<p><pin lang="es">686</pin> Debe estudiar las leyes de transmutación y la alquimia divina, que le hará conocer el proceso de transmutar la fuerza inferior en superior, transferir su conciencia a los vehículos superiores y manipular corrientes de energía a fin de que su propia naturaleza se transforme. Entonces se convertirá en un canal por el cual fluirá la luz del Ego y descenderá la iluminación de budi para salvar a la raza e iluminar a aquellos que van dando tumbos en la oscuridad. Debe demostrar en el plano físico las leyes de la radiactividad en su propia vida, la cual ha de empezar a irradiar y a afectar magnéticamente a los demás. Quiero significar con esto que comenzará a influenciar a aquello que está aprisionado en otros, porque llegará -por medio de sus poderosas vibraciones- al centro oculto de cada uno. No me refiero aquí al efecto físico o magnético que muchas almas, poco evolucionadas, tienen sobre otras, sino a esa irradiación espiritual a la cual sólo responden y comprenden quienes están adquiriendo conciencia del centro espiritual dentro del corazón. En esta etapa, el hombre es reconocido como el que habla ocultamente de “corazón a corazón”. Se convierte en un estimulador del centro cardiaco del semejante, y despierta e impulsa a los hombres para que actúen en bien de los demás.</p>
+
+La segunda indicación es que cuando el aspirante llega a ser progresivamente radiactivo y la energía del Dios interno se demuestra acrecentadamente por medio de la personalidad inferior, las “irradiaciones de calor” se hacen tan poderosas que se obtienen resultados muy definidos de naturaleza personal y <pin lang="en">864</pin> ambiental. Algunos de estos resultados pueden ser enumerados de la manera siguiente:
+
+La trama etérica que separa del plano astral la conciencia física inferior del cerebro, inicia un largo proceso de destrucción, produciéndose las primeras “roturas” en la trama. A través de éstas el estudiante percibe los planos internos, se hace consciente en el cerebro físico de los acontecimientos internos y puede (si es un discípulo) hacer contacto con su Ego (y por medio del Ego) con su Gurú. [^57] Esto marca un desarrollo muy importante.
+
+El centro superior de la cabeza acrecienta su actividad y puede recibir destellos de iluminación desde los planos superiores. Al principio esto sucede sólo ocasionalmente, y luego con mayor frecuencia a medida que pasan los años y las “roturas” son más numerosas.
+
+Los diferentes triángulos se vivifican y acrecientan su actividad en debida progresión geométrica, mientras que el centro entre los omóplatos, el punto donde convergen ciertos fuegos, entra en actividad. Esto marca una etapa definida en el proceso de transferir <pin lang="es">687</pin> los fuegos a centros superiores. Generalizando, este período de transferir el calor o energía de los centros inferiores a los superiores puede ser dividido en dos partes: primero, cuando la energía de los cuatros unificados en la parte inferior del cuerpo (debajo del diafragma) es transferida a los centros ubicados en la parte superior del torso. Dichos centros son tres, el corazón, la garganta y el centro entre los omóplatos. Debemos señalar aquí que el centro laríngeo está situado en la parte inferior de la garganta y pertenece al torso y no a la cabeza. Debe mencionarse también que el centro entre los omóplatos no es un centro “sagrado”, sino que es de naturaleza provisional, y lo crea el aspirante mismo durante el proceso de transferencia.
+
+<p><pin lang="en">865</pin> Segundo, cuando la energía de los seis centros inferiores,</p>
+
+1. el laríngeo,
+2. el cardíaco,
+3. el plexo solar,
+4. el bazo,
+5. los órganos genitales y
+6. la base de la columna vertebral,
+
+son -en debido orden, de acuerdo al rayo y subrayo del hombre- transferidos a las analogías dentro del centro de la cabeza. Los siete centros de la cabeza son el reflejo en el microcosmos de esas “mansiones preparadas en los Cielos” que reciben la séptuple energía de la Mónada. Constituyen las cámaras que han sido preparadas por la energía inferior, las cuales han de ser recipientes del “alma o energía síquica superior”.
+
+Tercero, podría resumirse esto diciendo que, a medida que el aspirante progresa, [^58] no sólo equilibra los pares de opuestos sino que le es revelado el secreto que oculta el corazón de su hermano.
+
+<p><pin lang="es">688</pin> Llega así a ser una fuerza reconocida en el mundo, de quien puede confiarse que se dedicará a servir. Los hombres se dirigen a él en pos de ayuda y apoyo dentro de su línea de actividad, y empieza a emitir su nota a fin de que no sólo escuchen los seres humanos sino también los devas. Esta etapa <pin lang="en">866</pin> la realiza por medio de la literatura, las conferencias y la enseñanza, y también por medio de la música, la pintura y el arte. Llega a los corazones de los hombres de una manera u otra, convirtiéndose en un auxiliar y servidor de su raza.</p>
+
+Deben enumerarse aquí dos características más de esta etapa.
+
+El aspirante conoce el valor oculto del dinero cuando se dedica a servir. No busca nada para sí mismo, salvo aquello que puede prepararlo para el trabajo a realizar; considera el dinero y lo que con éste puede adquirirse como algo que debe ser empleado para los demás y un medio para llevar a cabo los planes del Maestro tal como él los percibe. El significado oculto del dinero es poco comprendido, sin embargo, constituye una de las más grandes pruebas a través de las cuales debe pasar el hombre, y define el lugar que ocupa en el sendero de probación, pues concierne a su actitud y a la forma de manejar aquello que todos los hombres buscan para gratificar sus deseos. Sólo quien no desea nada para sí mismo puede ser el receptor de la esplendidez financiera y el dispensador de las riquezas del universo. En los casos en que la riqueza aumenta, sólo trae penas, dificultades, descontento y abuso.
+
+En esta etapa la vida del aspirante se convierte también en “un instrumento de destrucción”, en el sentido oculto del término. Donde quiera que vaya, la fuerza que fluye a través de él, proveniente de los planos superiores y de su propio Dios interno, produce a veces resultados peculiares en su ambiente. Actúa como estimulante tanto del bien como del mal, estimulando análogamente a los pitris lunares que forman los cuerpos de sus semejantes y al suyo propio, quienes acrecientan su actividad y adquieren excesivo poder. Este factor es utilizado por Aquellos que actúan internamente para realizar ciertos fines deseados. Esto a menudo causa momentáneamente la caída de almas avanzadas, las cuales no pueden resistir la fuerza que fluye a ellas, o sobre las mismas, <pin lang="en">867</pin> desviándose por la hiperestimulación temporaria de sus centros y vehículos. Esto puede observarse tanto en los grupos como en los individuos. Pero cuando los Señores lunares del yo inferior han sido previamente subyugados y controlados sucede lo contrario, entonces el efecto de la fuerza y de la energía, con las cuales entran en contacto, consistirá en estimular la respuesta de la conciencia del cerebro físico y de los centros de la cabeza al contacto egoico. Entonces esta fuerza que de otra manera sería destructiva se convierte en un factor estimulante, bueno y útil que pueden utilizarlo <pin lang="es">689</pin> Aquellos que saben hacerlo, a fin de conducir al hombre a una mayor iluminación.
+
+Estas etapas han de tener lugar en los tres planos inferiores y en los tres cuerpos de acuerdo al Rayo y subrayo particulares. De esta manera el discípulo continúa realizando su trabajo, y también lleva a cabo las pruebas y el entrenamiento a que está sometido, hasta que las dos hileras de pétalos se abren y la tercera comienza a formarse; dirigiendo correctamente la energía y manipulando inteligentemente las corrientes de fuerza, el discípulo es conducido al Portal de la Iniciación, egresando del Aula del Aprendizaje [^59] e ingresando al Aula de la Sabiduría -donde gradualmente se hace “consciente” de las fuerzas y poderes que están latentes en su propio Ego y su grupo egoico. Allí adquiere el derecho a utilizar la fuerza del grupo egoico, porque ya se puede confiar que la empleará únicamente para ayudar a la humanidad. Después de la cuarta Iniciación se le puede confiar parte de energía del Logos planetario y participar de ella, permitiéndole llevar adelante los planes de este Logos para la evolución.
+
+### La iniciación y los pétalos.
 
 
 
 
 
 [^1]: Por lo tanto, los ángeles solares son entidades de orden espiritual elevado -con una conciencia refinada correspondiente a la sustancia materia con la cual están revestidos. A fin de relacionar esto con lo ya dicho, puede considerarse que los ángeles solares forman colectivamente al Señor Brahama de la isla del loto. Se les denomina con distintos nombres, espíritus planetarios, Asuras, etc., pero a fin de tener una idea adecuada respecto a su naturaleza puede decirse que la relación que tienen con el mundo espiritualmente regenerado y liberado de los Brahmines mundiales o Nirmanakayas, es la misma que existe entre ellos y la humanidad común. Los ángeles fueron esos Brahmines, que en Mahamanvantaras anteriores pasaron períodos excesivamente extensos, trabajando y sufriendo con el fin de fomentar la sabiduría en el mundo; de allí surgieron como ángeles de la matriz infinita de Aditi bajo su impulso kármico después de un período de Mahapralaya. Some Thougts on the Gita, pág. 137.
+[^2]:
+    Todos los Pitris lunares son Espíritus de la Naturaleza. D. S. III, 109-110.
 
-[^2]: Todos los Pitris lunares son Espíritus de la Naturaleza. D. S. III, 109-110.
-
-     1. Poseen o contienen el fuego del tercer aspecto. D. S. III, 87.
-     2. Su trabajo precede al de los Ángeles solares. D. S. I, 263.
-     3. Se dividen en siete clases, igualemente que los ángeles solares. D. S. III, 99.
+    1.  Poseen o contienen el fuego del tercer aspecto. D. S. III, 87.
+    2.  Su trabajo precede al de los Ángeles solares. D. S. I, 263.
+    3.  Se dividen en siete clases, igualemente que los ángeles solares. D. S. III, 99.
         1. Tres incorpóreas que constituyen los tres reinos elementales de la naturaleza y proporcionan al hombre sus cuerpos etérico, astral y mental
         2. Cuatro corpóreas que constituyen las formas de los cuatro reinos de la naturaleza. D. S. III, 97.
         3. D. S., 220-221
 
 [^3]: D. S. III, 88-89.
-
 [^4]: Para definiciones de rupa y arupa ver pág. 502.
-
 [^5]: Este nombre se le da en D. S. III, 100.
-
 [^6]: Compárese D. S. I, 209; III, 110,122, 260
-
 [^7]: Estos tres planos son las analogías de las tres espirillas inferiores en el átomo físico permenanete del Logos solar y del Logos planetario.
-
 [^8]: D. S. III, 88-89, 229
-
 [^9]: D. S. I, 206-208.
-
 [^10]: Ver D. S. I, 207-208.
-
 [^11]: Esto tiene dos significados, uno cósmico y otro del sistema; para arrojar luz sobre ese acontecimiento que concierne a nuestro propio esquema deben estudiarse las estanzas que se refieren a la llegada de los Señores de la Llama
-
 [^12]: Prajapatis. Los Progenitores, los que dan vida a todo lo que existe en la Tierra. Son los siete y los diez que corresponden a los siete y a los diez Sephiroth. En el cosmos son los siete Rishis de la Osa Mayor, en el sistema son los siete Logos planetarios y, desde el punto de vista de nuestro planeta, son los siete Kumaras. D., S. I, 130, 141; II, 130, 298-299; III, 44, 48, 86 (llamada 10)
+[^13]:
+    Hilozoísmo: Del griego "ule", materia; "zoom", animal; e "ismo". Ismo es un sufijo que representa la doctrina o idea abstracta del sustantivo al cual se adhiere. Hilozoísmo es la doctrina que sostiene que toda materia está dotada de vida.
 
-[^13]: Hilozoísmo: Del griego "ule", materia; "zoom", animal; e "ismo". Ismo es un sufijo que representa la doctrina o idea abstracta del sustantivo al cual se adhiere. Hilozoísmo es la doctrina que sostiene que toda materia está dotada de vida.
-
-     "Cuando se haya comprendido el concepto hilozoísta de un universo material viviente, se solucionará el misterio de la naturaleza." Diccionario Standard.
+    "Cuando se haya comprendido el concepto hilozoísta de un universo material viviente, se solucionará el misterio de la naturaleza." Diccionario Standard.
 
 [^14]: D. S. VI, 98.
-
 [^15]: Una pregunta muy lógica podría formularse aquí: ¿Por qué consideramos la materia de los devas del sistema intermedio (como podrían denominarse a los que están vinculados a nuestro sistema y con budi y kama-manas) cuando elucidamos las formas mentales? Por dos razones: Una, que todo lo que está en el sistema solar no es más que sustancia energetizada desde los planos mental y astral cósmicos, con ella se construyen la forma por el poder de la Ley eléctrica; todo lo que es posible conocer son formas animadas por ideas. La otra, que por el conocimiento de los procesos creadores del sistema, el hombre aprende con el tiempo por sí mismo a convertirse en un creador. Podríamos ilustrarlo diciendo que una de las principales funciones del movimiento teosófico en todas sus ramas consiste en contruir una forma que pueda ser animada, a su debido tiempo, por la idea de la Fraternidad.
-
 [^16]: Véase la primera parte del T. III de La Doctrina Secreta.
-
 [^17]: Avitchi. Es un estado de conciencia que no se logra necesariamente después de la muerte o entre los nacimientos, sino que puede lograrse también en la tierra. Literalmente significa "infierno ininterrumpido". Se nos dice que el último de los ocho infiernos es donde "los culpables mueren y nacen ininterrumpidamente-pero con la esperanza de obtener la redención final". D. s. vi, 146, 154, 161-162.
-
 [^18]: La Biblia. Rev., XX, 6-7. Mat., XXV, 32.
-
-[^19]: El Señor solar, el Ego divino. Las dos corrientes de desarrollo del alma a las cuales se refiere H. P. B., en su libro "La Voz del Silencio", como el sendero de "Dhyana" y "Dharma" o los "Paramitas"; Ramayana se basa sobre este último. Los "Siete Portales", a los cuales se hace referencia en dicho libro, probablemente corresponden a los siete cantos de este poema sagrado. Solo he leido el primer canto y daré su sentido hasta donde lo he captado. Excluyendo el prefacio del poema, lo primero que aparece en ese primer canto es la descripción de las circunstancias peculiares que acompañaron al nacimiento de Rama en la familia Dasaratha. Como todos saben, Dasaratha es un descendiente de los reyes solares que empezaron a gobernar sobre la tierra desde el tiempo del Manu Vyvaswatha. Como su nombre implica, es un rey cuyo carro puede viajar en diez direcciones; en sentido esotérico microcósmico, es el rey del cuerpo humano que posee diez sentidos en acción y percepción que lo conecta con las diez direcciones. Estamos perfectamente familiarizados con la descripción que nuestros antiguos filósofos solían hacer del cuerpo como una ciudad con nueve puertas. Como bien se sabe, las nueve puertas son los nueve orificios del cuerpo humano. Si a éstos se les agrega el orificio conocido como Brahma-rundra o la puerta de Brahma, tenemos diez puertas que corresponden a las diez direcciones. La palabra "Dasaratha" indica la conciencia relacionada con nuestros sentidos, la cual es inferior a la conciencia que denominamos mente. The Theosophist,T. XIII, pág. 340.
+[^19]:
+    El Señor solar, el Ego divino. Las dos corrientes de desarrollo del alma a las cuales se refiere H. P. B., en su libro "La Voz del Silencio", como el sendero de "Dhyana" y "Dharma" o los "Paramitas"; Ramayana se basa sobre este último. Los "Siete Portales", a los cuales se hace referencia en dicho libro, probablemente corresponden a los siete cantos de este poema sagrado. Solo he leido el primer canto y daré su sentido hasta donde lo he captado. Excluyendo el prefacio del poema, lo primero que aparece en ese primer canto es la descripción de las circunstancias peculiares que acompañaron al nacimiento de Rama en la familia Dasaratha. Como todos saben, Dasaratha es un descendiente de los reyes solares que empezaron a gobernar sobre la tierra desde el tiempo del Manu Vyvaswatha. Como su nombre implica, es un rey cuyo carro puede viajar en diez direcciones; en sentido esotérico microcósmico, es el rey del cuerpo humano que posee diez sentidos en acción y percepción que lo conecta con las diez direcciones. Estamos perfectamente familiarizados con la descripción que nuestros antiguos filósofos solían hacer del cuerpo como una ciudad con nueve puertas. Como bien se sabe, las nueve puertas son los nueve orificios del cuerpo humano. Si a éstos se les agrega el orificio conocido como Brahma-rundra o la puerta de Brahma, tenemos diez puertas que corresponden a las diez direcciones. La palabra "Dasaratha" indica la conciencia relacionada con nuestros sentidos, la cual es inferior a la conciencia que denominamos mente. The Theosophist,T. XIII, pág. 340.
 
 [^20]: El Sacrificado o Yajamana. Yajamana es la persona que se ha sacrificado por el bien del mundo y que ha emprendido la tarea de moldear los asuntos del mismo en obediencia a la ley. Si se lo toma al cuerpo humano como el campo de sacrificio, su manas es el yajamana. Todos los actos del hombre durante su vida, desde el nacimiento a la muerte, constituyen un gran proceso yajnico, llevado a cabo por la verdadera entidad humana llamada Manas. Quien tiene la voluntad de sacrificar su cuerpo, su palabra y su pensamiento para el bien del mundo, es un verdadero yajnika y todos los planos o lokas superiores le están reservados. La nota clave central de la vida del yajnika es hacer bien a todos, sin tener en cuenta casta o credo, así como el sol brilla para todos. Some Thoughts of the Gita, pág. 90.
 
-[^21]: Razas raíces. La Doctrina Secreta enseña que estos siete grupos de unidades humanas habitan siete continentes durante la evolución. D.S. III, 23-24-25.
+[^21]:
+    Razas raíces. La Doctrina Secreta enseña que estos siete grupos de unidades humanas habitan siete continentes durante la evolución. D.S. III, 23-24-25.
 
-    1. 1ra. raza	La Tierra Sagrada Imperecedera.
-    2. 2da. raza	La Tierra Hiperbórea.
-    3. ra. raza	Lemuria.
-    4. 4ta. raza	Atlante.
-    5. 5ta. raza	Aria.
-    6. Dos razas más	sucederán a la actual.
+    1. 1ra. raza La Tierra Sagrada Imperecedera.
+    2. 2da. raza La Tierra Hiperbórea.
+    3. ra. raza Lemuria.
+    4. 4ta. raza Atlante.
+    5. 5ta. raza Aria.
+    6. Dos razas más sucederán a la actual.
 
 [^22]: Estos son los Veddhas de Ceylan, los Bosquimanos de Australia y algunos ejemplares de las razas africanas más inferiores. D.S. III, 196-197, 279,402-403.
-
 [^23]: Son los Señores Lipika. D. S. I, 170.
-
 [^24]: D. S. II, 58-59, 113-114, 308-309.
-
 [^25]: D. S. VI. Sección XLI; V. 308.
-
 [^26]: Fundamentalmente existen tres clases de Pralaya. D. S. II, 78-79-80.
 
     1. Pralaya solar. Ocurre al finalizar cien años de Brahma. Marca la reabsorción dentro de la unidad; el fin de la manifestación del sistema solar. Concierne al Logos solar.
@@ -1511,7 +1652,8 @@ Toda la cuestión de transferencia de lotos egoicos de un esquema a otro, de una
 
     Existe también el pralaya vinculado con la evolución humana que llamamos devachánica. Concierne a la personalidad.
 
-[^27]: Deva-Chan. "(3) ¿ Quiénes van al Deva-Chan? Lógicamente el Ego personal, pero beatificado, purificado y santificado. Cada Ego - la combinación del sexto y séptimo principios que después del período de gestación ha vuelto inconscientemente a nacer en el Deva-Chan, es necesariamente tan inocente y puro como una criatura recién nacida. Por haber vuelto a nacer se demuestra sencillamente la preponderancia del bien sobre el mal en su antigua personalidad. Mientras el Karma (del mal) se aparta momentáneamente a fin de seguirlo a su futura reencarnación terrena; no lleva consigo más que el Karma de sus buenas acciones, palabras y pensamientos al Deva Chan. "Malo" es un término relativo para nosotros - como se ha dicho más de una vez-; la Ley de Retribución es la única que nunca falla. Por eso, todos los que no han caído en el fango del pecado y de la bestialidad irredimibles van al Deva-Chan. Más adelante, tendrán que pagar por los pecados cometidos voluntaria o involuntariamente. Mientras tanto son recompensados, reciben los efectos de las causas producidas por ellos.
+[^27]:
+    Deva-Chan. "(3) ¿ Quiénes van al Deva-Chan? Lógicamente el Ego personal, pero beatificado, purificado y santificado. Cada Ego - la combinación del sexto y séptimo principios que después del período de gestación ha vuelto inconscientemente a nacer en el Deva-Chan, es necesariamente tan inocente y puro como una criatura recién nacida. Por haber vuelto a nacer se demuestra sencillamente la preponderancia del bien sobre el mal en su antigua personalidad. Mientras el Karma (del mal) se aparta momentáneamente a fin de seguirlo a su futura reencarnación terrena; no lleva consigo más que el Karma de sus buenas acciones, palabras y pensamientos al Deva Chan. "Malo" es un término relativo para nosotros - como se ha dicho más de una vez-; la Ley de Retribución es la única que nunca falla. Por eso, todos los que no han caído en el fango del pecado y de la bestialidad irredimibles van al Deva-Chan. Más adelante, tendrán que pagar por los pecados cometidos voluntaria o involuntariamente. Mientras tanto son recompensados, reciben los efectos de las causas producidas por ellos.
 
     "Lógicamente, es un estado por así decir, de intenso egoísmo durante el cual un Ego cosecha la recompensa de su altruísmo en la tierra. Se halla totalmente absorbido en la felicidad producida por todos sus efectos personales terrenos, preferencias y pensamientos, recogiendo el fruto de sus acciones meritorias. Ningún dolor, aflicción, ni siquiera una sombra de pena oscurece el luminoso horizonte de su felicidad absoluta, es un estado de "Maya" perpetuo... Considerando que la percepción consciente de la personalidad de un individuo sobre la tierra sólo es un sueño que se desvanece, esa sensación será también un sueño en el Deva-Chan- solo que cien veces intensificado"
 
@@ -1520,29 +1662,26 @@ Toda la cuestión de transferencia de lotos egoicos de un esquema a otro, de una
     ". . . Cada efecto debe estar en proporción con la causa. Así como la extensión del período de la existencia encarnada del hombre proporcionalmente es pequeña, comparado con los períodos de existencia entre nacimientos en el ciclo manvantárico, así los buenos pensamientos, palabras y acciones de cualquiera de estas "vidas" en un globo, causan efectos cuyo desarrollo requiere mucho más tiempo que la evolución de las causas." De Mahatma Letters to A. P. Sinnet, págs. 100-106.
 
 [^28]: Devachan. Un estado intermedio entre dos vidas terrenas en el cual entra el Ego después de haberse separado de sus aspectos o envolturas inferiores.
-
 [^29]: Los siete Senderos por uno de los cuales todos debemos pasar:
 
-    1. 1er. Sendero.	El Sendero de Servicio en la Tierra.
-    2. 2do. Sendero	El Sendero del Trabajo Magnético.
-    3. 3cer. Sendero	El Sendero de los Logos Planetarios.
-    4. 4to. Sendero	El Sendero hacia Sirio.
-    5. 5to. Sendero	El Sendero de Rayo.
-    6. 6to. Sendero	El Sendero de los Logos solares.
-    7. 7mo. Sendero	El Sendero de la Filiación Absoluta.
+    1. 1er. Sendero. El Sendero de Servicio en la Tierra.
+    2. 2do. Sendero El Sendero del Trabajo Magnético.
+    3. 3cer. Sendero El Sendero de los Logos Planetarios.
+    4. 4to. Sendero El Sendero hacia Sirio.
+    5. 5to. Sendero El Sendero de Rayo.
+    6. 6to. Sendero El Sendero de los Logos solares.
+    7. 7mo. Sendero El Sendero de la Filiación Absoluta.
 
 [^30]: D. S. IV. 264-265-266.
-
 [^31]: D. S. VI. 17-18-19-20.
-
-[^32]: Discipulado o estado de Chela....Los antiguos misterios sólo fueron una escuela para el entrenamiento espiritual y el perfeccionamiento para adquirir la verdadera sabiduría; la purificación del corazón de todas las pasiones sensuales y falsas percepciones era uno de los requisitos preliminares, aunque el Maestro podía guiar al neófito a través de la peligrosa etapa en que, como el niño, no puede andar solo; en las etapas superiores debía aprender a orientarse y a cuidarse como el hombre adulto debe hacerlo en la vida común; la meta final era la expansión del yo hacia la existencia y potencialidades infinitas; sin embargo, aunque las formas y ceremonias iniciales podían diferir en apariencia, tenían idéntico objetivo. The Theosophist, T. IX, pág. 246.
+[^32]:
+    Discipulado o estado de Chela....Los antiguos misterios sólo fueron una escuela para el entrenamiento espiritual y el perfeccionamiento para adquirir la verdadera sabiduría; la purificación del corazón de todas las pasiones sensuales y falsas percepciones era uno de los requisitos preliminares, aunque el Maestro podía guiar al neófito a través de la peligrosa etapa en que, como el niño, no puede andar solo; en las etapas superiores debía aprender a orientarse y a cuidarse como el hombre adulto debe hacerlo en la vida común; la meta final era la expansión del yo hacia la existencia y potencialidades infinitas; sin embargo, aunque las formas y ceremonias iniciales podían diferir en apariencia, tenían idéntico objetivo. The Theosophist, T. IX, pág. 246.
 
     Sólo el corazón puro y la mente limpia permiten obtener la salvación. Esta era su doctrina. Del mismo modo lo enseña el Mahabharata Aria (Sección CXCIX Vana Parva) donde dice:
 
     "Esas personas de alma elevada que no cometen pecados de palabra, de hecho, de corazón ni de alma, se dice que practican austeridades ascéticas, pero no se dice que sus cuerpos se debilitan por los ayunos y las penitencias. Aquel que no es bondadoso con sus parientes no puede estar libre de pecado, aunque su cuerpo sea puro. Esta dureza de corazón es el enemigo del ascetismo. El ascetismo no significa abstenerse de los placeres del mundo. Aquel que es puro y lleno de virtudes, aquel que practica la bondad en su vida, es un Muni, aunque lleve una vida doméstica. "The Theosophist, T. XIII, pág. 259.
 
 [^33]: D. S. I. 107-108.
-
 [^34]: El Mayavirupa es, literalmente, la forma ilusoria; es el cuerpo de manifestación temporal que el Adepto crea ocasionalmente por el poder de la voluntad y en el cual actúa a fin de establecer ciertos contactos en el plano físico y emprender cierto trabajo para la raza.
 
 [^35]: La actividad conjunta de los Pitris solares y lunares D. S. III, 242-243.
@@ -1569,10 +1708,9 @@ Toda la cuestión de transferencia de lotos egoicos de un esquema a otro, de una
        4. Soma -Luna. El trabajo de los Pitris lunares que proveen los cuerpos. Léase D. S. I, Estanza VII, 278.
 
 [^36]: D. S. I, 77-78,108.
-
 [^37]: El Ego está descrito en La Doctrina Secreta de la manera siguiente: "Cada uno es un pilar de Luz. Habiendo elegido el vehículo se expandió, envolviendo con un aura akáshica el animal humano, el Principio divino se estableció dentro de la forma humana" D. S. VI, 131-132. "Son los Dhyanes del Fuego y emanan del Corazón del Sol". D. S. III, 100. Léase el Comentario en D. S. III, 100. "Son los Hijos del Fuego y conforman al hombre interno. D. S. III, 115.
-
-[^38]: Los Ángeles solares (Hijos de la Sabiduría) son entidades que tratan de obtener conciencia más plena. D. S. III, 170-171;IV, 173-174.
+[^38]:
+    Los Ángeles solares (Hijos de la Sabiduría) son entidades que tratan de obtener conciencia más plena. D. S. III, 170-171;IV, 173-174.
 
     1. Adquirieron el intelecto debido al contacto previamente establecido con la materia.
     2. Encarnaron regidos por la Ley del Karma. D. S. VI, 151-152.
@@ -1581,19 +1719,12 @@ Toda la cuestión de transferencia de lotos egoicos de un esquema a otro, de una
     5. Son los yoguis celestiales. D. S. III, 241-242.
 
 [^39]: "Nirmanakaya es un nombre formado por dos palabras y significa "que no tiene cuerpo", no se refiere a las cualidades morales. Es un estado de conciencia. A los grandes Instructores de las esferas nirvánicas se los denomina así."
-
 [^40]: La Biblia, Romanos, VIII, 22.
-
 [^41]: D. S. III, llamada 5.
-
 [^42]: Cada ser humano es una encarnación de Dios. D.S. VI, 91. Compárese IV, 82; D. S. VI, 114, y las palabras bíblicas: "He dicho, sois Dioses." "¿No sabéis que sois el Templo del Espíritu Santo?" Ningún Ser puede transformarse en un Dios sin pasar por los ciclos humanos. D. S. IV, 331. Por lo tanto, el hombre es igual a Dios en el sentido que representa los pares de opuestos, bien y mal, luz y oscuridad, macho y hembra, etc. Es una dualidad. Representa también a Dios porque es una triplicidad, siendo tres en uno y uno en tres. D. S. IV, 93-94. Por hombre se entiende la divina Mónada. D. S. IV, 187-188.
-
 [^43]: D. S. I, 79-80-81.
-
 [^44]: D. S. VI, 211.
-
 [^45]: D. S. II, 158.
-
 [^46]: El Número 10. D. S. I, 143-145.
 
     1. Los tres, incluídos dentro del círculo, son los sagrados Cuatro.
@@ -1607,49 +1738,60 @@ Toda la cuestión de transferencia de lotos egoicos de un esquema a otro, de una
 
     Aquí se hace hincapié sobre las Vidas subjetivas, o la Conciencia Inteligencia dentro de las formas. Estos diez podrían denominarse:
 
-      1. El primer Logos...Shiva...Padre.......... Voluntad.
-      2. El segundo Logos..Vishnu..Hijo........... Amor-Sabiduría.
-      3. El tercer Logos...Brahma..Espíritu Santo. Inteligencia, influenciando a la Materia, Madre.
-      4. El Señor de la Voluntad Cósmica........Primer Rayo.
-      5. El Señor del Amor Cósmico..............Segundo Rayo.
-      6. El Señor de la Inteligencia Cósmica....Tercer Rayo.
-      7. El Señor de la Armonía Cósmica.........Cuarto Rayo.
-      8. El Señor del Conocimiento Cósmico......Quinto Rayo.
-      9. El Señor de la Devoción Cósmica........Sexto Rayo.
-      10. El Señor del Ceremonial Cósmico........Séptimo Rayo.
+    1. El primer Logos...Shiva...Padre.......... Voluntad.
+    2. El segundo Logos..Vishnu..Hijo........... Amor-Sabiduría.
+    3. El tercer Logos...Brahma..Espíritu Santo. Inteligencia, influenciando a la Materia, Madre.
+    4. El Señor de la Voluntad Cósmica........Primer Rayo.
+    5. El Señor del Amor Cósmico..............Segundo Rayo.
+    6. El Señor de la Inteligencia Cósmica....Tercer Rayo.
+    7. El Señor de la Armonía Cósmica.........Cuarto Rayo.
+    8. El Señor del Conocimiento Cósmico......Quinto Rayo.
+    9. El Señor de la Devoción Cósmica........Sexto Rayo.
+    10. El Señor del Ceremonial Cósmico........Séptimo Rayo.
 
     Ellos son la conciencia subjetiva, la causa de la manifestación.
 
 [^47]: D. S. III, 407-408-409.
-
-[^48]: El problema del Mal. Lo siguiente ha sido extraído de un escrito mediumnímico, por la Dra. Anna Kigsford: "Ustedes han consultado sobre el origen del mal. Éste es un tema importante que no se hubiera tocado, pero parece que es necesario hacerlo. Comprendan que el Mal es el resultado de la Creación. La Creación es el resultado de la proyección del Espíritu en la materia, y con esta proyección vino el primer germen del mal. Sepan que no existe tal cosa como mal puramente espiritual, sino que el mal es el resultado de la materialización del Espíritu. Si analizan cuidadosamente todo lo que hemos dicho respecto a las distintas formas del mal, verán que cada una es el resultado del poder limitado de percibir el Universo nada más que como el Yo superior......Entonces es verdad que Dios creó el mal; también es verdad que Dios es Espíritu y siendo Espíritu es incapaz de hacer mal. Por lo tanto el mal es estricta y solamente el resultado de la materialización de Dios. Esto es un gran misterio. Pero podemos decir esta noche....Dios es la percepción misma. Es percepción universal, lo que ve y lo visto. Si pudiéramos ver todo, oir todo, tocar todo, etc., no existiría el mal, pues el mal viene de la limitación de la percepción. Tal limitación fue necesaria para que Dios produjera nada más que Dios. Sólo Dios puede ser menos que Dios. Por lo tanto sin el mal Dios habría permanecido solo. Todas las cosas son Dios de acuerdo a la medida del Espíritu que existe en ellas." Es decir, una humanidad perfecta será el vehículo perfecto del Espíritu divino (véase La Mercaba de Ezequiel, I, capítulo). Grande es nuestra deuda con los videntes que emiten destellos de luz en la oscuridad y con elmisterio de la vida humana; allí donde el Espíritu, luchador interno, frecuentemente sumergido en las profundidades de este misterioso caos, hace visible la oscuridad, con el fin de permitirnos ver algunos pasos adelante en el Camino, alentándonos para seguir adelante con la renovada seguridad de que se dispersarán las nieblas y nubes y que , a su debido tiempo, entraremos en la plenitud de la Presencia divina. The Theosophist, T. XXIX, pág. 50
+[^48]:
+    El problema del Mal. Lo siguiente ha sido extraído de un escrito mediumnímico, por la Dra. Anna Kigsford: "Ustedes han consultado sobre el origen del mal. Éste es un tema importante que no se hubiera tocado, pero parece que es necesario hacerlo. Comprendan que el Mal es el resultado de la Creación. La Creación es el resultado de la proyección del Espíritu en la materia, y con esta proyección vino el primer germen del mal. Sepan que no existe tal cosa como mal puramente espiritual, sino que el mal es el resultado de la materialización del Espíritu. Si analizan cuidadosamente todo lo que hemos dicho respecto a las distintas formas del mal, verán que cada una es el resultado del poder limitado de percibir el Universo nada más que como el Yo superior......Entonces es verdad que Dios creó el mal; también es verdad que Dios es Espíritu y siendo Espíritu es incapaz de hacer mal. Por lo tanto el mal es estricta y solamente el resultado de la materialización de Dios. Esto es un gran misterio. Pero podemos decir esta noche....Dios es la percepción misma. Es percepción universal, lo que ve y lo visto. Si pudiéramos ver todo, oir todo, tocar todo, etc., no existiría el mal, pues el mal viene de la limitación de la percepción. Tal limitación fue necesaria para que Dios produjera nada más que Dios. Sólo Dios puede ser menos que Dios. Por lo tanto sin el mal Dios habría permanecido solo. Todas las cosas son Dios de acuerdo a la medida del Espíritu que existe en ellas." Es decir, una humanidad perfecta será el vehículo perfecto del Espíritu divino (véase La Mercaba de Ezequiel, I, capítulo). Grande es nuestra deuda con los videntes que emiten destellos de luz en la oscuridad y con elmisterio de la vida humana; allí donde el Espíritu, luchador interno, frecuentemente sumergido en las profundidades de este misterioso caos, hace visible la oscuridad, con el fin de permitirnos ver algunos pasos adelante en el Camino, alentándonos para seguir adelante con la renovada seguridad de que se dispersarán las nieblas y nubes y que , a su debido tiempo, entraremos en la plenitud de la Presencia divina. The Theosophist, T. XXIX, pág. 50
 
 [^49]: La Meta para los Pitris:
 
     Los Pitris lunares están en el mismo nivel que los principios inferiores. D. S. III, 88
-    
-    1. Crean nuestros principios inferiores	D. S. III, 96
-    2. Poseen fuego creador pero no fuego divino	D.S.III, 87-88
-    3. Hacen evolucionar a la forma humana	D. S. I, 209
-    4. Eventualmente se convertirán en hombres	D. S. I, 209
+
+    1. Crean nuestros principios inferiores D. S. III, 96
+    2. Poseen fuego creador pero no fuego divino D.S.III, 87-88
+    3. Hacen evolucionar a la forma humana D. S. I, 209
+    4. Eventualmente se convertirán en hombres D. S. I, 209
        1. Compárese, D. S. III, 102
        2. Los principios superiores están latentes en los animales. D. S. III, 249,260
-   
-    Los Pitris solares personifican al quinto principio	D. S. I, 242
 
-    1. Proporcionan conciencia al hombre	D. S. I, 210
-    2. Proveen el vehículo para la Mónada encarnante formando el cuerpo egoico  D. S. I, 238-239 
-    3. Desarrollan el tipo humano  D. S. III, 229-230
+    Los Pitris solares personifican al quinto principio D. S. I, 242
+
+    1. Proporcionan conciencia al hombre D. S. I, 210
+    2. Proveen el vehículo para la Mónada encarnante formando el cuerpo egoico D. S. I, 238-239
+    3. Desarrollan el tipo humano D. S. III, 229-230
        1. Compárese, D. S. III, 99
 
 [^50]: Planetas invisibles:"No todos los planetas Intra-mercuriales, ni siquiera aquellos en la órbita de Neptuno, han sido descubiertos todavía, aunque se sospecha su existencia. Sabemos que existen y dónde están; ellos dicen que hay innumerables planetas "quemados" -nosotros decimos que están en oscuración- o planetas en formación y no poseen luminosidad todavía, etc."
-
+    
     "Cuando esté así adaptado el "tásmetro" ofrecerá la posibilidad no sólo de medir el calor de las más remotas estrellas visibles, sino también de detectar, por sus invisibles radiaciones, estrellas invisibles e indetectables, por ende también planetas. El descubridor,un M.S.T., muy protegido por M., piensa que si en cualquier lugar del espacio vacio de los cielos -un espacio que parece vacío incluso cuando se lo mira con el telescopio más poderoso- el tásmetro indica invariablemente un aumento de temperatura, lo cual constituirá una prueba contundente de que el instrumento está en línea con un cuerpo estelar no luminoso o tan distante que se halla fuera del alcance de la visión telescópica. Su tásmetro, dice, "es afectado por una variedad más amplia de ondulaciones etéricas que la que el ojo puede percibir". La ciencia oirá sonidos provenientes de ciertos planetas antes de haber sido vistos. Esto es una profecía. The Mahatma Letters to A. P. Sinnett, pág. 169
 
 [^51]: D. S. I, 203
-
 [^52]: Todos se transformarán en Logos solares de distintas categorías
-
-[^53]: D. S. I, 183, llamada 16 
-
+[^53]: D. S. I, 183, llamada 16
 [^54]: De una palabra sensar que significa "serpientes". Son los Dragones de Sabiduría. D. S. I, 89,97.
+[^55]: Véase el comienzo del T. III de la Doctrina Secreta.
+[^56]: C. W. Leadbeater tenía una vaga comprensión de esta idea cuando se refería a esos cargamentos de egos provenientes de la cadena lunar. Por supuesto, materializó la idea en forma exagerada; si la misma idea fundamental es expresada en términos de fuerza y de aparición de centros de fuerza dentro de la cadena terrestre, centros que son el resultado de la energía que emana de una cadena anterior y produce remolinos en el éter o sustancia del plano mental, entonces captará más fácilmente el verdadero significado.
+[^57]: Un Guru es un instructor espiritual
+[^58]: Aspirante. "Las prácticas que rigen la unión con el alma son: ferviente aspiración, lectura espiritual y total obediencia al Maestro." "Las palabras "ferviente aspiración" que he empleado significan princialmente "fuego"; en la enseñanza oriental significan el fuego que da vida y luz y, al mismo tiempo, el fuego que purifica. Por lo tanto, tenemos como primera práctica o método de progreso espiritual, esa cualidad ígnea de la voluntad que enciende e ilumina, y al mismo tiempo esa constante práctica de la purificación, la eliminación por el fuego de las impurezas conocidas" "Su meta es traer la visión del alma y desechar los obstáculos." "Las reglas son las siguientes: pureza, serenidad, ferviente aspiración, lectura espiritual y total obediencia al Maestro." "La perfección de los poderes de la vestidura corpórea se obtiene por la eliminación de las impurezas y de la ferviente aspiración." Aforismos de la Yoga de Patanjali, Libro II, 1,2,32 ,43 (Edición C. Johnston).
+
+[^59]: Las tres Aulas a través de las cuales el alma del hombre debe progresar están expuestas en La Voz del Silencio, págs. 18,19.
+
+    |           |                       |                    |              |
+    | --------- | --------------------- | ------------------ | ------------ |
+    | 1er. Aula | Aula de la Ignorancia | humanidad infantil | plano físico |
+    | 2da. Aula | Aula del Aprendizaje  | hombre medio       | plano astral |
+    | 3er. Aula | Aula de la Sabiduría  | hombre espiritual  | plano mental |
+
+    Donde permanecemos más tiempo es en el Aula de la Ignorancia. El período siguiente en el Aula del Aprendizaje es llamado Sendero de Probación. En el Aula de la Sabiduría el iniciado se acerca al misterio central del Ser.
