@@ -1590,8 +1590,178 @@ Estas etapas han de tener lugar en los tres planos inferiores y en los tres cuer
 
 ### La iniciación y los pétalos.
 
+<p><pin lang="en">868</pin> e. La iniciación y los pétalos. Poca información se permite dar en la actualidad al público en general respecto a la relación que existe entre los pétalos y su desarrollo por medio de la iniciación. Solamente es posible impartir ciertos enunciados que contienen</p>
 
+1. insinuaciones para dirigir correctamente la energía,
+2. sugerencias sobre los misterios fundamentales que el hombre ha de resolver,
+3. advertencias sobre ciertas analogías,
+4. indicaciones prácticas para pensar constructivamente.
 
+Los estudiantes deben recordar que el objetivo de todo instructor, verdaderamente ocultista, no consiste en dar información, sino en enseñar a los aspirantes a emplear energía mental. Por lo tanto se evidenciará por qué se emplea invariablemente este método de instrucción. Lleva implícita una indicación dada por el Instructor, quizás la correlatividad de ciertas analogías conjuntamente con <pin lang="es">690</pin> sugerencias acerca de los orígenes de la luz. Esto significa que el discípulo ha de reconocer que:
+
+1. Vale la pena seguir la insinuación.
+2. La meditación es el sendero que conduce a la fuente de luz; la insinuación aludida constituye la “simiente” para la meditación.
+3. Los hechos dispares y sin correlación en vez de prestar ayuda constituyen una amenaza para el conocimiento.
+4. Cada aspecto de la verdad, progresivamente aplicado, ha de ser asimilado y agregado a la experiencia del estudiante.
+5. A no ser que las analogías estén de acuerdo en sentido atómico, personal, planetario y cósmico, debe desconfiarse de ellas.
+6. Al estudiante no se le imparte mucha información hasta que se haya convertido en discípulo, y menos aún hasta después de ser un iniciado juramentado. La razón de ello <pin lang="en">869</pin> concierne a la energía, su aplicación, uso y abuso de la misma.
+
+Continuaremos ahora con nuestro estudio acerca de los pétalos de la iniciación.
+
+Cada una de las tres hileras de pétalos de loto está estrechamente relacionada con una de las tres Aulas. A esto nos hemos referido anteriormente. Gran parte del trabajo relacionado con la primera hilera de pétalos es parte de la experiencia en el Aula de la Ignorancia. La etapa más importante consiste en la organización y preparación para el desarrollo, siendo lo que más atañe al hombre. El acto de la apertura de los pétalos es más breve, se produce por la afluencia de calor o fuego solar, dando lugar así a un nuevo acceso de energía, que tiene lugar en nuestro esquema terrestre por medio de la colaboración del Mahachohan, del Chohan del grupo egoico de un hombre y del Ego particular involucrado.
+
+Puede ser de utilidad la clasificación siguiente:
+
+1. Pétalos de Conocimiento. Primera hilera.
+   1. Formados en el Aula de la Ignorancia.
+   2. Guiados por la fuerza y la energía del Mahachohan.
+   3. Afectan al tercer grupo de Pitris solares.
+2. Pétalos de Amor. Segunda hilera.
+   1. Formados en el Aula del Aprendizaje.
+   2. Guiados por la fuerza del Bodhisattva.
+   3. Afectan al segundo grupo de Señores solares.
+3. Pétalos de Voluntad o Sacrificio. Tercera hilera
+   1. Formados en el Aula de la Sabiduría.
+   2. Guiados por la fuerza y la energía del Manu.
+   3. Afectan al primer grupo de Ángeles Solares.
+
+<p><pin lang="es">691</pin> En la etapa que estamos considerando (de formación y desarrollo de la primera hilera de pétalos) la influencia egoica sentida al principio es pequeña, pero cuando los tres pétalos, mediante la energía acumulada y almacenada en el <pin lang="en">870</pin> ego durante las actividades de la vida personal, se hallan suficientemente activos y vivos, tiene lugar entonces una forma de iniciación que es un reflejo (en un plano inferior) de las grandes iniciaciones manásicas. La energía de la hilera externa de pétalos permite que se separe de la hilera siguiente y se abra. Esta triple energía se hace interactiva, alcanzándose así una etapa muy significativa. Esta serie de iniciaciones raras veces es percibida en la conciencia del cerebro físico, debido a la etapa relativamente incipiente en que se hallan los cuerpos y a la falta de respuesta de la materia cerebral. Sin embargo, son iniciaciones de carácter definido aunque de menor importancia, e involucran principalmente la demostración (dentro de la vida personal del hombre) de un inteligente reconocimiento de sus relaciones grupales en la tierra. Dicho reconocimiento frecuentemente es de carácter egoísta como, por ejemplo, el que demuestra el trabajador sindicado, pero indica la interacción grupal.</p>
+
+Un proceso similar tiene lugar cuando ya se ha formado la segunda hilera de pétalos y está por abrirse. Entonces colaboran el Instructor del Mundo, el Maestro y el Ego implicado, pues dichas iniciaciones menores están relacionadas con la naturaleza amor, la organización astral o emocional, y el reconocimiento (por el hombre en su vida personal) de algún tipo de amor altruista, amor por algo, persona o ideal, que conduce a realizar un esfuerzo altruista y a negar al yo inferior.
+
+Esto nos conduce al tercer grupo de pétalos, los pétalos de la voluntad o del sacrificio, y a su desarrollo basado en el propósito inteligente y el amor puro. La fuerza de este grupo recurre a un factor diferente, el factor Manu, como también a la fuerza del Bodhisattva, y el efecto deseado se logra por medio de la plena colaboración del Ego totalmente despierto, ayudado por su propio Maestro (si está evolucionado en un ciclo donde el esfuerzo jerárquico para la humanidad adopta la forma que tiene actualmente) y el Manu. Oportunamente (después de la segunda Iniciación) el Señor del Mundo vendrá <pin lang="en">871</pin> como factor -el Señor del poder mundial- que se expresará plenamente como amor.
+
+Por lo tanto, hablando en términos generales, puede decirse que los grupos egoicos en los cuales se están formando y desarrollando los pétalos de conocimiento quedan bajo la influencia primaria del Mahachohan; aquellos en quienes el aspecto amor o la segunda hilera de pétalos se está abriendo, quedan bajo la influencia primaria del Bodhisattva, desarrollándoseles los de <pin lang="es">692</pin> conocimiento, paralelamente al trabajo que realizan; mientras que aquellos cuya tercera hilera se está abriendo son dirigidos por la energía del Manu, coordinándose los otros dos tipos de fuerza. Será evidente para el lector atento que aquí se halla oculto el secreto por el cual el Mahachohan mantiene su cargo durante más tiempo que Sus dos Hermanos, desempeñándolo durante un período mundial completo. La clave para estos ciclos está oculta en los siguientes conceptos: El Bodhisattva y el Manu cambian con mayor frecuencia de cargo y pasan a otro trabajo, puesto que cada uno de Ellos personifica un tipo de fuerza triple, mientras que el Mahachohan es el punto focal de cinco tipos de energía, siendo a su vez cada una de naturaleza triple.
+
+En cada caso, donde se desarrollan los pétalos, se generan ciertos tipos de fuerza; primeramente se enfrentan, asimilan y emplean en forma inconsciente, finalmente con plena inteligencia.
+
+En el Aula de la Ignorancia la fuerza de la energía de Brahma (la actividad y la inteligencia de la sustancia) es la que más se enfrenta, y en ella el hombre debe aprender el significado de la actividad basada en
+
+1. la energía innata,
+2. la energía absorbida,
+3. la energía grupal,
+4. la energía material, o lo que se halla oculto en la materia del plano físico.
+
+En el Aula del Aprendizaje el estudiante es consciente de, y emplea la energía del segundo aspecto en la construcción de la forma, en las relaciones sociales, en la familia y en otras afiliaciones grupales. <pin lang="en">872</pin> Obtiene el verdadero conocimiento del sexo y sus relaciones, pero aún considera a esta fuerza como algo que ha de ser controlado y no como que ha de ser consciente y constructivamente empleado.
+
+En el Aula de la Sabiduría el iniciado llega a conocer el primer gran aspecto de la energía, el empleo dinámico de la voluntad en el sacrificio; entonces se le confía la clave del triple misterio de la energía. En las aulas anteriores era consciente de esta energía en su triple aspecto. En las tercera, cuarta y quinta Iniciaciones se le proporcionarán las claves de los tres misterios.
+
+Entonces se le entrega la clave del misterio presentido en el primer aula, el misterio de Brahma, y puede liberar las energías ocultas en la sustancia atómica. Se pone en sus manos la clave del misterio del sexo o de los pares de opuestos; entonces puede liberar las fuerzas ocultas en todas las formas. Se le revela la clave para el misterio del sacrificio y el secreto de los Observadores <pin lang="es">693</pin> Silenciosos del cosmos, aprendiendo a liberar las energías ocultas del aspecto voluntad. Se le enseña la dínamo del sistema solar, si así puede expresarse, y se le revela la complejidad de su mecanismo.
+
+Los tres misterios fundamentales del sistema solar son los siguientes:
+
+1. El misterio de la Electricidad. El de Brahma. El secreto del tercer aspecto. Latente en el sol físico.
+2. El misterio de la Polaridad, o del impulso sexual universal. El secreto del segundo aspecto. Latente en el Corazón del Sol, es decir, en el Sol subjetivo.
+3. El misterio del Fuego mismo, o la fuerza dinámica central del sistema. El secreto del primer aspecto. Latente en el Sol central espiritual.
+
+Los tres misterios mencionados, en un sentido particular, están bajo la jurisdicción de <pin lang="en">873</pin> ciertos grandes Señores o Existencias, quienes tienen a su cargo revelar el misterio a los iniciados que ya están preparados y que se hallan bajo Su influencia durante las etapas finales del Sendero.
+
+Existen tres claves para desentrañar el misterio de la electricidad; cada una de ellas está en posesión de uno de los Budas de Actividad, quienes tienen la prerrogativa de controlar las fuerzas eléctricas del plano físico y el derecho de dirigir las tres corrientes principales de este tipo de fuerza en conexión con nuestro globo actual. Estas tres corrientes atañen a la sustancia atómica, con la cual están construidas todas las formas. En relación con nuestra cadena, existen tres Entidades misteriosas (de las cuales nuestros tres Pratyeka Buddhas constituyen únicamente los reflejos en la tierra) que desempeñan una función similar en relación con las tuerzas eléctricas de la cadena. En el esquema existen tres Existencias que colaboran con el Logos planetario quienes sintetizan Su tercer Aspecto y en consecuencia realizan una tarea similar a la realizada en el sistema solar por los tres aspectos de Brahma. El misterio de este triple tipo de electricidad tiene gran vinculación con los Constructores menores y con la esencia elemental en un aspecto particular -el más inferior y el más recóndito para la comprensión del hombre, pues encierra el secreto de lo que “subyace” o “se halla detrás” de todo lo objetivo. Secundariamente concierne a las fuerzas contenidas en los éteres, las cuales energetizan y producen la actividad que despliegan los átomos. Otro tipo atañe al fenómeno eléctrico que encuentra su expresión en la luz, controlada en cierta manera por el hombre en los fenómenos tales como las tormentas eléctricas y los relámpagos, en la aurora boreal y en los terremotos y toda actividad volcánica. Todas estas <pin lang="es">694</pin> manifestaciones se basan sobre algún tipo de actividad eléctrica y tienen que ver con el “alma de las cosas” o con la esencia de la materia. El Antiguo Comentario dice: <pin lang="en">874</pin>
+
+> “La vestidura de Dios se abre por la energía de Sus movimientos revelando al verdadero Hombre; sin embargo queda oculto para aquellos que conoce el secreto del hombre tal como existe en su propio autorreconocimiento.”
+
+El misterio de la electricidad concierne a la “vestidura” de Dios, así como el misterio de la polaridad concierne a Su “forma”.
+
+En el misterio de la Polaridad se manifiestan tres tipos de fuerza, siendo evidente que los dos misterios tienen que ver con las seis fuerzas. Estos tres tipos de fuerza son manipulados por los Budas de Amor, quienes por medio de Su sacrificio se ocupan del problema del sexo o del “acercamiento magnético” en todos los planos. El Buda a quien nos referimos y que entra en contacto con Su pueblo durante la Luna llena de Wesak, es uno de los tres que están relacionados con nuestro globo, habiendo ocupado el lugar de Aquel que pasó a realizar un trabajo superior en conexión con la cadena, pues existe la misma graduación jerárquica como la vinculada a los Budas de Acción. Un grupo podría ser considerado como los divinos Carpinteros del sistema planetario, el otro como los divinos Armadores de sus partes, siendo Los que unen la diversidad y construyen con ello la forma debido a la influencia magnética que manejan.
+
+Las actuales ideas referentes al Sexo deben ser transmutadas y elevadas de su actual significado inferior a su verdadera significación. El Sexo -en los tres mundos- tiene que ver con el trabajo de los Pitris lunares y los Señores solares. Significa esencialmente el trabajo de construir formas con sustancia y su energetización por el aspecto espiritual, y también la elevación del aspecto materia por la influencia del espíritu, pues ambos desempeñan su legítima función colaborando y produciendo -mediante su unión y fusión- al Hijo en toda Su gloria. Este método de interpretación es aplicable además a todas las existencias que se manifiestan en cualquier plano del sistema y del cosmos. En el <pin lang="en">875</pin> concepto del Sexo se hallan encerrados ciertos factores que podrían ser enumerados de la manera siguiente:
+
+1. Atracción mutua.
+2. Adaptabilidad complementaria.
+3. Atracción instintiva.
+4. Acercamiento y colaboración reconocida.
+5. Unión.
+6. La próxima etapa es donde adquiere importancia momentánea el aspecto materia o Madre, el aspecto femenino. <pin lang="es">695</pin>
+7. El retraimiento del Padre a un retiro temporario.
+8. El trabajo de crear al Hijo.
+9. La evolución y crecimiento del Hijo, tanto en la materia como en la conciencia.
+10. El Hijo se emancipa de la Madre, o el alma madura se libera de la materia.
+11. El Hijo es reconocido por el Padre, retornando al Padre.
+
+El resultado final de estas sucesivas etapas consiste en que los tres aspectos han desempeñado su función (su dharma) en el plano físico y los tres han expresado cierto tipo de energía.
+
+El aspecto Padre se manifiesta cuando es impartido el impulso inicial, la expresión eléctrica positiva, el germen del Hijo creado, cuya Vida está personificada en el Hijo. Muy poco se ha comprendido el significado oculto de las palabras “El que Me ha visto, ha visto al Padre, pues, Yo y Mi Padre somos Uno”, [^60] pronunciadas por el Cristo al responder a la demanda de “Señor muéstranos al Padre”.
+
+La Madre, o aspecto negativo, construye y nutre, cuida y quiere al Hijo por medio de las etapas prenatal e infantil, y permanece a su alrededor durante las etapas posteriores, proporcionándole la energía de su propio cuerpo y actividad de acuerdo a Su necesidad
+
+<p><pin lang="en">876</pin> El Hijo, la energía combinada del Padre y de la Madre, personifica a ambos aspectos y a toda la serie dual de cualidades, pero posee Su carácter propio, una esencia que constituye Su naturaleza peculiar y una energía que Lo impele al cumplimiento de Sus propios fines y proyectos y que, oportunamente, hará que repita los procesos de</p>
+
+1. la concepción,
+2. la creación,
+3. el crecimiento consciente,
+
+tal como lo hizo Su Padre.
+
+Cuando nos ocupamos del misterio del Fuego, nos enfrentamos con esa misteriosa energía que proviene de fuera del sistema, base de la actividad de la Madre y de la Vida del Hijo. El Hijo en todos sus actos “se convierte en el esposo de Su madre”, como dicen las antiguas Escrituras. Ésta es una frase enigmática, a menos que se la interprete como una combinación de energías. Sólo cuando el Hijo ha llegado a la madurez y sabe que es esencialmente lo mismo que el Padre, puede desempeñar conscientemente la función de Su Padre y producir y perpetuar aquello que es necesario para el sostenimiento de la generación cósmica. <pin lang="es">696</pin>
+
+La electricidad cósmica de la sustancia, la de la forma y la de la Vida misma deben fusionarse y mezclarse antes de que el Hombre verdadero (Logos o ser humano) se conozca a sí mismo como creador. En esta etapa el hombre conoce algo de la electricidad de la sustancia y está adquiriendo algún conocimiento de la electricidad de la forma (aunque todavía la denomina magnetismo), pero nada sabe de la realidad eléctrica de la vida misma. Sólo cuando la “joya en el Loto” está por revelarse, o la tercera hilera de pétalos está por abrirse, el iniciado comienza a comprender el verdadero significado de la palabra “vida” o espíritu. Debe desarrollar plenamente la conciencia antes de que pueda comprender ese gran algo energetizador, de los cuales los otros tipos de energía constituyen nada más que su expresión. <pin lang="en">877</pin>
+
+Quedan sólo dos puntos más para tratar, vinculados a los pétalos y a la iniciación.
+
+Primero, debería observarse que los términos “conocimiento, amor y sacrificio” significan ocultamente mucho más que su significado aparente. Cada hilera de pétalos representa a una de estas tres y también personifica los tres aspectos de la existencia en mayor o menor grado. Estas tres palabras explican la manera con que se expresan las tres grandes cualidades que (desde el punto de vista del pasado, presente y futuro) caracterizan la naturaleza de todas las entidades que se manifiestan -Dioses, hombres y devas. Desde el punto de vista del factor central de la manifestación -el hombre- debería comprenderse que el conocimiento era inherente al sistema solar anterior, siendo la facultad de la cual tiene que valerse, pues, está disponible para su uso. Constituye la energía oculta del Logos planetario que debe aprender a enfocarla y aplicarla por intermedio de su cerebro físico.
+
+Amor es la facultad ingénita en el presente, siendo la energía oculta del Logos planetario que puede disponer, enfocar y aplicar por medio de su centro cardiaco.
+
+Sacrificio es la facultad que le corresponderá en el futuro, y enfocará y aplicará inteligentemente por medio del centro más elevado de la cabeza. Esto depende del desarrollo de la conciencia y, por lo tanto, del reconocimiento del propósito esotérico de su grupo y de las existencias planetarias. Como esto involucra lo que se denomina “un acto solar y lunar de abnegación”, significa también comprender correctamente la energía solar y lunar, llevando a ambos grupos a una etapa de actividad colaboradora. Por consiguiente, se refiere a la naturaleza de la Joya en el loto; sólo cuando los tres pétalos de sacrificio de las tres hileras están abiertos, se libera este tipo particular de energía. Los Señores lunares de los tres cuerpos han sido controlados y su vibración sincronizada, a <pin lang="es">697</pin> fin de estar preparados para el gran acto de sacrificio <pin lang="en">878</pin> en el proceso final de la renunciación. Los señores solares, en sus tres grupos principales también están preparados para el sacrificio final que implica lo que se llama la “ruptura entre el sol y la luna”. Esto da por resultado la ruptura del vínculo magnético entre el verdadero hombre y la sustancia vibratoria sensible con la cual están formados sus tres cuerpos. Ya no es sentida la necesidad de encarnar, se rompen las cadenas del karma y el hombre queda liberado. Los “Señores lunares vuelven a su propio lugar” o -como lo expresa el cristiano- “Satán es atado por mil años”; [^61] esto significa únicamente que la paz praláyica es el sino de dichas entidades hasta volver la oportunidad manvantárica.
+
+El sacrificio final comprende también la desaparición del triángulo inferior o la ruptura del vínculo entre los tres átomos permanentes en la parte inferior del cuerpo causal o loto egoico, y la unidad central de energía. La energía de estos átomos se libera mediante el intenso calor producido por la unión de los tres fuegos, siendo reabsorbida en el depósito general del espacio interplanetario. El triángulo ardiente se pierde de vista en la llama general y las esencias dévicas, que temporalmente lo formaban, cesan su actividad.
+
+También los Angeles solares completan su sacrificio inicial con otro sacrificio final, ofrendándose a sí mismos en el altar ardiente. El cuerpo causal se destruye completamente. Los cuatro grupos inferiores de Pitris solares retornan al corazón del sol subjetivo o a ese recóndito centro del sistema de donde provinieron, mientras que los tres grupos superiores son llevados (por la fuerza y la energía generadas en la hoguera ardiente y en la llama, y mediante el estímulo producido por la llamarada de la joya central) directamente al sol central espiritual, para permanecer allí hasta otro kalpa en que se les pida Su sacrificio, esta vez como Logos planetarios. El estudiante debe recordar que <pin lang="en">879</pin> cuando piensa en los Pitris debe hacerlo siempre en términos de grupo. Los Pitris que formaron el cuerpo egoico de un ser humano no forman, solos o aislados, los Logos planetarios. Constituyen los cuarenta y nueve grupos de fuegos solares mencionados que se relacionan con el gran trabajo y se convierten en cuarenta y nueve Logos planetarios en conexión con los siete sistemas solares. En ellos se halla oculto el misterio de los tres que se transforman en los dieciséis -unidos o sintetizados por el decimoséptimo- lo cual es la analogía, en niveles cósmicos, de las esferas séptima y octava. Por ahora esto será prácticamente un misterio insoluble para el hombre.
+
+Los cuatro grupos que hallaron su camino hacia el Corazón del <pin lang="es">698</pin> sistema reaparecerán como los cuatro Logos planetarios que constituyen los veintiocho, posibilitando el logro del diez de la perfección en otras manifestaciones de los sistemas.
+
+Los siete tipos de energía solar encuentran el “sendero de retomo” a la fuente central de donde emanaron; el gran sacrificio culmina cuando se rompe el vínculo entre ellos y los señores lunares (de los cuales se habla esotéricamente como que están “muertos o muriendo” en el campo de batalla), quedando liberados a fin de retornar victoriosos.
+
+El significado esotérico de estas palabras en conexión con la energía que se halla detrás, y actuando a través de toda apariencia podría expresarse de la manera siguiente:
+
+**Conocimiento** [^62] es correcta comprensión de las leyes de la <pin lang="es">699</pin> energía, de la conservación de la fuerza, de las fuentes de <pin lang="en">880</pin> energía, sus cualidades, tipos y vibraciones. Significa comprender:
+
+1. Las diferentes claves de la vibración.
+2. Los centros por los cuales penetra la fuerza.
+3. Los canales a través de los cuales ésta circula. <pin lang="en">881</pin>
+4. Los triángulos y otras figuras geométricas que se forman durante la evolución.
+5. Los ciclos y el flujo y reflujo de la energía en relación con los diferentes tipos de manifestación planetaria, incluyendo todos los reinos de la naturaleza.
+6. El verdadero significado de esos aspectos de fuerza denominados “períodos de pralaya” y aquellos que llamamos “períodos de manifestación”. Implica también una correcta comprensión de las leyes de la oscuración.
+
+El hombre fue aprendiendo todo esto en las diversas aulas por medio de la experiencia práctica, abarcando el placer y el dolor, <pin lang="es">700</pin> haciéndosele comprender en las iniciaciones finales no sólo la existencia de dichas fuerzas sino también cómo manejarlas y manipularlas. Conocimiento es: correcta dirección de las corrientes de fuerza, primero en los tres mundos del esfuerzo humano y luego en el sistema solar.
+
+**Amor** es correcta comprensión del uso y propósito de la forma y de las energías implicadas en la construcción y utilización de la misma y de su eventual desintegración al ser reemplazada. Involucra la comprensión de las Leyes de Atracción y de Repulsión, de la interacción magnética entre todas las formas, grandes y pequeñas, de las relaciones grupales, del poder energetizante de la vida unificadora y del poder de atracción que ejerce una unidad sobre otra, ya sea átomo, hombre o sistema solar. Significa que se han de conocer todas las formas, los propósitos y relaciones de las mismas; concierne a los procesos de construcción en el hombre mismo y en el sistema solar, para lo cual es necesario desarrollar esos poderes que convertirán al hombre en un Constructor consciente, un Pitri solar en el próximo ciclo. Una <pin lang="en">882</pin> de las grandes revelaciones en la iniciación es: revelar al iniciado el centro cósmico particular de donde emana el tipo de fuerza o energía con el cual él -el iniciado- estará relacionado cuando se convierta, a su debido tiempo, en un Pitri solar o divino manasaputra, para una humanidad futura. Por lo tanto, debe poseer no sólo conocimiento sino también la energía del amor que le permitirá vincular los tres superiores y los cuatro inferiores de una futura raza de hombres en un período distante e individualizarse gracias al sacrificio de su propio principio medio plenamente consciente.
+
+**Sacrificio** significa algo más de lo ya indicado. Implica los factores siguientes:
+
+1. Conocimiento de los propósitos e intenciones del Logos planetario.
+2. Comprensión del tipo particular y peculiar de energía y la cualidad de su propio Señor de Rayo.
+3. Comprensión de los diferentes grupos de existencias que participan en la evolución planetaria y en la manifestación solar.
+4. Revelación de ciertas empresas cósmicas en las cuales nuestro Logos planetario actúa como colaborador inteligente. De esta manera se introduce el factor fuerza que proviene de fuera del sistema.
+
+Cuando se consideran estos y otros factores, es evidente que la energía liberada, en sacrificio a dichos planes e intenciones, abarca un campo tan vasto de sabiduría que jamás podrá <pin lang="es">701</pin> imaginárselo el hombre común. Trata de los propósitos y planes de los Observadores Silenciosos en los tres planos -los cinco y los siete- y la fuerza dinámica de los grandes Ángeles destructores en todos los planos que eventualmente -mediante la manipulación de las tres formas de energía- darán fin a todo lo que existe. Estos ángeles constituyen un grupo misterioso de Vidas foháticas, que hacen sonar las <pin lang="en">883</pin> trompetas de la destrucción y, mediante las notas emitidas, producen esa desintegración que liberará a la energía encerrada en las formas.
+
+El segundo punto es muy breve. Se refiere a la hilera interna de pétalos, o a ese conjunto de tres pétalos o corrientes de energía giratoria que rodean inmediatamente a la “joya en el loto”. Cada uno de estos tres pétalos está relacionado con una de las tres hileras y se van formando a medida que cada una de ellas se abre. Constituyen por lo tanto la síntesis del conocimiento, del amor y del sacrificio y se vinculan estrechamente, por medio del tipo de fuerza que fluye a través de ellos, con uno de los tres centros superiores del Logos planetario del rayo particular a que pertenece un hombre. Esta unidad central de triple fuerza debe ser enfrentada de manera especial, en la iniciación.
+
+En la primera, segunda y tercera Iniciaciones, uno de los tres pétalos se abre, permitiendo que se despliegue cada vez más el punto central eléctrico. En la cuarta Iniciación, la joya (habiéndose revelado completamente) debido a su llameante luz, intenso calor irradiante y tremenda emisión de fuerza, produce la desintegración de la forma que la circunda, la desintegración del cuerpo causal, la destrucción del Templo de Salomón y la disolución de la flor de loto. El trabajo del Iniciador, respecto a esto, es muy interesante. Por medio del Cetro de Iniciación y de ciertas Palabras de Poder, produce resultados de naturaleza coordinadora, transmutadora y liberadora.
+
+Por medio de la acción del Cetro, tal como ha sido manejado en las dos primeras Iniciaciones, las dos hileras externas se abren, la energía de ambas se libera y los dos conjuntos de fuerza personificados en los seis pétalos se coordinan e interactúan. Esta etapa de reajuste de pétalos sucede a la denominada anteriormente “desarrollo” y tiene que ver con la acción simultánea de las dos hileras de pétalos. La interacción entre ambas es total y la circulación <pin lang="en">884</pin> de las corrientes va perfeccionándose. El Cetro es aplicado a lo que podría llamarse el pétalo “clave”, de acuerdo al rayo y subrayo a que pertenezca un hombre. Lógicamente esto difiere en relación a la unidad de fuerza implicada. Es interesante observar aquí que así como la sustancia del pétalo es sustancia dévica y la energía de los pétalos y la energía de ciertos manasadevas (una de las tres <pin lang="es">702</pin> categorías superiores de Agnishvattas), el iniciado es influenciado (esta palabra no es totalmente apropiada para explicar satisfactoriamente el tipo de servicio dévico que aquí se necesita) por un gran deva que representa el equilibrio de la vibración sustancial producida por los esfuerzos del iniciado, ayudado por los adeptos que lo presentan, los cuales representan uno de los dos polos de fuerza, la cual es temporariamente estabilizada por el Iniciador. Estos tres factores,
+
+1. el deva representante,
+2. los dos adeptos y
+3. el iniciador,
+
+forman, durante un breve segundo, un triángulo de fuerza con el iniciado en el centro. A través de ellos circula el tremendo poder, el “fuego de los Cielos”, que es descendido desde la tríada superior por medio del Cetro eléctrico.
+
+Esta aplicación de fuerza extra-egoica es en sí misma de triple naturaleza; está simbolizada por los tres agentes protectores y la triple naturaleza del Cetro mismo. Emana, en sentido primordial, del Logos planetario del rayo a que pertenece un hombre y procede de uno de los centros planetarios correspondientes al centro coronario, al cardíaco o al laríngeo de un ente humano. Dicha energía se aplica a la hilera correspondiente de pétalos y al pétalo correspondiente de la hilera de acuerdo a la iniciación recibida y a los rayos primario y secundario. Podrá observarse aquí una estrecha relación entre los pétalos y los centros del nivel etérico del plano físico <pin lang="en">885</pin> y se verá (cuando se ha realizado el trabajo necesario) cómo es posible obtener una transmisión directa de fuerza desde los planos superiores a los inferiores, en el siguiente orden:
+
+1. Desde el centro logoico, el Logos planetario, a la Mónada en su propio plano.
+2. Desde esa Mónada, a una de las tres hileras de pétalos, de acuerdo al aspecto o rayo correspondiente.
+3. Desde la hilera de pétalos, considerada como una unidad, a uno de los pétalos de la hilera, según la cualidad y tipo de fuerza, empleando al pétalo como agente transmisor.
+4. Desde el pétalo particular en el cual está centrada momentáneamente la fuerza, a uno de los átomos permanentes, también de acuerdo al rayo y tipo de fuerza.
+5. Desde el átomo permanente vía el triángulo atómico y los centros mental y astral, a uno de los centros superiores del cuerpo etérico particularmente implicado.
+6. Desde el centro etérico al cuerpo físico.
+
+<p><pin lang="es">703</pin> Hemos expuesto aquí brevemente el proceso de transmisión de fuerza desde la Mónada al hombre en el plano físico y, por lo tanto, será evidente el énfasis puesto continuamente sobre la necesidad de lograr pureza corpórea (en los tres cuerpos) y sobre el alineamiento de esos cuerpos, a fin, de que la fuerza pueda afluir ininterrumpidamente. Los efectos de este descenso de fuerza pueden ser considerados de dos maneras, material o síquicamente.</p>
+
+El efecto material, o el resultado de este estímulo sobre las formas y los átomos de las formas, consiste en hacerlas radiactivas o liberar la energía de la sustancia. Constituye la liberación de la energía aprisionada dentro de la forma, y se relaciona con el aspecto Brahma y <pin lang="en">886</pin> la evolución de la materia misma. Afecta a los cuerpos lunares y, por lo tanto, está vinculado con los Pitris o Señores lunares, lo cual debilita su aferramiento sobre los constructores menores, sometiéndolos cada vez más a las corrientes de fuerza provenientes de los Ángeles solares, produciendo una situación que oportunamente hará regresar a los Pitris lunares de cualquier categoría al punto central de la sustancia de fuerza. En sentido síquico el resultado de la afluencia lo constituye la estimulación de la conciencia y la adquisición (por medio de ese estímulo) de los poderes síquicos latentes en el hombre. Sus tres centros físicos superiores, la glándula pineal, el cuerpo pituitario y el centro alta mayor son afectados y el hombre se hace síquicamente consciente en el cerebro físico de las influencias, acontecimientos y poderes superiores. Según el rayo involucrado así será el centro afectado. Será reemplazada la fuerza de los Señores lunares, que ha logrado mantener en estado pasivo a estos tres órganos, por la energía que verterán los Ángeles solares.
+
+Todo ello está también estrechamente relacionado con la triple energía del cuerpo físico, que produce efectos en la columna vertebral, elevando de su base al fuego kundalínico, haciéndolo ascender por el triple canal de la columna, también de acuerdo al rayo y aspectos implicados. Nada más puede decirse sobre ello, pues los peligros de un conocimiento prematuro sobre esta línea son mucho mayores que los peligros de la ignorancia. Baste señalar que los fuegos de los centros inferiores -los de debajo del diafragma- en el momento de alcanzar la segunda iniciación, generalmente han ascendido al centro entre los omóplatos; en el transcurso de la segunda iniciación se elevan hasta la cabeza, entonces entran en actividad todos los fuegos del torso. Sólo queda por efectuarse su centralización, a fin de establecer la necesaria interacción geométrica entre los siete centros de la cabeza, para luego enfocarlos en el centro más elevado, antes de la liberación final. <pin lang="es">704</pin> [i887
 
 
 [^1]: Por lo tanto, los ángeles solares son entidades de orden espiritual elevado -con una conciencia refinada correspondiente a la sustancia materia con la cual están revestidos. A fin de relacionar esto con lo ya dicho, puede considerarse que los ángeles solares forman colectivamente al Señor Brahama de la isla del loto. Se les denomina con distintos nombres, espíritus planetarios, Asuras, etc., pero a fin de tener una idea adecuada respecto a su naturaleza puede decirse que la relación que tienen con el mundo espiritualmente regenerado y liberado de los Brahmines mundiales o Nirmanakayas, es la misma que existe entre ellos y la humanidad común. Los ángeles fueron esos Brahmines, que en Mahamanvantaras anteriores pasaron períodos excesivamente extensos, trabajando y sufriendo con el fin de fomentar la sabiduría en el mundo; de allí surgieron como ángeles de la matriz infinita de Aditi bajo su impulso kármico después de un período de Mahapralaya. Some Thougts on the Gita, pág. 137.
@@ -1795,3 +1965,43 @@ Estas etapas han de tener lugar en los tres planos inferiores y en los tres cuer
     | 3er. Aula | Aula de la Sabiduría  | hombre espiritual  | plano mental |
 
     Donde permanecemos más tiempo es en el Aula de la Ignorancia. El período siguiente en el Aula del Aprendizaje es llamado Sendero de Probación. En el Aula de la Sabiduría el iniciado se acerca al misterio central del Ser.
+
+[^60]: La Biblia. Juan XIV, 8.
+
+[^61]: La Biblia. Rev. XX, 2.
+
+[^62]: 
+    1. Existen siete ramas del conocimiento, mencionadas en los Puranas. D. S. I, 200.
+    2. La Gnosis o el Conocimiento oculto, es el séptimo Principio; las seis escuelas de la filosofía hindú constituyen los seis principios. D. S. I, 290.
+    3. Estas seis escuelas son:
+       1. La escuela Lógica	Prueba de correcta percepción.
+       2. La escuela atómica	Sistema detallado. Elementos. Alquimia y química.
+       3. La escuela Sankya	Sistema de números. La escuela materialista. La teoría de los siete estados de la materia o prakriti.
+       4. La escuela de Yoga	Unión. La regla del diario vivir. Misticismo
+       5. La Escuela de la Religión Ceremonial	Ritual. Culto a los devas o Dioses.
+       6. La escuela vedanta	Tiene que ver con la no-dualidad. Trata de la relación de Atman, en el hombre, con el Logos.
+    4. Existen cuatro ramas del conocimiento a las cuales se refiere especialmente H.P.B., D. S. I, 200.
+    5. Estas cuatro son probablemente aquellas que más ha tratado el hombre en esta cuarta ronda y cuarta cadena. Compárese D. S. I, 97, 119, 128,230.
+    6. Las cuatro Nobles Verdades. Los cuatro Vedas. Los cuatro Evangelios. Las cuatro admisiones básicas. Los cuatro Elementos preparados. Los cuatro grados de la Iniciación.
+    7. Yajna Vidya	La ejecución de ritos religiosos a fin de producir ciertos resultados. Magia ceremonial concierne al Sonido, por consiguiente, el Akasha o éter del espacio. El "yajna" es la Deidad invisible que compenetra el espacio
+     ¿No se referirá esto al plano físico?
+    8. Mahavidya	El gran conocimiento mágico. Ha degenerado en el culto Tantrika. Trata del aspecto femenino o del aspecto materia (madre). La base de la magia negra. El verdadero mahayoga tiene que ver con la forma (segundo aspecto) y su adaptación al Espíritu y sus necesidades.
+     ¿No se referirá esto al plano astral?
+    9. Guyha vidya	La ciencia de los mántram. El conocimiento secreto de los mántram místicos. La potencia oculta del sonido o la Palabra
+     ¿No se referirá esto al plano mental?
+    10. Atma vdya.	Verdadera sabiduría espiritual.
+    11. El conocimiento de la verdad es un patrimonio común.D. S. III, 56,21.
+    12. El conocimiento es una cosa relativa y varía de acuerdo al grado alcanzado.
+        1. Campos de mayor conocimiento se abren ante un Logos planetario. D. S. IV, 259.
+        2. El hombre puede llegar a obtener las cuatro verdades sin ser ayudado. D. S. VI, 66
+    13. Finalmente el conocimiento es un arma peligrosa:
+        14. Esto es debido al Egoísmo personal.
+        15. No es peligroso cuando:
+            1. Se entrega a él en cuerpo, alma y espíritu. D. S. V, 69-70
+            2. Se cree firmemente en la propia divinidad. D. S. V, 69-70
+            3. Se reconoce su Principio inmortal.
+            4. Se conoce a sí mismo. D. S . VI, 79-80.
+            5. Se practican todas las virtudes. D. S. V, 238
+            6. Se tiene experiencia. D. S. VI, 130.
+            7. Se comprende que el conocimiento es únicamente el fruto del Espíritu. D. S. VI, 96.
+            8. El conocimiento es adquirido por medio de la mente superior. D. S. VI, 96.
