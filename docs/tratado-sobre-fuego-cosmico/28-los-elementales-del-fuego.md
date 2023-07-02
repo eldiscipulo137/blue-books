@@ -86,16 +86,92 @@ Como H.P.B. lo ha señalado [^1], aves y serpientes están estrechamente relacio
 
 ### Los elementales y los devas menores de la materia líquida.
 
+**Los elementales y los devas menores de la materia líquida**. Un ejemplo muy interesante de la interpretación de toda la materia viviente de la creación puede verse en la atmósfera que envuelve nuestro planeta, la cual contiene:
 
+1. Humedad, o esas esencias vivientes que son los elementales líquidos.
+2. Sustancia gaseosa, o esas vidas que están vinculadas a todas las esencias ígneas y volátiles, resultado del calor.
+3. Materia etérica, o las categorías más inferiores de los devas de los éteres.
 
+La conjunción de esta importante triplicidad produce lo que respiramos y aquello en que vivimos, nos movemos y tenemos nuestro ser. Para el estudiante reflexivo el aire está lleno de símbolos, pues constituye una síntesis y el puente entre los estratos superiores e inferiores de la manifestación.
 
+<p><pin lang="es">711</pin> Primero debemos centrar nuestra atención sobre esas vidas que constituyen a través de toda la manifestación la suma total de todo lo acuoso y líquido y, al considerarlo, debemos recordar que estamos realizando una de las investigaciones más esotéricas y ocupándonos de cuestiones que están muy estrechamente vinculadas con la evolución del hombre.</p>
 
+Los innumerables grupos de devas del agua que pertenecen al tipo manipulador han sido burdamente clasificados por escritores mitológicos bajo los términos de ondinas, sirenas y otras <pin lang="en">897</pin> expresiones, pero su diversidad es enorme; esto lógicamente se observará si se recuerda que toda el agua sobre la tierra (océanos, mares, ríos, lagos y arroyos) excede a la parte seca o tierra y cada gota de humedad es en sí misma una pequeña vida, cumpliendo su función y recorriendo su ciclo. Las formas míticas referidas, sólo son esas miríadas de vidas construidas en una forma por medio de la cual un deva evolucionante trata de expresarse.
 
+La extrema importancia de este tema puede ser expresada en ciertas afirmaciones que darán al estudiante una idea de la cuidadosa atención que debe ponerse, y oportunamente se pondrá, sobre el tema de las vidas dévicas de la manifestación acuosa. Como ya se ha dicho, el conjunto de estas vidas es mayor que el de aquellas que forman la suma total de la tierra sólida, tal como entendemos el término, aunque no exceden al número de vidas que forman la parte gaseosa de la manifestación; dicha parte gaseosa se encuentra en la atmósfera interpenetrando la materia densa y llenando en gran parte las cavernas interiores del planeta. El parecido microscópico con la Gran Vida del planeta se evidencia en el hecho de que ambas formas sólo son envolturas o armazones externos que protegen una “bóveda” interna; ambas son huecas, tienen sus extremos positivo y negativo, sus polos por así decirlo, llevándose a cabo en su interior muchas cosas que afectan a las evoluciones externas.
 
+Uno de los planetas más esotéricos, Neptuno, rige a los “devas de las aguas”; el Señor deva que lo rige es Varuna, el Raja del plano astral, siendo una emanación de ese planeta. Los estudiantes hallarán dé profundo interés estudiar la estrecha relación que existe entre:
 
+1. El sexto plano, el plano astral, y el sexto subplano del plazo físico, el subplano líquido. <pin lang="en">898</pin>
+2. El sexto subplano de cada plano en el sistema solar y su relación recíproca.
 
+He aquí una de las razones por la cual los hombres que poseen un tipo de cuerpo físico relativamente inferior, con un cuerpo astral que contiene algo de materia del sexto subplano, responden a cosas elevadas y tienen aspiraciones espirituales. La influencia que <pin lang="es">712</pin> emana del sexto subplano del plano búdico evoca una respuesta recíproca de la materia del sexto subplano en otros cuerpos, y el sexto principio de budi, de acuerdo a la Ley de Analogía, intensifica esa vibración.
 
+Neptuno es uno de los nombres que se da en nuestro planeta al Logos planetario de uno de los tres esquemas principales. Algunas de Sus influencias y energías afectan en forma prominente a la esencia dévica de la materia de este sexto subplano, y les llega por conducto del Señor Raja Varuna. Este conocimiento es, astrológicamente, de valor práctico porque permitirá al hombre comprender la naturaleza de su propio cuerpo físico, y sobre todo de su cuerpo astral. Esotéricamente el tipo de materia astral en el cuerpo de un hombre decide la calidad de la sustancia acuosa de su cuerpo físico. En ocultismo, no hay disociación de las naturalezas físico-síquicas, pues la segunda determina la primera. En consecuencia el planeta Neptuno tiene una estrecha relación, de acuerdo a la Ley de Analogía con el sexto plano o astral -el plano de la parte líquida del cuerpo físico logoico-, con el sexto subplano del plano físico, la parte líquida del cuerpo físico humano y del físico planetario, y también con el sexto tipo de energía o fuerza, o sea el sexto rayo, produciendo sobre ellos un profundo efecto.
+
+El esquema mayor que rige Neptuno forma un triángulo en el sistema con el sexto esquema y otro más, algo de mucho interés para los astrólogos esotéricos. Está simbolizado por el tridente que sostiene el dios Neptuno; <pin lang="en">899</pin> cada diente simboliza los triángulos conectados entre sí por tres líneas de fuerza.
+
+Este planeta tiene también una relación vital con el sexto principio logoico o budi y, por consiguiente, con el sexto principio del hombre. Ningún hombre empieza a coordinar los vehículos búdicos hasta hallarse bajo la influencia neptuniana en una vida u otra. Cuando esto sucede, el horóscopo de la personalidad demostrará que la influencia neptuniana predomina en alguna parte.
+
+:::note Recuerda
+
+Ningún hombre empieza a coordinar los vehículos búdicos hasta hallarse bajo la influencia neptuniana en una vida u otra. Cuando esto sucede, el horóscopo de la personalidad demostrará que la influencia neptuniana predomina en alguna parte
+
+:::
+
+El esquema neptuniano rige uno de los tres senderos de retorno, y reúne en sí oportunamente a todos esos Egos que han logrado la realización, manipulando principalmente el sexto tipo de energía que generalmente se denomina devoción. También la influencia neptuniana preside y hace posible la segunda Iniciación, donde el iniciado produce resultados en el cuerpo astral, siendo sus centros astrales objeto de la atención del Hierofante. Este tipo particular de energía fluye a través de tres centros:
+
+1. Ese particular centro de la cabeza vinculado al centro del corazón.
+2. El centro cardiaco.
+3. El plexo solar.
+
+<p><pin lang="es">713</pin> El planeta Neptuno, lo mismo que el logos planetario del sexto rayo, controla los centros astrales del hombre. Esta afirmación tiene mucho significado esotérico macrocósmico. Cuando se recuerde que todos los centros -humanos y divinos- están compuestos de esencia dévica, inmediatamente se evidenciará la relación que existe entre esta influencia y los devas, y su efecto reflejado sobre el hombre.</p>
+
+Cuando se descubra el misterio del mar y el enigma de su “desecación” o absorción esotérica, se revelará oportunamente el significado que subyace en: <pin lang="en">900</pin>
+
+1. El impulso sexual, interpretado macrocósmica y micro cósmicamente.
+2. La cesación del deseo.
+3. La orientación del fuego al centro laríngeo en lugar de, los órganos genitales.
+4. El pralaya y la oscuración.
+5. El significado de las palabras “ya no habrá mar” que se encuentran en La Biblia cristiana.
+
+Cuando el estudiante medite sobre estos pensamientos, deberá tener presente que Neptuno es uno de los planetas principales o sintetizadores, es decir un planeta “absorbente” o “abstrayente”, y que está vinculado con el proceso mediante el cual se obtiene con el tiempo la perfección. El Hijo llega así a la perfección y finaliza la encarnación cósmica.
+
+Existe además un vínculo esotérico muy estrecho entre el hecho que subyace detrás de las palabras bíblicas “el Espíritu de Dios se movía sobre la faz de las aguas” [^2] y la actividad legítima y ordenada de la gran Madre cuando construye los cuerpos bajo el impulso del deseo. La verdadera relación que existe entre el plano astral y el plano físico será evidente sólo cuando los estudiantes tengan presente que el plano astral del sistema solar es el sexto subplano del plano físico cósmico y constituye la suma total de la sustancia líquida del cuerpo físico logoico. Cuando esto es comprendido, se inicia el trabajo de la esencia dévica, evidenciándose el factor deseo o movimiento astral y su acción refleja sobre el cuerpo físico a través del sexto subplano; se observará la gran Madre abocada activamente, influenciada por el deseo, al trabajo de construir, nutrir y producir el calor y la humedad que harán posible la manifestación. La Madre es el más grande de los devas y está muy vinculada <pin lang="en">901</pin> a los devas de las aguas, pues la humedad es esencial para toda vida.
+
+<p><pin lang="es">714</pin> Por consiguiente, el sexto principio o el aspecto amor (principio crístico) y el sexto plano están relacionados; existe una interacción de energía entre el cuarto éter cósmico o energía búdica y el sexto plano o energía astral. Los devas de ambos planos pertenecen esencialmente a grupos regidos por la influencia neptuniana, por eso el plano astral puede, y eventualmente podrá, reflejar directamente al búdico.</p>
+
+Los devas constructores mayores que se hallan en el segundo plano del sistema solar, el plano monádico o el segundo éter cósmico, dirigen las energías de los devas manipuladores del cuarto éter cósmico, el plano búdico.
+
+Los devas manipuladores del cuarto éter cósmico, en el transcurso de la evolución, desarrollan el plan en perfecta objetividad, por medio de la sustancia viviente de los devas menores del plano líquido o astral. Cuando lo hayan realizado obtendrán dos resultados: primero, el plano astral reflejará perfectamente al plano búdico y, segundo, el plano físico producirá, por medio de la fuerza del agua o deseo, el vehículo más apropiado para la expresión micro y macrocósmica.
+
+La simbología del sistema circulatorio del hombre revela todo esto al esoterista. Cuando el sistema sanguíneo, con sus dos tipos de canales (arterias y venas) y sus dos tipos de constructores (glóbulos rojos y blancos), sea estudiado desde el punto de vista esotérico, se verificarán muchas cosas de naturaleza revolucionaria. Las leyes del sendero de salida y del sendero de retorno, con los dos grupos de vidas dévicas concernientes, serán comprendidos por el hombre. Aquí puede hacerse otra indicación. En el cuerpo físico del hombre, en relación con el sistema circulatorio, encontramos en los tres factores, corazón, arterias y venas, la clave que revela los tres tipos <pin lang="en">902</pin> de devas, el triángulo del sistema que ellos representan y las tres formas en que se expresa la divinidad. Existe una circulación en el sistema y también planetaria, y se lleva a cabo en todas partes por medio de la sustancia dévica, tanto macro como micro cósmicamente.
+
+Los devas del sexto subplano físico pueden ser divididos en tres grupos y éstos en siete y en cuarenta y nueve, correspondiendo así a todos los grupos del sistema solar. Dichos grupos (en su naturaleza esencial) responden mejor a “lo que “está arriba que a lo que está abajo”, lo cual es una forma ocultista de expresar la íntima relación que existe entre los devas del fuego y los del agua y también de negar la relación que existe entre los devas del agua y los de la tierra. Expresado esotéricamente, los devas del agua se liberan por la acción de los devas del fuego
+
+Los devas del agua por sí mismos encuentran la forma de <pin lang="es">715</pin> prestar servicio realizando el gran trabajo de nutrir la vida animal y vegetal del planeta; su meta consiste en pertenecer a ese grupo superior de devas denominados gaseosos o devas del fuego. Estos, al poner en acción su fuego sobre las aguas, producen la secuencia siguiente, evaporación, condensación y la eventual precipitación que -por su constante actividad- nutre toda vida sobre la tierra. Puede observarse cómo actúan las leyes síquicas del amor en el reino dévico y en el humano; primero, el retiro del grupo o segregación de la unidad (lo que se denomina individualización en el reino humano y evaporación en el reino acuático). Luego la condensación o amalgamación del ente en un grupo nuevo o superior, a esto lo llamamos condensación para los devas de las aguas e iniciación para el hombre; finalmente, el sacrificio del grupo de átomos humanos o dévicos para bien del todo. De esta manera rigen las leyes de servicio y de sacrificio en el segundo aspecto divino en todos sus sectores grandes <pin lang="en">903</pin> o pequeños. Tal es la ley. Aunque en el reino humano, el amor significa cumplir la ley, se llega a esto por el sendero del sufrimiento y del dolor, y todo aquel que verdaderamente ama y sirve a la humanidad es tendido en la cruz hasta que predomine el sexto principio, y el sexto tipo de materia de sus cuerpos esté completamente sometido a la energía superior. [^3] En el caso de los devas, amar es cumplir la ley sin dolor o sufrimiento.
+
+Constituye para ellos la línea de menor resistencia porque son el aspecto madre, el factor femenino de la manifestación; el sendero fácil para ellos es dar, nutrir y curar. Por lo tanto, los devas de las aguas se dedican totalmente a servir a los reinos animal y vegetal y, mediante los fuegos transmutadores, será eliminado todo aquello que sujeta al sexto subplano; por medio de la “destilación y evaporación” esotéricas, estos devas formarán oportunamente parte del grupo gaseoso ígneo y se convertirán en esos fuegos que son la base de la divina alquimia.
+
+Hablando en forma general, se ha de recordar que los devas terrestres de materia densa se transforman, en el transcurso de la evolución, en devas del agua, y oportunamente encuentran su camino al plano astral o líquido cósmico; los devas de las aguas del plano físico llegan por medio del servicio al subplano gaseoso y luego al cósmico gaseoso, trasformándose en devas del plano mental. Esto constituye literal y esotéricamente la transmutación del deseo en pensamiento.
+
+<p><pin lang="es">716</pin> Los devas gaseosos se convierten con el tiempo en devas del cuarto éter y, después de largos eones, llegan al cuarto éter cósmico o plano búdico. Por lo tanto, estos tres grupos están cósmicamente relacionados con: <pin lang="en">904</pin></p>
+
+1. El plano astral cósmico y la constelación donde se origina la energía emocional y de deseo.
+2. El plano mental cósmico y la constelación de Sirio.
+3. El plano búdico cósmico y la constelación de las Pléyades.
+
+De esta manera, todo el proceso puede desarrollarse si el hombre estudia cuidadosamente su propia naturaleza y la ley de analogía.
+
+### Los devas del subplano gaseoso.
 
 
 
 [^1]: D. S. I, Sección X, 108, 68;III, 284-285
+
+[^2]: La Biblia. Gen. I:2.
+
+[^3]: "Mide tu vida en vez de las adquisiciones.
+     No por el vino bebido, sino por el vino escanciado,
+     Pues la fuerza del Amor está en el sacrificio del Amor;
+     Y quien más sufre más tiene para dar." The Disciples por Hamilton King.
