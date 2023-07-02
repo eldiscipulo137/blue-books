@@ -201,6 +201,67 @@ Otro aspecto del trabajo del Mahachohan en la actualidad está relacionado con e
 
 ## c. Elementales de los éteres.
 
+Consideraremos ahora los niveles etéricos del plano físico o sea los cuatro subplanos superiores. Dichos niveles etéricos sólo son graduaciones de la materia del plano físico, de índole más sutil y refinada, siendo sin embargo física. En algunos libros de texto se los denomina:
+
+1. El primer éter, o materia atómica.
+2. El segundo éter, o materia subatómica.
+3. El tercer éter, o materia super etérica.
+4. El cuarto éter, o materia etérica simplemente.
+
+El cuarto éter es el único reconocido hasta ahora por los científicos, siendo el tema de sus investigaciones actuales aunque no se den cuenta de ello.
+
+<p><pin lang="es">721</pin> En el subplano atómico están los átomos físicos permanentes de toda la humanidad y los átomos correspondientes al reino dévico. Los devas no evolucionan como la raza humana. Reencarnan en grupos y no en individuos, aunque cada grupo está compuesto de unidades, no poseyendo nada de la naturaleza del alma grupal involutiva. El alma grupal del sendero involutivo y la del evolutivo son distintas; una está entrando en la diferenciación, y se compone de entidades animadas por una vida global; la otra se ha diferenciado, y cada entidad es una unidad separada de la vida una, completa en sí misma, sin embargo una con el todo.</p>
+
+<p><pin lang="en">911</pin> Existen muchos tipos de vida con los cuales hay que entrar en contacto en los cuatro niveles etéricos, pero ahora sólo podemos ocupamos de la vida dévica, recordando que la evolución dévica es de igual importancia que la del hombre. Estos devas son numerosos, de naturaleza evolutiva y pertenecen a todos los grados y tipos. El gran deva Kshiti los rige en el plano físico. Es un deva de categoría y poder similares a los del Chohan de Rayo; preside todo lo que está fuera del reino humano en el plano físico y tiene como consejeros a los cuatro señores dévicos secundarios de los cuatro niveles etéricos. Con ellos preside un concilio subsidiario de siete devas que tratan todo lo que se relaciona con la evolución dévica y el trabajo de los constructores mayores y menores.</p>
+
+El deva que rige el cuarto éter o inferior, ha delegado a un miembro de Su concilio a fin de que se reúna, en la actualidad, con cierto Maestro para dos propósitos específicos; primero, para ver si es posible intentar el acercamiento de dos líneas de evolución, la humana y la dévica y, segundo, revelar algunos de los métodos curativos y las causas de la incapacidad física inherentes al doble etérico.
+
+Devas de todo tipo y color se encuentran en los niveles físico etéricos, pero el color que prevalece es el violeta, de allí la frase los “devas de la sombra” empleada a menudo. Con la llegada del rayo ceremonial color violeta, tenemos por lo tanto la amplificación de la vibración violeta, siempre inherente a estos niveles, y en consecuencia la gran oportunidad para establecer contacto entre los dos reinos. En el desarrollo de la visión etérica (capacidad del ojo físico humano) y no en la clarividencia, se hará posible esta mutua comprensión. También con el advenimiento de este rayo, los que pertenecen al mismo, vendrán con el don natural de ver etéricamente. A menudo nacerán niños que <pin lang="en">912</pin> verán etéricamente con tanta facilidad como el ser humano común ve físicamente; cuando las condiciones armónicas surjan gradualmente del actual caos mundial, devas y seres humanos establecerán amistad.
+
+Cuando ambos planos, el astral y el físico se fusionen y <pin lang="es">722</pin> mezclen y exista continuidad de conciencia le será difícil al ser humano, al principio, diferenciar entre los devas del plano astral y los del plano físico. Al iniciarse este período de reconocimiento, los hombres entrarán en contacto principalmente con los devas color violeta, pues los de categoría superior intentarán definitivamente entrar en contacto con el ser humano. Estos devas de las sombras son de color púrpura oscuro en el cuarto nivel etérico; de color púrpura más claro, muy similar al color violeta, en el tercer nivel etérico; violeta claro, en el segundo; mientras que en el subplano atómico son de un brillante color lavanda trasparente.
+
+Algunos grupos de devas con los cuales se ha de entrar en contacto en el plano físico son los siguientes:
+
+**Cuatro grupos de devas de color violeta**, asociados con el doble etérico de todo lo que existe en el plano físico. Estos cuatro están divididos en dos grupos, los que están asociados a la construcción del doble etérico y aquellos cuya sustancia se emplea para construir esos dobles etéricos.
+
+**Los devas de color verde del reino vegetal**. Existen también en dos grupos. Están muy evolucionados y se entrará en contacto con ellos principalmente por medio del magnetismo. Los devas mayores de este orden presiden los lugares magnéticos de la tierra; cuidan la soledad de las selvas, mantienen intactos los espacios abiertos del planeta que es necesario conservar inviolados, los defienden de toda intromisión y, con los devas violeta, trabajan en la actualidad, en forma definida aunque temporaria, regidos por el Señor Maitreya. El Señor Raja del plano astral, Varuna <pin lang="en">913</pin> y su hermano Kshiti, han sido convocados a la Cámara de Concilio de la Jerarquía para una consulta específica; así como los Maestros se están esforzando para preparar a la humanidad a fin de que preste servicio cuando el Instructor del Mundo venga, también estos Señores Raja trabajan en líneas similares vinculadas a los devas; lo hacen arduamente, su dedicación es intensa, aunque se hallan muy obstaculizados por el hombre.
+
+**Los devas de color blanco del aire y del agua**, que presiden la atmósfera, trabajan con ciertos aspectos de fenómenos eléctricos y controlan los mares, ríos y arroyos. En cierta etapa de su evolución son extraídos de dichos grupos los ángeles guardianes de la raza cuando encarnan en el plano físico. Cada ente de la familia humana tiene su deva guardián.
+
+Cada grupo de devas tiene un método específico de desarrollo <pin lang="es">723</pin> y algún medio por el cual evolucionan y alcanzan una meta determinada.
+
+Para los devas color violeta el sendero de realización se manifiesta por medio del sentimiento, educando a la raza en el perfeccionamiento del cuerpo físico, en sus dos sectores.
+
+Para los devas color verde el sendero de servicio consiste en la magnetización, de la cual la raza humana nada sabe todavía. Por medio de este poder, actúan como protectores de la vida vegetal y de los lugares sagrados del planeta; en su trabajo reside la seguridad del cuerpo del hombre, porque éste extrae su alimento del reino vegetal y lo seguirá extrayendo durante esta ronda.
+
+Para los devas de color blanco el sendero de servicio reside en proteger a los individuos de la familia humana, cuidar y segregar tipos, controlar a los elementales del agua y del aire y gran parte de lo que atañe al reino ictiológico.
+
+De esta manera, sirviendo a la humanidad en una forma u otra, dichos devas del plano físico logran su realización. Tienen mucho que dar y hacer para la humanidad y, con el tiempo, <pin lang="en">914</pin> le será evidente al ente humano lo que tiene que dar para la perfección del reino dévico. Ahora se está acelerando grandemente su evolución, paralelamente a la de la familia humana.
+
+Existe otro grupo de devas con el cual no se puede establecer aún mucho contacto. Vinieron de otro esquema planetario y se especializan en su propia línea. Han alcanzado el reino humano o han pasado por él, y tienen la misma categoría que ciertos miembros de la Jerarquía, habiendo decidido quedar y trabajar con la evolución del plano físico. No son muy numerosos, doce únicamente. Cuatro trabajan en el grupo de color violeta, cinco en el grupo de color verde y dos en el grupo de color blanco, presididos por un regente de igual categoría que un Chohan. El seis es el número de la evolución dévica, como el cinco es ahora el del hombre, y así como el diez representa al hombre perfecto, el doce representa la perfección del reino dévico. Este grupo preside a los tres mencionados anteriormente. Existen además ciertos grupos subsidiarios.
+
+En el primer grupo se hallarán los elementales que trabajan con el doble etérico del hombre, los elementales que forman el cuerpo etérico donde quiera que haya vida, y los elementales que trabajan con las contrapartes etéricas de los así llamados objetos inanimados. Éstos se enumerarán de acuerdo al orden e importancia de su desarrollo. Los devas color violeta se hallan en el sendero evolutivo, los elementales en el sendero involutivo y su meta consiste en pasar al reino dévico color violeta.
+
+<p><pin lang="es">724</pin> En el segundo grupo trabajan las hadas de la vida vegetal, los silfos que construyen y pintan las flores, los pequeños seres refulgentes que habitan los bosques y los campos, los elementales que trabajan con las frutas, los vegetales y todo lo que contribuye a cubrir de verdor la superficie de la tierra. Asociados a éstos se hallan los <pin lang="en">915</pin> devas menores del magnetismo, apegados a los lugares sagrados, a los talismanes y a las piedras y también un grupo especial que se encuentra cerca de donde habiten los Maestros.</p>
+
+En el tercer grupo trabajan los elementales del aire y del mar, los silfos, las hadas del agua y los devas que cuidan a cada ser humano.
+
+Aquí se dan sólo indicaciones generales. Esta lista no es completa ni incluye a los elementales más burdos, los duendes morenos y los que moran en los espacios oscuros de la tierra y de las ciudades y en los lugares subterráneos en la superficie de la tierra.
+
+Los devas de los éteres llevan sobre su frente un símbolo transparente en forma de Luna creciente, y por eso quienes son capaces de ver clarividentemente los distinguen de los devas astrales.
+
+Al considerar a los devas de los éteres, hallaremos que, por lo general, se dividen -en lo que se refiere a la manifestación- en dos grupos principales. Cada grupo está representado en cada uno de los cuatro subplanos, y este agrupamiento no puede ser considerado más que un método de diferenciación entre los muchos posibles. Dichos grupos son, primero, los devas que transmiten prana a todas las formas de vida; formando un grupo de devas intermediarios que proveen energía en sus distintas diferenciaciones; segundo, los devas que forman los cuerpos etéricos de toda forma de manifestación, constituyendo la mayoría de los devas menores.
+
+Lógicamente hay muchas otras inteligencias organizadas en la gran Hueste de la Voz en relación con esta principal división del plano físico, pero si el estudiante considera ambos grupos e investiga su relación con el hombre y el Hombre celestial, dentro de Cuyo cuerpo ellos se encuentran, aprenderá mucho que le permitirá comprender los problemas considerados hasta ahora insolubles y se le revelarán muchas cosas <pin lang="en">916</pin> que tenderán a revolucionar los descubrimientos de la ciencia moderna y a producir cambios en los métodos empleados para el cuidado del cuerpo físico.
+
+#### Los devas y la energía
+
+
+
+
+
+
+
 
 
 
