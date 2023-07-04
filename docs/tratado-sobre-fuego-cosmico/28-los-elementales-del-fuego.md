@@ -256,10 +256,80 @@ Lógicamente hay muchas otras inteligencias organizadas en la gran Hueste de la 
 
 #### Los devas y la energía
 
+**Los devas y la energía.** Antes de entrar a considerar estos dos grupos, sería conveniente insistir en que es necesario tener presente, cuando consideramos los niveles etéricos del plano físico, que nos ocupamos de esos planos en los cuales se halla la verdadera forma y estamos próximos a la solución del misterio del Espíritu <pin lang="es">725</pin> Santo y de la Madre. Por esta comprensión hasta incluir todo un sistema solar, se logrará esclarecer el vínculo que existe entre los cuatro planos superiores del sistema y los tres mundos del esfuerzo humano. Tenemos en el macrocosmos los cuatro planos de la vida supra-consciente o vibraciones centrales, que constituyen la base de la vida y la energía del cuerpo etérico de un Logos planetario y de un Logos solar, y los tres planos de vida consciente y autoconsciente que forman el vehículo físico denso de un Hombre celestial y del gran Hombre de los Cielos.
 
+Por medio del estudio de estas condiciones en el macro y microcosmos se comprenderá la razón por la cual los ocultistas nunca consideran al vehículo físico como un principio. El Espíritu Santo, quien influencia e implanta el germen de vida en la expectante y pasiva Virgen Madre o materia (haciendo que despierte e inicie su gran trabajo de producir la encarnación divina), es un factor primordial desde el punto de vista del segundo sistema solar. En forma incomprensible para los pensadores modernos, la Madre o divina aspirante a los misterios del matrimonio cósmico, fue (en un sistema anterior) el factor predominante. En este sistema, en relación con la sustancia o Espíritu Santo, es el factor predominante. Por lo tanto, el trabajo en niveles etéricos y la energía y actividad que se origina en el mismo, son los factores principalmente responsables en el plano <pin lang="en">917</pin> físico de todo lo que es tangible, objetivo y manifestado. El acrecentamiento de materia alrededor del cuerpo vital y la densificación de la sustancia alrededor del núcleo etérico vital son, en sí mismos, el resultado de la interacción y el intercambio final de vibración entre aquello que podría denominarse el remanente de una manifestación anterior y la vibración de la actual.
 
+Aquí -en la relación que existe entre energía positiva y su cuádruple diferenciación, y la triple sustancia inferior negativa receptiva, los científicos llegarán eventualmente a ciertas deducciones definidas y descubrirán:
 
+1. El secreto de la materia misma, es decir, de la materia tal como la conocemos y vemos.
+2. La clave del proceso de la creación en el plano físico y el método por el cual se logra la densidad y concreción en los tres niveles inferiores.
+3. Las fórmulas para la transmutación orgánica, o la clave para los procesos por los cuales los elementos tales como los conocemos pueden ser desintegrados y combinados nuevamente.
 
+Sólo cuando los científicos estén preparados para aceptar el hecho de que existe un cuerpo vital que actúa como punto focal en cada forma organizada, y sólo cuando quieran considerar cada <pin lang="es">726</pin> elemento y forma de cualquier grado como constituyendo parte de un cuerpo vital aún mayor, los verdaderos métodos de la gran diosa Naturaleza serán suyos. Para lograrlo deben estar dispuestos a aceptar la séptuple diferenciación del plano físico, según lo afirma el ocultismo oriental, y han de reconocer la triple naturaleza de la manifestación septenaria:
+
+1. La energía atómica o energía de Shiva, energía del primer subplano o primer plano etérico.
+2. La energía para la construcción de formas en los tres niveles etéricos siguientes.
+3. La energía negativa receptiva de los tres planos <pin lang="en">918</pin> del físico denso, el gaseoso, el líquido y el verdaderamente denso.
+
+Considerarán oportunamente también la interacción entre los tres inferiores y los cuatro superiores en ese gran átomo denominado plano físico. Esto puede verse duplicado en el átomo de la física o de la química. Los estudiantes científicos interesados en estos asuntos hallarán de utilidad estudiar la analogía que existe entre estos tres tipos de energía y lo que se entiende por las palabras átomos, electrones e iones.
+
+Todo lo que se manifiesta desde Dios hasta el hombre [^5] es el resultado de estos tres tipos de energía o fuerza, su combinación e interacción y su acción y reacción síquicas. En el gran ciclo de duración logoica predomina el segundo tipo de energía, siendo importante su evolución, por eso el cuerpo etérico subyacente en todo lo visible es el más importante. Esto es también verdad respecto a los dioses, hombres y átomos.
+
+Se pierde mucho tiempo conjeturando sobre los orígenes de la vida, los resortes de la actividad y los impulsos que subyacen en los procesos creadores. Hasta ahora la ciencia ha trabajado casi a ciegas y ha dedicado mucho tiempo a investigar los tres planos inferiores. Se ha ocupado principalmente de la Madre, de la materia negativa receptiva, y sólo ahora está llegando a ser consciente del aspecto Espíritu Santo o energía que permite a esa Madre cumplir su función y llevar adelante su trabajo.
+
+Abordando el mismo problema micro cósmicamente puede <pin lang="es">727</pin> decirse que recién ahora los hombres comienzan a ser <pin lang="en">919</pin> conscientes de los resortes que inician la actividad espiritual y de los orígenes de la vida espiritual. La energía de los planos superiores sólo se va revelando a medida que los hombres comienzan a hollar el Camino y a ser influenciados por budi, que afluye desde el cuarto plano etérico cósmico.
+
+Finalmente, cuando los científicos estén dispuestos a reconocer y a colaborar con las fuerzas inteligentes que se hallan en los niveles etéricos y cuando se convenzan de la naturaleza hilozoísta de todo lo que existe, sus descubrimientos y trabajos tendrán una exacta analogía con las cosas tal como son en realidad. Como se ha señalado anteriormente esto se llevará a cabo cuando la raza desarrolle la visión etérica y se compruebe más allá de toda controversia, la verdad de las afirmaciones del ocultista.
+
+Habrán observado que al enumerar los dos grupos principales, no se ha mencionado a ese gran grupo de Constructores denominados esotéricamente “los transmisores de la Palabra”. Sólo se ha tratado de los dos grupos que constituyen la “Hueste de la Voz”; esto se debe a que en esta parte nos ocupamos solamente de ella o de esos constructores, grandes y pequeños, que entran en actividad cuando se pronuncia la Palabra del plano físico. Los “Transmisores de la Palabra” del primer subplano o nivel atómico, reciben el sonido vibratorio que llega desde el plano astral y -pasándolo a través de sus cuerpos- lo envían a los otros subplanos. Para mayor claridad, puede decirse que dichos transmisores son siete. Forman, en su totalidad, los cuerpos físico atómicos del Señor Raja del plano y, en sentido peculiarmente esotérico, los siete forman (en sus diferenciaciones inferiores en niveles etéricos) la suma total de los centros etéricos de todos los seres humanos, así como en los niveles etérico cósmicos se encuentran los centros de un Hombre celestial.
+
+La conexión que existe entre los centros y la sustancia etérica, humana y del sistema, abre un vasto campo para el <pin lang="en">920</pin> pensamiento. Los “Transmisores de la Palabra”, en el subplano atómico de cada plano son devas que poseen vastos poderes y prerrogativas, y puede decirse que están vinculados al aspecto Padre y a las personificaciones del fuego eléctrico. Todos tienen plena autoconciencia, habiendo pasado por la etapa humana en kalpas anteriores. Además son parte integrante de los siete centros principales de la cabeza en el cuerpo de un Logos solar o de un Logos planetario.
+
+Aunque se hallan vinculados con el aspecto Padre, sin embargo forman parte del cuerpo del Hijo y, cada uno de ellos, de acuerdo al plano que energetizan, es parte componente de uno de los siete centros solares o planetarios -planetario cuando concierne <pin lang="es">728</pin> únicamente al centro involucrado del sistema, considerado parte integrante del todo.
+
+Cada una de estas grandes vidas (personificando energía dévica de primer grado) es una emanación del sol central espiritual en el primer caso y de una de las tres constelaciones principales en el segundo. Se dividen, en el sistema, en tres grupos: Grupo 1, incluye a esos transmisores de la Palabra que se encuentran en los tres subplanos inferiores del plano Adi o logoico. Grupo 2, comprende a esos grandes constructores que trasmiten la Palabra en los tres siguientes planos del sistema, el monádico, el átmico y el búdico. Grupo 3, está formado por aquellos que realizan una función similar en los tres mundos del esfuerzo humano. Fundamentalmente, en el tercer caso, también son emanaciones de una de las siete estrellas de la Osa Mayor.
+
+En estas triples fuerzas emanantes puede encontrarse el origen de todo lo que es visible y objetivo y, por su intermedio, nuestro sistema solar ocupa su lugar dentro del esquema cósmico mayor, formando un fuego cósmico básico, constituyendo la suma total de los centros coronario, cardíaco y laríngeo del Logos solar, hallándose sus analogías en un Hombre celestial, un ser <pin lang="en">921</pin> humano y un átomo. Por eso cuando el científico descubre la naturaleza del átomo se pone en contacto con esos tres tipos de energía solar y está desentrañando el misterio central del sistema. Cuando la triple naturaleza del átomo sea revelada, se comprobará gradualmente la triple naturaleza del hombre y de Dios. La energía de estos grupos pasa así a través del sol físico y de allí emiten la Palabra correspondiente al plano particular de su esfuerzo específico.
+
+El estudiante no debe cometer el error de pensar que estos siete grandes transmisores son los siete Hombres celestiales. Componen la mitad de Su real naturaleza. Es todo lo que puede decirse de este gran misterio, aunque puede añadirse que, desde otro punto de vista, sólo forman una tercera parte de su triple naturaleza divina. El hombre es dual, Espíritu y materia; también durante la evolución, es una triplicidad; lo mismo sucede con el Hombre celestial, de allí el misterio.
+
+El gran Transmisor de la Palabra en el plano físico, que estamos considerando, es el factor que energetiza el centro laríngeo de Brahma. Podría hacerse una interesante clasificación de los triples centros y de los tres aspectos divinos, que será de utilidad para el estudiante, aunque debería recordar cuidadosamente que estos centros sirven para generar y trasmitir energía:
+
+1. El transmisor de energía en el plano físico forma el centro laríngeo en el cuerpo de Brahma, el tercer aspecto. <pin lang="es">729</pin>
+2. El transmisor de energía en el plano astral forma el centro cardíaco de Brahma.
+3. El transmisor de la palabra en el plano mental forma el centro coronario de este tercer aspecto.
+
+Estos tres Señores Raja, devas o transmisores, forman los tres centros de fuerza logoica en los tres mundos. Constituyen el aspecto energía más inferior de Brahma. <pin lang="en">922</pin>
+
+1. El Transmisor de la Palabra en el plano búdico forma el centro de la garganta de Vishnu, el segundo aspecto. Desde allí surge la Palabra que construye la forma física densa de un Hombre celestial o de un Logos solar.
+2. El Transmisor de energía en el plano monádico forma el centro cardíaco de Vishnu, el segundo aspecto.
+3. El Transmisor de energía en el plano átmico forma el centro coronario de Vishnu.
+
+Esta clasificación confundirá a los estudiante si no tienen en cuenta que estamos considerando estos aspectos sólo como dualidades y tratando de una de las partes duales. Se evidenciará por ejemplo, en el aspecto Vishnu, que se manifiesta en el segundo plano, que la energía de ese plano actuará como centro coronario para los planos subsiguientes, y si esto se capta correctamente aclarará lo demás.
+
+El Transmisor de la Palabra en el plano de Adi o primer plano, es la personificación del centro laríngeo de una entidad cósmica. Lo expuesto proporcionará una exacta comprensión de nuestro lugar en el esquema cósmico; también demostrará la naturaleza fundamentalmente física de los siete planos del sistema solar y evidenciará la naturaleza de Brahma o el Espíritu Santo.
+
+En Antiguo Comentario dice:
+
+> Brahma es Uno, sin embargo incluye a Su hermano. Vishnu es Uno, sin embargo no existe separado de Su hermano aunque joven, en lo que respecta al tiempo, sin embargo es muy viejo. Shiva es Uno y antecede a ambos, sin embargo no aparece ni es visto hasta que ambos hayan recorrido cíclicamente Su curso.
+
+La séptuple clasificación que antecede, de acuerdo a la ley de analogías puede ser aplicada igualmente a cada plano, pues los transmisores y trabajadores en cada plano forman grupos similares. Del mismo modo, el hombre puede considerar esta clasificación en relación con sus siete centros y, de su estudio, <pin lang="en">923</pin> adquirirá conocimiento respecto al tipo de energía que fluye a través de cualquier centro particular. Análogamente, a estos transmisores se los puede oír cuando emiten la Palabra con bastante fuerza y poder en ese esquema Planetario que corresponde a su nota y está sintonizado <pin lang="es">730</pin> a su vibración. Por lo tanto, los esquemas planetarios se dividen en agrupaciones similares y esto abrirá para los estudiantes un vasto campo de conjeturas. Los siete Prajapatis se dividen en dos grupos de tres, predominando uno de Ellos. Al estudiar el sistema solar, los planos, los esquemas, el hombre y el átomo, los estudiantes deberían recordar que las agrupaciones de las líneas o corrientes de energía durante los ciclos evolutivos se dividen lógicamente en cuatro:
+
+1. 1-3-3
+2. 4-3
+3. 3-4
+4. 3-1-3
+
+La primera división puede ser interpretada de acuerdo a la ley de analogía, cuando se investiga la naturaleza del plano atómico del sistema solar, los tres planos etérico cósmicos y los tres planos del esfuerzo humano, en su mutua relación.
+
+La segunda división es más fácil de captar cuando se comprende la estrecha relación que existe entre los cuatro planos etérico cósmicos y los tres planos inferiores. Esto puede ser esclarecido estudiando los cuatro éteres físicos y los tres subplanos inferiores de nuestro plano físico.
+
+La clave para descifrar el misterio de la tercera división se halla oculta en la manera como está constituido el plano mental con sus tres niveles sin formas y sus cuatro niveles con formas.
+
+La cuarta división puede ser descifrada cuando el estudiante comprende que su propia naturaleza constituye una tríada espiritual, un cuerpo egoico y un triple hombre inferior. También puede encarar la primera división en forma similar y considerarse a sí mismo como una fuerza primaria o la Mónada, una triple fuerza <pin lang="en">924</pin> secundaria o el Ego, y una triple energía inferior o la personalidad, recordando que aquí únicamente consideramos la energía creadora y el aspecto Brahma de la manifestación al coordinarse con el aspecto Vishnu.
+
+#### Los transmisores de prana
 
 
 
@@ -278,3 +348,7 @@ Lógicamente hay muchas otras inteligencias organizadas en la gran Hueste de la 
      Y quien más sufre más tiene para dar." The Disciples por Hamilton King.
 
 [^4]: Si el hombre puede llegar a comprender la naturaleza de su propio ser y de su constitución; si puede ser inducido a comprender que lo que ocurre es razonable, y si se les puede demostrar a los pensadores de la raza los riesgos incidentales producidos en la evolución dévica por los acontecimientos actuales, pueden evitarse grandes peligros. A esto se debe la decisión de ampliar este tratado para que incluya una información más detallada respecto a la evolución dévica.
+
+[^5]: La Doctrina Secreta dice que: Dios, Mónada y Átomo son analogías de Espíritu, Mente y Cuerpo. D. S. II, 313.
+
+     El Logos se manifiesta en ese mahamanvantara como Manas (los divinos Manasaputras en su totalidad) empleando cuerpos atómicos para propósitos evolutivos con el objeto de desarrollar el segundo aspecto de budi o sabiduría. La sabiduría debe tener por base a manas o mente inteligente. El Logos es la suma total de la Inteligencia, que está evolucionando a fin de desarrollar Amor.
