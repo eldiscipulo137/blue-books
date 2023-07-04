@@ -331,10 +331,26 @@ La cuarta división puede ser descifrada cuando el estudiante comprende que su p
 
 #### Los transmisores de prana
 
+**Los transmisores de prana.** Anteriormente, en una parte de este tratado, hemos considerado en forma parcial los devas que transmiten prana para el cuerpo etérico del hombre y del planeta. Son el reflejo, en el plano inferior, del aspecto Vishnu de la divinidad; los siete subplanos de nuestro plano físico reflejan débil y distorsionadamente los tres aspectos, siendo una sombra oscura que nada revela de la Deidad. Este grupo de transmisores son responsables de tres resultados importantes, hallándose activos en tres líneas principales.
 
+Son los devas que vitalizan y producen la energía de todas las formas de vida sensoria. Constituyen la vida que palpita a través <pin lang="es">731</pin> del cuerpo etérico de cada planta y animal y de toda forma intermedia de vida; son el fuego intenso que se ve circular a través de cada vehículo etérico. Otra de sus innumerables funciones consiste en producir el calor del sol y de todos los cuerpos; causan la irradiación solar, planetaria y humana; nutren y preservan todas las formas. Esotéricamente son los intermediarios entre el Padre y la Madre en cada plano, ya sea cósmico o del sistema. Se originan del sol y están estrechamente relacionados con el plexo solar logoico y planetario, pues el proceso evolutivo, como en toda la manifestación, es el resultado del deseo que actúa sobre las facultades creadoras y produce lo objetivo.
 
+Constituyen los devas que energetizan a las miríadas de diminutas vidas que construyen en el cuerpo etérico de todo lo visible y tangible, siendo los instigadores de los procesos creadores de los tres subplanos más inferiores del plano físico. Los devas que en el sistema se dedican a esta actividad pueden subdividirse en dos grupos: <pin lang="en">925</pin>
 
+1. Aquellos que trabajan en los cuatro planos superiores del sistema y desde allí influencian a los tres mundos, produciendo por acción refleja los resultados deseados.
+2. Aquellos que trabajan en los tres mundos del esfuerzo humano, produciendo directamente la manifestación física densa.
 
+Todos los devas etéricos que transmiten energía en el plano físico pertenecen a la segunda división ya enumerada; de acuerdo al subplano en que trabajan, son guiados por una inteligencia mayor en el plano correspondiente.
+
+Existen también los devas que constituyen la fuerza atractiva de toda forma subhumana, manteniendo en coherencia las formas de los tres reinos inferiores de la naturaleza y produciendo así el cuerpo de manifestación de la gran Entidad, suma total de la vida del reino y de las vidas menores que animan a diferentes familias y grupos dentro de cualquier reino específico.
+
+#### Los devas del doble etérico.
+
+**Los devas del doble etérico.** El tema que abordaremos ahora concierne a esos devas que constituyen el doble etérico de todo lo que existe. En consecuencia tiene mucho valor para el estudiante inteligente porque revela el método por el cual todas las formas se materializan en el plano físico.
+
+El propósito de este tratado no consiste en describir la materialización de la forma, por medio del divino pensamiento, a medida que se origina en los planos arquetípicos y (mediante corrientes dirigidas de energía inteligente) va adquiriendo sustancia al reproducirse en cada plano, hasta que oportunamente (en el plano [e732] físico) la forma queda revelada en su manifestación más densa. Ninguna forma es todavía perfecta, para ello es necesario evolucionar cíclicamente y continuar en la producción de formas hasta que se aproximen a la realidad en hecho y acción.
+
+El método para producir las formas puede clasificarse de la manera siguiente: <pin lang="en">926</pin>
 
 
 
