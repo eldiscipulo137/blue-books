@@ -348,9 +348,130 @@ Existen también los devas que constituyen la fuerza atractiva de toda forma sub
 
 **Los devas del doble etérico.** El tema que abordaremos ahora concierne a esos devas que constituyen el doble etérico de todo lo que existe. En consecuencia tiene mucho valor para el estudiante inteligente porque revela el método por el cual todas las formas se materializan en el plano físico.
 
-El propósito de este tratado no consiste en describir la materialización de la forma, por medio del divino pensamiento, a medida que se origina en los planos arquetípicos y (mediante corrientes dirigidas de energía inteligente) va adquiriendo sustancia al reproducirse en cada plano, hasta que oportunamente (en el plano [e732] físico) la forma queda revelada en su manifestación más densa. Ninguna forma es todavía perfecta, para ello es necesario evolucionar cíclicamente y continuar en la producción de formas hasta que se aproximen a la realidad en hecho y acción.
+El propósito de este tratado no consiste en describir la materialización de la forma, por medio del divino pensamiento, a medida que se origina en los planos arquetípicos y (mediante corrientes dirigidas de energía inteligente) va adquiriendo sustancia al reproducirse en cada plano, hasta que oportunamente (en el plano <pin lang="es">732</pin> físico) la forma queda revelada en su manifestación más densa. Ninguna forma es todavía perfecta, para ello es necesario evolucionar cíclicamente y continuar en la producción de formas hasta que se aproximen a la realidad en hecho y acción.
 
 El método para producir las formas puede clasificarse de la manera siguiente: <pin lang="en">926</pin>
+
+|                        |                                                                 |     |
+| ---------------------- | --------------------------------------------------------------- | --- |
+| 1. Pensamiento divino. | El plano mental cósmico.                                        |     |
+| 2. Deseo divino.       | El plano astral cósmico.                                        |     |
+| 3. Actividad divino.   | El plano físico cósmico. (los siete planos de nuestro sistema). |     |
+
+
+|                    |              |                   |
+| ------------------ | ------------ | ----------------- |
+| El Aliento logoico | Primer plano | El sonido [^6] A. |
+
+Constituye la primera aparición etérica de un sistema solar en el subplano atómico del plano físico. Todas las simientes de vida se hallan latentes. Facultad inherente que proviene de una esencia solar anterior. <pin lang="es">733</pin>
+
+|                   |               |                |
+| ----------------- | ------------- | -------------- |
+| El Sonido logoico | Segundo plano | El sonido A U. |
+
+Constituye el cuerpo del sistema solar en el segundo éter, siendo el plano arquetípico. Las simientes de <pin lang="en">927</pin> vida están vibrando o germinando. Se evidencian los siete centros de energía. El deva Agni aparece como séptuple. La forma es potencialmente perfecta.
+
+|                           |              |                |
+| ------------------------- | ------------ | -------------- |
+| La Triple Palabra logoica | Tercer plano | El sonido AUM. |
+
+Se ve el cuerpo del sistema solar en sustancia del tercer plano etérico y los tres funcionan como uno. La triple energía del Logos está coordinada y nada puede obstaculizar el trabajo de la evolución. Los tres grupos de devas están activos y la forma arquetípica en proceso de materialización.
+
+|                                                                                 |              |                              |
+| ------------------------------------------------------------------------------- | ------------ | ---------------------------- |
+| La palabra septenaria logoica . Los centros etéricos logoicos se hacen activos. | Cuarto plano | La Palabra de siete sílabas. |
+
+El cuerpo etérico del sistema solar ya está totalmente terminado, aunque no llegará a la perfección hasta el fin de otro manvantara. El principal cuerpo de vitalidad está preparado para energetizar al vehículo físico denso. Los siete centros, con sus cuarenta y nueve pétalos principales, vibran, y la conciencia se estremece a través de cada átomo del sistema.
+
+Un intervalo o pausa tiene lugar en esta etapa de desarrollo llevándose a cabo los procesos de coordinación y estabilización; la energía o vibración aumenta hasta que, mediante un esfuerzo simultáneo que emana de los tres aspectos, se hace posible para llevar a la objetividad aquello que todavía es subjetivo. Esto tiene su paralelo en el plano físico cuando el hombre aplica el esfuerzo para atraer y materializar lo que ha concebido y deseado. La razón por la cual tantas personas no materializan sus conceptos, y por ello se consideran fracasadas, se debe a la incapacidad de aplicar en forma coordinada el esfuerzo y poner en movimiento sustancia de los tres subplanos inferiores del plano físico. Consiguen <pin lang="en">928</pin> llevar su concepto desde el plano mental (como lo hace el Logos en niveles cósmicos) hasta el cuarto nivel etérico del físico, y allí su energía se agota debido a
+
+1. la falta de voluntad o concentración sostenida,
+2. la falta de alineamiento con el Ego,
+3. la débil coordinación entre las dos partes del vehículo físico.
+
+|                                     |              |                                                           |
+| ----------------------------------- | ------------ | --------------------------------------------------------- |
+| La Frase logoica. El cuerpo gaseoso | Quinto plano | El plano del mántram logoico de treinta y cinco estanzas. |
+
+Entonces aparece la forma gaseosa del sistema solar y los <pin lang="es">734</pin> centros de energía se velan y ocultan. El acrecentamiento y la concreción tienen lugar rápidamente. Los tres grupos de constructores coordinan nuevamente sus esfuerzos y se produce una nueva afluencia de energía -trayendo devas desde el centro logoico de la cabeza. Los constructores menores responden al mántram logoico, entonado nuevamente en cada manvantara, y las siete corrientes de energía, desde los siete centros logoicos, se dirigen hacia abajo.
+
+|                                                             |                |                                    |
+| ----------------------------------------------------------- | -------------- | ---------------------------------- |
+| El canto logoico de Amor y Deseo. El cuerpo liquido Logoico | El Sexto plano | Un poema en cuarenta y dos versos. |
+
+Este canto o vibración provoca la venida de un grupo de devas desde el centro del corazón logoico para aumentar los esfuerzos de los que ya se hallan activos. El cuerpo líquido del Logos solar aparece, y la forma existe en sus seis diferenciaciones. La concreción es muy rápida y la actividad es considerablemente más violenta dada la mayor densidad de la substancia que se va acrecentando.
+
+|                             |               |                                          |
+| --------------------------- | ------------- | ---------------------------------------- |
+| El libro logoico de La Vida | Séptimo Plano | Compuesto de cuarenta y nueve capítulos. |
+
+La totalidad de la forma revelada. Durante la evolución debe manifestar su propósito y naturaleza. Un tercer grupo <pin lang="en">929</pin> de devas aparece desde el centro laríngeo logoico y colabora con sus hermanos. Los fuegos arden, los centros están activos y cada uno de los cuarenta y nueve pétalos, en el cuarto plano de budi, produce una actividad refleja en el plano físico denso.
+
+El hombre realiza un trabajo similar cuando está abocado a la creación, cualquiera sea, y al proceso de producir formas en la tierra, las cuales personifican una idea. Aquí la analogía es perfecta.
+
+En conexión con esos seres humanos que nada crean, pero que son impulsados a la actividad por la urgencia de las circunstancias -constituyendo el grueso de la raza humana-, debe señalarse que forman parte de la actividad creadora de alguna entidad mayor y más avanzada. A medida que prosigue la evolución autoconsciente habrá cada vez más miembros de la familia humana que se convertirán en creadores y trabajadores inteligentes en lo que atañe a la sustancia dévica. Por lo tanto, en las etapas iniciales, al disociarse de la actitud pasiva, surgirá una rebelión contra la ley y el orden, una negativa de ser gobernado y una evidente capacidad de seguir un concepto individual a expensas del grupo, grande o pequeño. La evolución y la experiencia pondrán remedio a este defecto aparente y, a medida que la conciencia responde más activamente a las vibraciones superiores, el hombre se hará consciente del propósito y del plan de la Inteligencia que dirige al grupo. <pin lang="es">735</pin> Despertará a la belleza de ese plan y empezará a subordinar sus propios intereses en bien de la mayoría y a colaborar inteligentemente. El poder creador, que antes había sido de naturaleza separatista, será ofrecido como sacrificio voluntario a la energía superior y sus pequeños planes e ideas se fusionarán con los más grandes. Sin embargo no será una unidad pasiva, llevada de un lado a otro por la energía de su grupo, sino que se convertirá en una fuerza positiva, activa y potente, auto inmolada por el reconocimiento inteligente de un plan superior. Comprenderá que existen fuerzas <pin lang="en">930</pin> vivientes en la naturaleza y que a medida que la energía superior vibra a través de él, se despiertan sus propios poderes latentes. Ve y conoce a las fuerzas dévicas, y por lo tanto puede trabajar inteligentemente con ellas. Controlará y manipulará a unas, colaborará con otras y obedecerá aun a otras.
+
+Verdadero mago es quien comprende los hechos relativos a la sustancia dévica, al poder del sonido, a la ley de la vibración y a la capacidad de producir formas de acuerdo a la ley. Aquí reside una de las diferencias existentes entre el mago de la Buena Ley y el del Sendero de la Izquierda. Un mago blanco puede controlar y manipular la sustancia dévica, y lo hace colaborando inteligentemente con los constructores mayores. Dada la pureza, la santidad de su vida y el grado elevado de su propia vibración, puede entrar en contacto con cualquier tipo de deva. El mago de las sombras controla y manipula la sustancia dévica, en los planos astral y físico y en los niveles inferiores del plano mental, por la fuerza de sus vibraciones y conocimiento, pero no colabora con los constructores dirigentes. No puede entrar en contacto con ellos porque, debido al egoísmo, su naturaleza es impura, siendo su vibración demasiado baja; por lo tanto, su poder es limitado y destructivo, sin embargo inmenso dentro de ciertas restricciones.
+
+Los devas del doble etérico se dividen en dos grupos. Los constructores menores, que son dirigidos por los constructores mayores, forman el doble etérico de todo lo visible y tangible en el plano físico denso. Son legión y omnipresentes; reúnen y construyen el material necesario para formar el doble etérico de todas las cosas y lo hacen regidos por ciertas leyes, trabajando con ciertas restricciones. Se los denomina en la fraseología ocultista “los devas que escuchan”, pues recogen esa nota y tono particular emitido por los que transmiten <pin lang="en">931</pin> el sonido del plano físico, el cual es necesario para reunir la sustancia de cualquier forma material que se intenta realizar. También se dice que poseen “oídos, pero no ven”. Trabajan en estrecha colaboración con los elementales del cuerpo físico denso. Éste constituye el segundo grupo y se los denomina “elementales que ven”, pues existen en materia de los tres subplanos <pin lang="es">736</pin> inferiores, pudiendo ver en el plano objetivo en sentido esotérico lo cual implica que existe siempre una analogía entre vista y conocimiento. Los “constructores que escuchan” reúnen el material; los “elementales que ven” toman este material y erigen con éste cualquier forma específica. Existen en muchos grupos de acuerdo a su grado de evolución y algunos de ellos pueden ser clasificados de la manera siguiente:
+
+1. Los constructores del vehículo humano.
+
+Constituye el grupo superior más altamente especializado de los constructores menores, del cual nos ocuparemos detalladamente más adelante.
+
+2. Los constructores de las formas en las dos divisiones de los tres reinos de la naturaleza.
+
+Primero. Los constructores del reino mineral. Trabajadores que esotéricamente se denominan “los alquimistas elementales”. Pertenecen a muchos grupos vinculados a los diferentes elementos, como metales, productos químicos y minerales, y con las denominadas sustancias activas y radiactivas. Custodian dos secretos, el de la metalización de la Mónada y el de la transmutación de metales.
+
+Segundo. Los constructores del reino vegetal. Constituyen muchos grupos y se los denomina “los alquimistas de la superficie” y “las unidades puente”. Construyen el doble etérico de toda forma de vida vegetal, y así como los “alquimistas” del reino mineral se ocupan mayormente con la acción del fuego, estos trabajadores alquímicos se ocupan de la acción líquida de la manifestación <pin lang="en">932</pin> divina. Por consiguiente, trabajan en colaboración con los devas de las aguas o de la sustancia líquida, mientras que el grupo ya mencionado lo hace con los devas gaseosos. Aquí sólo se da un indicio, no es posible ampliarlo detalladamente debido al peligro que implica el conocimiento que con ello se adquirirá. Ocultan tres secretos; uno está relacionado con el sistema solar anterior o el sistema solar color verde; otro trata de las leyes para tender puentes o de la interacción entre los reinos de la naturaleza, y el tercero está relacionado con la historia de la segunda ronda; cuando este secreto sea revelado le aclarará al hombre la razón por la cual (de acuerdo a la ley) él debería ser vegetariano y no carnívoro. Los científicos ya están descubriendo ciertas cosas vinculadas al segundo secreto y podrán obtener indicios sobre el primero, a medida que amplían su conocimiento respecto al significado del color. Sobre el tercer secreto no se dará mayores detalles hasta que la sexta raza llegue a vivir en la tierra.
+
+Tercero. Los constructores de todas las formas etéricas <pin lang="es">737</pin> animales. Constituyen un grupo estrechamente aliado a los que construyen la forma humana. Vinieron en tropel desde un depósito de energía mantenido en estado pasivo, hasta que la condición física de cualquier esquema particular justifique su entrada en actividad. Con ello vino también lo que ha causado la penosa situación actual, pues gran parte del temor, odio y destrucción que impera entra los animales se debe (como lo expresa H. P. B.) a que los “dioses imperfectos” construyeron sus cuerpos y llevaron a cabo su evolución empleando materia imperfecta manipulada en forma inexperta. El secreto del temor se halla oculto en el cuerpo etérico y en el tipo particular de sustancia con el cual puede estar construido.
+
+3. Los constructores de la trama etérica planetaria.
+
+Su trabajo es poco conocido y consiste en: <pin lang="en">933</pin>
+
+a. La materialización de la trama. Sólo es perfeccionada en la cuarta ronda, siendo intencionadamente acelerada en conexión con nuestro planeta debido a las condiciones kármicas y de acuerdo a la ley de necesidad espiritual. Su analogía puede observarse en el hombre mismo. La trama etérica del hombre estaba inconsistentemente coordinada al principio de la cuarta raza raíz. La necesidad espiritual forzó su rápida consolidación y ahora está constituida de tal manera que forma una barrera entre el plano físico y el astral.
+
+b. La conservación de la trama planetaria. Continuará hasta la sexta ronda. Durante este período la evolución espiritual proseguirá con cierta medida de seguridad planetaria, pues la trama resguarda de determinadas influencias solares y actúa ampliamente como tamizadora y distribuidora de fuerzas solares.
+
+c. La destrucción de la trama. Tendrá lugar a fines de la evolución planetaria, permitiendo que la vida planetaria aprisionada se evada y el sintetizador absorba la esencia de la vida. El proceso de destrucción puede ser sólo descrito por las palabras perforación y desintegración.
+
+4. Los constructores del cuerpo etérico de la Entidad planetaria.
+
+Esta gran vida involutiva debe permanecer siendo un misterio durante muchos eones. Su cuerpo etérico está ahora en proceso de construcción y sólo en otro sistema solar asumirá forma física definida. No ha sido generada todavía suficiente energía como para permitir su manifestación objetiva, pues Ella sigue siendo aún subjetiva. También tiene su analogía solar. <pin lang="es">738</pin> <pin lang="en">934</pin>
+
+5. Los constructores del cuerpo planetario.
+
+Esto prosigue bajo la misma ley del sistema solar y del hombre, pero, análogamente como en el sistema solar, se lleva a cabo en los planos superiores. Se recomienda a los estudiantes establecer, especialmente a este respecto, la relación entre los planos solar y cósmico.
+
+6. El doble etérico de todo lo que crea el hombre.
+
+Grupo especial de constructores etéricos que, regidos por el karma, están forzados a actuar conjuntamente con los seres humanos.
+
+Constituyen algunos de los muchos grupos que es posible considerar; es inútil explayarse más, pues no se obtendrá un beneficio sustancial impartiendo mayor información. Sólo pueden darse muy escuetas indicaciones y hacerse breves dilucidaciones. No es seguro ni aconsejable impartir al hombre conocimiento sobre los trabajadores que emplean materia etérica, pues le permitiría entrar en contacto con ellos; tampoco es aconsejable por ahora unir coherentemente los hechos diseminados que se han expuesto en distintos libros ocultistas. La ciencia se halla al borde del descubrimiento y ya esta invadiendo el dominio de los devas constructores. Es necesaria mucha precaución. Sin embargo, si se estudian las indicaciones dadas, si se medita sobre los diversos secretos de los constructores y sobre el aspecto esotérico de la Masonería, cuidadosa y persistentemente, el trabajo del Gran Arquitecto y Sus muchos auxiliares se verá con mayor claridad y plenitud. Podría dar aquí una sugerencia, sin olvidar que el trabajo es dual:
+
+La construcción del tabernáculo o de las formas temporarias, constituye el trabajo del divino Carpintero, mientras que la construcción del Templo de Salomón o de la estructura más permanente constituye el trabajo del Arquitecto supervisor. Uno se refiere a la Masonería activa, el otro a la Masonería especulativa, en el verdadero significado esotérico de la palabra.
+
+<p><pin lang="en">935</pin> Debemos considerar también a los devas que forman con su propia sustancia el doble etérico de todos los objetos. Dichos constructores constituyen la suma total de toda la sustancia del plano físico y la materia de los niveles etéricos del plano físico. Por lo tanto, forman cuatro grupos, cada uno de los cuales tiene una curiosa relación kármica con alguno de los cuatro reinos de la naturaleza:</p>
+
+| Grupo   | Plano  | Reino   |
+| ------- | ------ | ------- |
+| Primero | Uno    | Humano  |
+| Segundo | Dos    | Animal  |
+| Tercero | Tres   | Vegetal |
+| Cuarto  | Cuatro | Mineral |
+
+<p><pin lang="es">739</pin> La sustancia de la forma física superior de un ser humano es atómica. El cuerpo físico de un Maestro está construido con materia atómica y, cuando desea materializarlo en el plano físico denso, construye una envoltura de sustancia gaseosa sobre la materia atómica, detallando perfectamente los rasgos físicos conocidos. La sustancia más superior de la forma del cuerpo animal es la del segundo éter; aquí tenemos una clave respecto a la relación que existe entre todas las formas marinas y acuáticas con las del animal. La forma más elevada que puede adoptar el cuerpo de la vida vegetal es la del tercer éter. Estos hechos serán comprobados en la séptima ronda cuando los tres reinos de la naturaleza actuales -humano, animal y vegetal- sólo existan objetivamente en materia etérica y sea para ellos la manifestación más densa. El reino mineral llegará a su manifestación superior en la materia del cuarto éter, teniendo lugar desde ya dichas transmutaciones pues todas las sustancias radiactivas que actualmente se están descubriendo se convierten en materia del cuarto éter. El reino mineral está acercándose relativamente a su posible perfección manvantárica y, cuando llegue la séptima ronda, todas las vidas minerales (no las formas) <pin lang="en">936</pin> habrán sido transferidas a otro planeta. Esto no sucederá con los otros tres reinos.</p>
+
+La actuación sobre la sustancia dévica etérica se efectúa de dos maneras:
+
+Despertándola por la palabra a una actividad específica en el plano físico y construyéndola en formas, los constructores menores. En consecuencia será evidente que se halla regida por la influencia de dos tipos de fuerza o energía.
+
+Consideraremos ahora brevemente el tema relacionado con el trabajo de los devas que construyen el cuerpo etérico y físico denso del hombre. Dividiendo nuestros pensamientos en dos partes podríamos abarcar el terreno más fácilmente, ocupándonos primeramente de los devas constructores y del microcosmos y luego de los devas menores en los niveles etéricos.
+
+## d. Los elementales y el microcosmos.
+
 
 
 
@@ -368,3 +489,23 @@ El método para producir las formas puede clasificarse de la manera siguiente: <
 [^5]: La Doctrina Secreta dice que: Dios, Mónada y Átomo son analogías de Espíritu, Mente y Cuerpo. D. S. II, 313.
 
      El Logos se manifiesta en ese mahamanvantara como Manas (los divinos Manasaputras en su totalidad) empleando cuerpos atómicos para propósitos evolutivos con el objeto de desarrollar el segundo aspecto de budi o sabiduría. La sabiduría debe tener por base a manas o mente inteligente. El Logos es la suma total de la Inteligencia, que está evolucionando a fin de desarrollar Amor.
+
+[^6]: Sonidos Mántricos.
+
+     Mántran es una combinación de sonidos, palabras y frases que, por virtud de ciertos efectos rítmicos, producen resultados imposibles de obtener separadamente. El más sagrado de todos los mántram de Oriente que se ha dado al público hasta ahora, está contenido en las palabras: "Om mani padame hum". Cada sílaba de esta frase tiene un poder secreto y en conjunto siete significados que pueden producir distintos resultados.
+
+     Varias formas mántricas que se basan en esta fórmula y en la Palabra Sagrada, emitidas rítmicamente y en diferentes claves, logran ciertos fines deseados como el de invocar a los ángeles o devas protectores, y realizan un trabajo definido, constructivo o destructivo, en los planos.
+
+     El poder de un mántram depende del grado de evolución del hombre que lo emplea. Emitido por un hombre común sirve para estimular lo bueno dentro de sus cuerpos, protegerlo y ejercer una influencia benéfica en su medio ambiente. Emitido por un adepto o iniciado, sus posibilidades para el bien son infinitas y de largo alcance.
+
+     Existen muchas clases que podrían enumerarse como:
+
+        1. Los mántram muy esotéricos, en idioma sensar, custodiados por la Gran Logia Blanca.
+        2. Los mántram sánscritos empleados por iniciados y adeptos.
+        3. Los mántram vinculados con los diferentes rayos.
+        4. Los mántram que se emplean para curar.
+        5. Los mántram que se utilizan en los departamentos del Manu, del Bodhisattva o del Mahachoan.
+        6. Los mántram empleados en relación con los reinos de los devas y de los elementales.
+        7. Los mántram especiales relacionados con el fuego.
+
+     Su potencia depende del sonido, del ritmo y del énfasis silábico impartido cuando se los emite y entona, también de la capacidad del hombre que los emplea para visualizar y del anhelo de lograr el efecto deseado
