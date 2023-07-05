@@ -34,22 +34,22 @@ title: Los elementales de la mente y los elementales del fuego
       1. Introducción
       2. Elementales del plano físico. Elementales de los éteres.
       3. Los elementales y el microcosmos <pin lang="es">453</pin> <pin lang="en">551</pin>
-   5. III. EL HOMBRE, UN CREADOR QUE EMPLEA MATERIA MENTAL
-      1. Creación de formas mentales.
-      2. Construcción de formas mentales.
-   6. IV. EL HOMBRE Y LOS ESPIRITUS DEL FUEGO
-      1. El aspecto Voluntad de la creación.
-         1. La condición del mago.
-         2. La construcción de formas mentales.
-         3. El significado oculto de la palabra hablada.
-      2. La naturaleza de la Magia.
-         1. Magos blancos y magos negros.
-         2. El origen de la magia negra.
-         3. Condiciones para la magia blanca.
-      3. Quince reglas para la Magia.
-         1. Seis reglas para el plano mental.
-         2. Cinco reglas para el plano astral.
-         3. Cuatro reglas para el plano físico.
+3. III. EL HOMBRE, UN CREADOR QUE EMPLEA MATERIA MENTAL
+   1. Creación de formas mentales.
+   2. Construcción de formas mentales.
+4. IV. EL HOMBRE Y LOS ESPIRITUS DEL FUEGO
+   1. El aspecto Voluntad de la creación.
+      1. La condición del mago.
+      2. La construcción de formas mentales.
+      3. El significado oculto de la palabra hablada.
+   2. La naturaleza de la Magia.
+      1. Magos blancos y magos negros.
+      2. El origen de la magia negra.
+      3. Condiciones para la magia blanca.
+   3. Quince reglas para la Magia.
+      1. Seis reglas para el plano mental.
+      2. Cinco reglas para el plano astral.
+      3. Cuatro reglas para el plano físico.
 
 En esta sección haremos un breve delineamiento del estudio que emprenderemos sobre tan vasto y maravilloso tema, pues, como se relaciona definidamente con la evolución del hombre y su poder para crear, convendría oportunamente considerarlo en forma detallada.
 
