@@ -506,8 +506,96 @@ Resumiendo este delineamiento sucinto, diré que el trabajo de los devas etéric
 
 ### El trabajo de los devas constructores
 
+Consideraremos ahora el trabajo de los devas constructores en los tres planos, y los dividiremos en dos grupos:
 
+1. Aquellos que están conectados con los átomos permanentes.
+2. Aquellos que son responsables del proceso de construcción.
 
+**Los devas de los átomos permanentes**. Este grupo particular de devas es el conjunto de vidas que forman la unidad mental y los dos átomos permanentes. Como sabemos, tienen su lugar dentro de la periferia causal, siendo puntos focales de energía egoica. Constituyen verdaderamente el tipo más elevado de devas constructores, formando un grupo de vidas estrechamente vinculados con los Ángeles solares. Existen siete grupos relacionados con tres de las espirillas del <pin lang="en">940</pin> átomo físico permanente logoico. Dichas espirillas son, para estos siete grupos de vidas, lo que los siete rayos mayores para los siete grupos de rayos en los subplanos egoicos del plano mental. Es necesario que se medite sobre esta frase, porque puede proporcionar mucha información al pensador intuitivo, hay una analogía entre las tres tríadas atómicas permanentes y la aparición del hombre en la tercera raza raíz. Una secuencia curiosamente interesante de las tres líneas de fuerza puede observarse en:
+
+1. Las tríadas del alma grupal involutiva.
+2. La aparición de la triple naturaleza del hombre en la tercera raza raíz.
+3. Las tríadas de los cuerpos causales de cualquier unidad autoconsciente.
+
+Estos devas constructores reciben el sonido, emitido por el Ego, por intermedio de ciertas agencias dévicas transmisoras, y mediante la vibración que esto ocasiona impulsa a la actividad a la esencia dévica que circunda
+
+1. al grupo que construye la forma y
+2. al grupo con el cual se construye la forma.
+
+Afectan únicamente a los que poseen vibración análoga. Las etapas para construir cualquiera de las cuatro formas por medio de las cuales funciona el hombre inferior (el cuaternario), son exactamente las mismas que se emplean en la construcción del cuerpo físico denso, por ejemplo, de un planeta o de un sistema solar. Esto puede ser constatado en todo el proceso, desde las etapas <pin lang="es">743</pin> confusas y caóticas a través de lo ígneo a lo sólido, o a lo relativamente sólido, si se trata de un cuerpo sutil. No es necesario extendernos más sobre esto. H. P. B. ha delineado en La Doctrina Secreta, [^7] estas etapas ya dilucidadas en el presente tratado.
+
+Nos hemos ocupado ya con cierta amplitud del trabajo <pin lang="en">941</pin> de los devas transmisores, en los tres planos de los tres mundos, y de los devas relacionados con aquellos puntos focales relativamente permanentes -los átomos permanentes dentro de la periferia causal. Podemos considerar ahora al grupo de constructores que, respondiendo a la nota de los agentes transmisores y a la vibración inicial del segundo grupo de constructores relacionados con el triple yo inferior, inician el trabajo de reunir y moldear la sustancia viviente necesaria para la manifestación egoica en los planos inferiores.
+
+Hemos visto que las tres primeras etapas del trabajo egoico son:
+
+1. La emisión de la nota apropiada que indica el lugar del hombre en la evolución y la naturaleza de su “siquis” o Ego.
+2. La transmisión de dicha nota por el Ángel solar y los tres grupos de devas vinculados con los tres átomos permanentes.
+3. La vibración iniciada, de acuerdo a la nota emitida dentro de estos átomos, llega a ser tan poderosa que se hace sentir en la sustancia dévica circundante, evocando así respuesta.
+
+Estas tres etapas podrían considerarse primarias, demostrando (en relación con el microcosmos) los tres factores, sonido, color y vibración que, de acuerdo a la Ley de Analogía, reflejan los tres aspectos del macrocosmos. Tenemos aquí algo semejante al trabajo que realizan los tres primeros Sephiroth de la Kabala -primitiva etapa de la manifestación que tiene su débil reflejo en el trabajo realizado por el Ego en los tres mundos.
+
+Entonces tiene lugar la segunda etapa en la cual prosigue el trabajo de construcción, hasta que el microcosmos, el hombre, hace su aparición en el plano físico. Le sigue la tercera etapa de evolución en la cual la naturaleza síquica del hombre ha de expresarse por medio de las <pin lang="en">942</pin>formas creadas. Entonces los dos grupos siguientes de Sephiroth se reproducen en el hombre. Desde otro ángulo el hombre se manifiesta como nónuple, pero en esta parte del tratado nos ocupamos solamente de los constructores de la forma.
+
+Estos grupos de constructores son cuatro, los del
+
+1. cuerpo mental,
+2. cuerpo astral, <pin lang="es">744</pin>
+3. cuerpo etérico,
+4. cuerpo físico denso.
+
+Cada uno de ellos puede ser subdividido en siete, en cuatro o en tres, según el plano implicado. Los estudiantes deben recordar que la materia de los dos subplanos más inferiores de los planos físico y astral nunca se construyen en el cuerpo humano tal como está actualmente constituido, porque la vibración es demasiado baja y burda, incluyendo al tipo de hombre más inferior que existe actualmente en la tierra. Debe señalarse también que en el hombre medio la materia de algún subplano predominará de acuerdo a la profundidad de su naturaleza y al lugar que ocupa en la escala evolutiva. Los “constructores” del cuerpo humano trabajan dirigidos por uno de los Señores del Karma del grupo más inferior. Dichos Señores forman tres grupos y el Señor del tercer grupo supervisa el trabajo de los que construyen al ser humano en los tres planos. Rige a ciertos agentes kármicos, que también se dividen en los siguientes grupos:
+
+1. Tres agentes kármicos que responden por el trabajo de los Señores kármicos, realizado en los tres planos.
+2. Cinco Señores kármicos que trabajan en estrecha relación con los Manu de las diferentes razas, responsables de la correcta construcción de los diferentes tipos de raza.
+3. Agentes kármicos responsables de los tipos de la subraza actual. <pin lang="en">943</pin>
+4. Ciertos agentes intermediarios Que representan (dentro de estos tres grupos) a los siete tipos de Rayo.
+5. Los agentes de la Buena Ley que están específicamente relacionados con el trabajo de los centros etéricos y su respuesta a los diferentes centros planetarios.
+6. Los custodios de los registros.
+
+Estas diversas inteligencias manejan las fuerzas constructoras por medio de corrientes de energía que son puestas en movimiento cuando el Ego emite su nota. Debe recordarse que, en mayor o menor grado y en su propio plano, el Ego conoce su karma y también lo que se ha de realizar para fomentar el progreso durante la encarnación venidera. Por lo tanto, trabaja vinculado con dichos Señores, pero únicamente está en contacto directo con un agente del sexto y del cuarto grupos. Por intermedio de ambos el trabajo continúa en lo que atañe individualmente al Ego, poniendo en movimiento para él (después que ha emitido su nota) la maquinaria de la Ley.
+
+Los que construyen la personalidad humana también se dividen en siete grupos principales; los demás, así como en el caso de <pin lang="es">745</pin> las Mónadas humanas, pertenecen a uno de los siete Rayos y responden a una de las siete corrientes logoicas de energía ígnea. De acuerdo al tipo de Rayo egoico del hombre así será el tipo de sustancia dévica influenciada.
+
+Dichos constructores trabajan con ciertos elementales, pero sólo en el plano físico puede impartirse algo respecto a su naturaleza y trabajo. Estos elementales son pequeñas entidades que se adhieren al plan tal como lo desarrollan los constructores, construyendo ciegamente la estructura del cuerpo y formando las envolturas mediante las cuales el Ego se ha de expresar. En los planos etéricos, construyen la verdadera “forma” con sustancia etérica y producen la envoltura de complicadas líneas de hilos ígneos entrelazados, siendo en <pin lang="en">944</pin> realidad una extensión del sutratma o hilo de vida. Cuando está tejido y entrelazado se vitaliza con la energía de la vida enviada por el Ego, así como Shiva, el Padre, da al Hijo la verdadera “bios” o vida, mientras que la Madre calienta, construye y nutre el cuerpo. El trabajo de los elementales etéricos llega a su primera consumación cuando el sutratma se conecta con los tres centros de naturaleza física dentro del cráneo -la glándula pineal, el cuerpo pituitario y el centro alta mayor. Esotéricamente, la conexión más importante se establece cuando el sutratma penetra en el centro que se halla en la cima de la cabeza; a través del mismo la vida del cuerpo etérico se retira en el momento de la muerte. Éste es el punto vital. Allí, el “hilo” de vida, una vez cumplidos los siete años de vida, se divide en tres ramas, que se extienden hacia los tres centros. La comprensión de este hecho oportunamente proporcionará cosas de gran interés para el científico. Gran parte de la imbecilidad, o del desarrollo retardado, tiene su origen en la conexión etérica con estos tres centros. La trama etérica es literalmente la fina red de hilos de fuego que se extiende sobre el centro y cubre una zona de dimensiones muy amplias. Separa los cuerpos astral y físico. Una zona similar existe en el sistema solar. Por su intermedio las fuerzas cósmicas deben pasar a los diferentes esquemas planetarios.
+
+Los grupos elementales del plano físico denso, puestos en actividad por los constructores, son tres:
+
+1. Los elementales gaseosos.
+2. Los elementales líquidos.
+3. Los elementales estrictamente densos.
+
+Un grupo se ocupa de los canales ígneos, de los fuegos del cuerpo humano y de los diferentes gases que se encuentran dentro de la periferia humana. Otro grupo <pin lang="en">945</pin> trabaja con el sistema circulatorio y con todos los líquidos -líquidos y humores del cuerpo; <pin lang="es">746</pin> mientras que el tercero está ampliamente involucrado en la construcción de la estructura, por medio de la correcta distribución de los minerales y de los productos químicos. Aquí hay algo vinculado a la medicina; esotéricamente es verdad que así como los devas y los elementales líquidos están estrechamente relacionados con el reino vegetal y ambos con el plano de las emociones, el cuerpo líquido logoico, así las enfermedades de los seres humanos que afectan el sistema circulatorio, los riñones, la vejiga y la lubricación de las coyunturas, serán curadas por los constituyentes vegetales y, sobre todo, mediante el correcto equilibrio de la naturaleza emocional.
+
+Muchas otras influencias, además de las ya mencionadas, deben ser consideradas cuando se dilucide el tema del trabajo que realizan los constructores del cuerpo del hombre. No sólo son afectados por
+
+1. la nota de un hombre,
+2. el color proporcionado por los agentes transmisores,
+3. los agentes kármicos,
+
+sino que están regidos por
+
+1. el karma y la vibración grupales que harán intervenir a otro grupo de agentes y constructores, afectando así a los cuerpos de un hombre,
+2. el karma racial, extensión del anterior,
+3. las fuerzas que actúan sobre el planeta desde otro esquema o por medio de la formación de un triángulo del sistema,
+4. un triángulo cósmico de fuerza de un tipo específico que puede atraer entidades y energías de cualquier esquema particular, incidiendo sobre el karma del Logos planetario.
+
+Por lo tanto será evidente para el estudiante que el tema es complejo y que verdaderamente el hombre es el resultado de algún tipo de fuerza -principalmente egoica, pero también <pin lang="en">946</pin> planetaria y hasta del sistema. Sin embargo, nunca se lleva a un hombre a enfrentar circunstancias insuperables cuando ha alcanzado el punto donde inteligentemente se pone en línea con la evolución o Dios. Quizás previamente sea impulsado a ello, y lo será, por la fuerza de las circunstancias; la presión del karma grupal y racial lo impelerá a situaciones necesarias para activar el proceso de despertarlo y comprender sus propias posibilidades innatas. Una vez que se hace constructor consciente y trata de controlar a las fuerzas y a los constructores de su propia naturaleza inferior, y de construir el Templo de Salomón, ya no está sujeto a condiciones anteriores. Se transforma en regidor, constructor y transmisor, hasta que <pin lang="es">747</pin> oportunamente se convierte en uno con los Angeles solares y ha cumplido el trabajo de la evolución humana.
+
+Lo dicho es muy superficial, habiéndose expuesto solamente lo que tiene un profundo significado para el hombre en la actualidad. Muchas cosas se han de deducir y se llegará a conclusiones de acuerdo a la Ley de Analogías. También debe tenerse siempre presente que nuestro concepto básico lo constituye la energía ígnea de los centros de fuerza puestos en movimiento y mantenidos en vibración activa por la palpitación de centros aún mayores. Toda forma está construida de átomos ígneos o vidas energéticas, por medio de vidas mayores, las cuales son mantenidas en coherencia dentro de envolturas todavía mayores -las envolturas mayores son para las menores lo que el macrocosmos es para el microcosmos. Estos grupos de vidas constructoras pueden ser divididos en tres grupos de unidades de energía y su naturaleza deducirse por las frases:
+
+1. Vidas animadas por energía dinámica.
+2. Vidas animadas por energía irradiante.
+3. Vidas animadas por energía atómica.
+
+Éstas constituyen también la suma total de los tres fuegos, fuego eléctrico, fuego solar y fuego por fricción. En términos del plano <pin lang="en">947</pin> físico cósmico, la analogía con el plano del sistema puede verse en la clasificación siguiente:
+
+|                        |                    |                                 |                                          |
+| ---------------------- | ------------------ | ------------------------------- | ---------------------------------------- |
+| 1. Energía dinámica    | fuego eléctrico    | subplano atómico.               | Primera sustancia etérica. Plano de adi. |
+| 2. Energía irradiante. | fuego solar        | tres niveles etérico cósmicos.  | Cuerpo etérico logoico.                  |
+| 3. Energía atómica     | fuego por fricción | tres planos de los tres mundos. | Vehículo denso logoico.                  |
+
+Como se verá cada plano refleja en forma interesante este mismo orden.
 
 [^1]: D. S. I, Sección X, 108, 68;III, 284-285
 
@@ -543,3 +631,5 @@ Resumiendo este delineamiento sucinto, diré que el trabajo de los devas etéric
         7. Los mántram especiales relacionados con el fuego.
 
      Su potencia depende del sonido, del ritmo y del énfasis silábico impartido cuando se los emite y entona, también de la capacidad del hombre que los emplea para visualizar y del anhelo de lograr el efecto deseado
+
+[^7]: D. S. I, 273-274.
