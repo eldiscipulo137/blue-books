@@ -472,6 +472,40 @@ Consideraremos ahora brevemente el tema relacionado con el trabajo de los devas 
 
 ## d. Los elementales y el microcosmos.
 
+El hombre y los devas constructores. Durante el proceso evolutivo y a medida que sigue el método de reencarnación, el hombre trabaja con cuatro tipos de constructores y tres grados superiores de esencia constructiva o sustancia dévica.
+
+Se vincula con los devas transmisores relacionados con el microcosmos del cuarto subplano del plano mental y con el subplano atómico de los planos astral y físico. Luego lo hace con los devas que se ocupan de
+
+1. La unidad mental, <pin lang="es">740</pin>
+2. el átomo astral permanente,
+3. el átomo físico permanente,
+
+colaborando con el trabajo de los devas constructores que forman el cuerpo etérico e influencian a los devas constructores de la sustancia física densa, de manera que el vehículo físico necesario para su manifestación objetiva se convierte en realidad.
+
+Éstos son los cuatro grupos principales de devas influenciados por cualquier Ego particular. Unidos <pin lang="en">937</pin> producen al hombre inferior y traen a la manifestación a la Personalidad, reflejo del Ego y sombra de la Mónada. Las tres graduaciones de la esencia con la cual se construyen las formas, por medio de la actividad de los cuatro grupos mencionados, pueden reconocerse como sustancia mental erigida en un cuerpo mental, y sustancia astral empleada en la construcción del vehículo astral y de la materia del cuerpo físico. Estos siete grupos forman, en su totalidad, aquello que podríamos denominar el aspecto Brahma del microcosmos.
+
+Desde otro punto de vista podríamos estudiar la acción que ejerce el Ángel o Señor solar, sobre los ángeles lunares, y el proceso por medio del cual éste impone cierto ritmo y vibración sobre los diferentes aspectos de la manifestación inferior. Esotéricamente, todo esto se halla oculto en las palabras de un escrito antiguo, que dice:
+
+> A medida que la luna gira, refleja. A medida que refleja, produce respuesta en aquello que ha dejado de irradiar. Los tres, el Sol, la Luna y la Madre producen aquello que recorre un minúsculo ciclo y se quema.
+
+El primer paso que da el Ego en la producción de una “sombra” se halla expresado en las palabras “el Ego entona su nota”, emite su voz y (como en el proceso logoico) la “Hueste de la Voz” responde inmediatamente. De acuerdo al tono y a la cualidad de la voz, así será la naturaleza de los agentes que responden. De acuerdo a la profundidad o altura de la nota y a su volumen, así será la categoría o el grado del deva constructor que responde al llamado. Esta nota egoica produce, por lo tanto, ciertos efectos:
+
+Impulsa a la actividad a devas que proceden a transmitir el sonido. Pronuncian una palabra.
+
+Ésta llega hasta los “devas que escuchan” de segundo grado, la reciben y la amplían en lo que podría denominarse frase mántrica. El proceso de construcción empieza definitivamente en una forma triple y consecutiva. El <pin lang="en">938</pin> cuerpo mental empieza a coordinarse en tres etapas. Las etapas de construcción se superponen. Por ejemplo, cuando la coordinación del cuerpo mental está en su segunda etapa comienza la primera etapa de concreción astral. Esto es realizado durante siete etapas (tres principales y cuatro <pin lang="es">741</pin> secundarias) que se superponen de manera complicada. Cuando se alcanza la segunda etapa, se produce una vibración que despierta respuesta en la materia etérica del plano físico, y los constructores del doble etérico inician su actividad. Nuevamente se repite el proceso. Cuando se origina la segunda etapa del trabajo de estos devas etéricos tiene lugar la concepción en el plano físico. Éste es un punto muy importante que se ha de recordar, pues pone a todo el proceso del nacimiento humano definidamente en línea con la ley kármica establecida. Demuestra la estrecha relación entre lo subjetivo y lo tangible y visible. La construcción del cuerpo físico prosigue igual a la de las tres etapas durante el período prenatal:
+
+1. El trabajo realizado por los devas constructores durante los tres meses y medio anteriores a la iniciación de la vida. Durante este período se lleva a cabo la tercer etapa de la construcción del cuerpo etérico.
+2. El trabajo de construcción de los tres meses y medio que siguen al período de gestación.
+3. El proceso final de concreción realizado durante los dos meses restantes.
+
+Los estudiantes hallarán interesante establecer la analogía entre este método y el de producir la manifestación evolutiva en un esquema planetario con sus rondas y razas y en un sistema solar con sus manvantaras y ciclos mayores.
+
+Resumiendo este delineamiento sucinto, diré que el trabajo de los devas etéricos no cesa con el nacimiento del hombre, sino que continúa durante tres etapas, que tienen una estrecha analogía con el período de vida de un sistema solar.
+
+<p><pin lang="en">939</pin> Primero, su trabajo es dedicado a acrecentar constantemente el vehículo físico humano a fin de que pueda seguir con exactitud las líneas de crecimiento de los dos cuerpos más sutiles. Esto continúa hasta la madurez. La etapa siguiente es aquella en la cual su trabajo consiste mayormente en la tarea de reparación y conservación del cuerpo durante los años de máxima virilidad, para que pueda estar a la altura del propósito de la vida subjetiva. Tal propósito varía lógicamente de acuerdo al grado de desarrollo del hombre. Finalmente, llega a la etapa en que cesa el trabajo de construcción. La vitalidad del cuerpo etérico disminuye tenuemente, comenzando el proceso de destrucción. El Ego empieza a retraer sus fuerzas. El “sonido” se hace débil y confuso y su volumen es tan bajo que los transmisores apenas pueden recibirlo y transmitirlo; la vibración inicial es cada vez más débil y tenue. Llega el período de oscuración primero el cuerpo físico se va debilitando e inutilizando; luego el Ego se retira de los centros y funciona durante <pin lang="es">742</pin> algunas horas en el doble etérico. A su vez éste se desvitaliza y continúa así el proceso hasta que una por una las envolturas son descartadas y la “sombra” egoica disipada.</p>
+
+### El trabajo de los devas constructores
+
 
 
 
