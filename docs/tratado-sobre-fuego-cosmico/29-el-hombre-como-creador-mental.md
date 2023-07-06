@@ -1,0 +1,94 @@
+---
+title: El hombre como creador que crea con materia mental
+---
+
+# SEGUNDA PARTE
+
+# SECCIÓN D
+
+# LOS ELEMENTALES DE LA MENTE Y LOS ELEMENTALES DEL FUEGO
+
+# III. EL HOMBRE COMO CREADOR QUE CREA CON MATERIA MENTAL
+
+## 1. Creación de Formas Mentales.
+
+El tema que vamos a tratar ahora no lo dilucidaremos explícitamente debido a los peligros que acarrea. Durante el proceso creador el hombre maneja cierto tipo de fenómenos eléctricos y tiene que ver con aquello que vitalmente es afectado por cada pensamiento que emana de él y con esas vidas menores que (en conjunto) constituyen, desde cierto ángulo, una fuente de verdadero peligro para el mismo. Concretaremos lo que debe decirse en ciertas afirmaciones. <pin lang="es">748</pin>
+
+a. *Gran parte de la angustia que actualmente se observa en el mundo puede ser atribuida directamente a la incorrecta manipulación de la materia mental por el hombre*, a los erróneos conceptos vertidos respecto a la naturaleza de la materia, y a las peligrosas condiciones producidas por el conjunto de tentativas creadoras que los seres humanos han realizado en el transcurso de los siglos.
+
+Erróneas interpretaciones han surgido respecto a la finalidad de los fluidos vitales del universo; esto, como también ciertas distorsiones de la luz astral, ha aumentado la angustia, produciendo un espejismo subsidiario o secundario, luz <pin lang="en">948</pin> reflejada que intensifica el maya ya creado. Este reflejo secundario lo ha producido el hombre en su evolucionado intento de equilibrar los pares de opuestos, provocando una condición que tiene que ser superada antes de iniciar el verdadero equilibrio oculto. Podría considerarse como la suma total de esa gran manifestación (creada sólo por el hombre) denominada “El Morador del Umbral”.
+
+Uno de los mayores obstáculos en el sendero de Retorno, del cual el hombre es definidamente responsable, dentro de los límites esotéricos, lo constituyen esas formas animadas que ha venido creando permanentemente desde mediados de la raza raíz atlante, cuando el factor mente comenzó con lentitud a asumir mayor importancia. El egoísmo, los móviles sórdidos, la rápida respuesta a los impulsos del mal, que han caracterizado a la raza humana, acarrearon un estado de cosas que no tiene parangón en el sistema. Se cierne sobre toda la familia humana una forma mental gigantesca, construida durante épocas por los hombres de todas partes, energetizada por los deseos insanos y las inclinaciones malignas de la peor naturaleza humana, vivificada por las inclinaciones de sus deseos inferiores. Esta forma mental debe ser desintegrada y disipada por el hombre al finalizar esta ronda, antes de que termine el ciclo, y su disipación constituirá una de las fuerzas que tenderán a producir el pralaya interplanetario. Ésta es la torpe creación, si puede denominarse así, que los Grandes Seres se ocupan de destruir. De acuerdo a la Ley del Karma tiene que ser disipada por quienes la han creado; por lo tanto, los Maestros llevan a cabo Su trabajo en forma indirecta, tratando de iluminar gradualmente a los hijos de los hombres a fin de que puedan ver con claridad a este “Morador del Umbral” de la nueva vida y al antagonista que se encuentra entre el cuarto y el quinto reino de la naturaleza. Cada hijo del hombre que entra en el Sendero de Probación <pin lang="en">949</pin> facilita Su tarea, pues significa que una pequeña corriente de energía vital va dirigida hacia nuevos canales, cortándose de la antigua corriente que tiende a vitalizar y nutrir la forma del mal; de esta <pin lang="es">749</pin> manera otro agresor consciente puede ser entrenado para colaborar en la tarea de destrucción. Cada vez que un iniciado es admitido en los grados de la Logia, significa que un nuevo y poderoso agente está dispuesto a hacer descender fuerza desde los niveles superiores para ayudar en la tarea de desintegración. Cuando se comprendan estos dos métodos de trabajo agresivo (el del aspirante y el del iniciado) el cuidadoso estudiante de analogía obtendrá muchas cosas de vital interés. Aquí reside la clave del actual problema del mal y del poderoso aferramiento que el aspecto materia tiene sobre lo espiritual. Esta gigantesca forma mental, producto de la ignorancia y el egoísmo del hombre, se mantiene viva y vitalizada de tres maneras:
+
+Primero, mediante la acumulación de malos deseos, perversas intenciones y propósitos egoístas individuales. Todo mal pensamiento involucrado en la palabra y manifestado como acción en el plano físico, contribuye a expandir las proporciones de esta entidad maléfica.
+
+Segundo, por la protección de los hermanos de la sombra y esos representantes de lo que podría denominarse “mal cósmico”, los que (debido al karma de la familia humana o cuarto reino, en esta cuarta ronda) asumiendo enormes responsabilidades, hacen posible la vitalización secundaria de la forma mental y producen condiciones tan horrendas que, de acuerdo a la ley, provocan la rápida cristalización, trayendo como consecuencia la destrucción final. El estudiante haría bien en ampliar su concepto respecto al propósito del mal y al lugar que dichas fuerzas ocupan en el esquema general.
+
+Tercero, mediante las energías existentes y la vibración que todavía se siente, fuerza de <pin lang="en">950</pin>un sistema solar anterior que persiste, y la emanación de aquello que en este sistema solar no se considera ya como un principio.
+
+Éstos son los tres factores principales que los Grandes Seres han de considerar en Su trabajo cuando ayudan al hombre a desIigarse de la influencia de esta forma autoimpuesta, a destruir aquello que ellos mismos han construido y a liberarse de la ilusión proyectada por el persistente vampiro que han nutrido y fortalecido durante milenios.
+
+Esta tarea de destrucción es llevada a cabo por los Grandes Seres, de cuatro maneras:
+
+1. Por la fuerza de sus pensamientos y meditaciones conjuntas.
+2. Por el trabajo de la Jerarquía, al entrar y enseñar a <pin lang="es">750</pin> individuos, que se desprenden en esta forma de la ciega actividad grupal, y se convierten en centros conscientes de fuerzas y colaboradores en la tarea de destrucción. Este trabajo debe ser efectuado en los niveles mentales. De allí que se entrene a los discípulos a meditar y a trabajar con materia mental.
+3. Por el empleo de ciertos mántram y palabras que introducen fuerza interplanetaria de cuarto orden. Dicha fuerza se dirige luego hacia la creación distorsionada efectuada por la cuarta Jerarquía creadora (el cuarto reino o humano) tendiendo a aumentar el trabajo de destrucción. Gran parte de esta tarea es llevada a cabo por los Nirmanakayas.
+4. Por el estímulo del cuerpo egoico de los hombres, de tal manera que los Ángeles solares puedan llevar adelante con mayor precisión y fuerza el conflicto con los dioses lunares. Ésta es la verdadera guerra en los cielos. A medida que los Dioses solares [^1] descienden <pin lang="en">951</pin>al plano físico, asumen un paulatino y creciente control de las naturalezas lunares, y en consecuencia se purifican y refinan los pensamientos y deseos de los hombres. Los fuegos solares desplazan a la luz lunar, y la naturaleza inferior es finalmente purificada y transmutada. Con el tiempo los Ángeles solares brillarán en toda su gloria, en el plano físico, por medio de la naturaleza inferior, la cual proporciona el combustible para las llamas. El detestable “Morador del Umbral” muere así gradualmente por falta de sustento, desintegrándose por ausencia de vitalidad, y el hombre queda libre.
+
+b. *En la actualidad, gran parte de la manipulación de la materia mental destinada a construir formas de cualquier tipo, se efectúa en los niveles inferiores, dando por resultado el poderoso deseo basado en la atracción física*. El cuerpo de deseos, de la mayoría de los hombres, no el cuerpo mental, es el más poderoso, e <pin lang="es">751</pin> impone una vibración tan fuerte (debido a la fuerza grupal de los señores lunares) que el tercer grupo de entidades lunares que construye el cuerpo mental es impelido a responder voluntariamente, quedando la triple naturaleza inferior inmediatamente comprometida en el horrible proceso de alimentar al temible “Morador”. La energía sigue la línea de menor resistencia. Como ya sabemos, una de las primeras tareas del Ego es imponer un nuevo ritmo a su sombra y reflejo, el hombre inferior, y esta imposición, a su vez, desvía la energía de la distorsionada creación del hombre, poniendo su vibración a tono con la de su Ángel solar.
+
+A los devas, la suma total de energía de la sustancia misma, no les interesa el tipo de forma que construyen. <pin lang="en">952</pin> Responden irresponsablemente a las corrientes de energía, y no se ocupan de su procedencia. Por lo tanto, el lugar que le corresponde al hombre en el plan cósmico se hace más vital y evidente cuando se comprenda que una de sus principales responsabilidades es dirigir las corrientes de energía desde el plano mental y crear lo que se desea en niveles superiores. Todos los hombres están pasando por un determinado desarrollo evolutivo con el fin de llegar a ser creadores conscientes en el uso de la materia. Esto implica:
+
+:::note Recuerda
+
+A los devas, la suma total de energía de la sustancia misma, no les interesa el tipo de forma que construyen. <pin lang="en">952</pin> Responden irresponsablemente a las corrientes de energía, y no se ocupan de su procedencia. Por lo tanto, el lugar que le corresponde al hombre en el plan cósmico se hace más vital y evidente cuando se comprenda que una de sus principales responsabilidades es dirigir las corrientes de energía desde el plano mental y crear lo que se desea en niveles superiores.
+
+:::
+
+1. La comprensión del plan arquetípico.
+2. La comprensión de las leyes que rigen los procesos constructivos de la naturaleza.
+3. El consciente proceso de creación voluntaria, de manera que el hombre colabore con el ideal, trabaje bajo la ley, produzca aquello que está de acuerdo con el plan planetario y tienda a promover los mejores intereses para la raza.
+4. La comprensión de la naturaleza de la energía y la habilidad para dirigir las corrientes de energía y desintegrar (o extraer la energía) todas las formas en los tres mundos.
+5. La comprensión de la naturaleza de los devas, su constitución y lugar que ocupan como constructores, y las palabras y sonidos con los cuales se los puede dirigir y controlar.
+
+Cuando las corrientes de energía de la familia humana sean dirigidas sólo desde niveles egoicos, cuando el deseo sea transmutado y se haya despertado el quinto principio y, finalmente, sea iluminado por el sexto, sólo entonces se desvanecerá el impulso que emana de los niveles inferiores, y el “Morador del Umbral” (que ahora acecha a la familia humana) también morirá. En otras palabras, cuando el cuerpo físico denso del Logos planetario (compuesto de materia de los tres mundos del esfuerzo humano) se haya purificado y vitalizado totalmente por la fuerza de la vida que fluye de los niveles etéricos, y cuando todos Sus centros (formados por entes humanos) se hayan despertado plenamente, entonces se <pin lang="es">752</pin> <pin lang="en">953</pin> convertirán en canales de la fuerza pura, y ya no podrá existir una entidad como el “Morador”.
+
+Todo lo que he expresado aquí referente al “Morador del Umbral” entre los dos grandes reinos en el Sendero -el cuarto y el quinto-, puede ser analizado por el estudiante en forma personal. Frente a cada sensato aspirante a los Misterios se halla esa forma vitalizada que ha construido y nutrido él mismo durante anteriores encarnaciones, representando la suma total de sus malos deseos, móviles y pensamientos. Durante épocas ha sido vampirizado por ella, representando para él aquello que no ha logrado realizar. Lo afectan no sólo a él sino también a todos esos entes con quienes hace contacto y conoce. Para destruirla deberá seguir métodos similares a los aplicados por los Grandes Seres y por el acrecentado poder de su Ángel Solar, la fuerza de su Ego, un estudio de la ley, el conocimiento del poder del sonido y el control de la palabra, producirá finalmente su desintegración. El Antiguo Comentario dice:
+
+> El Ángel solar debe apagar la luz de los ángeles lunares; entonces por falta de calor y luz, perece aquello que ha servido de obstáculo.
+
+c. *Hasta ahora pocos miembros de la familia humana trabajan, deliberada y conscientemente, empleando únicamente materia mental*. La energía utilizada por el hombre es en su mayor parte kama-manásica o de deseo, acompañada de una mente inferior en la que prepondera, como se ha de suponer, la fuerza del deseo. Esto se infiere de la segunda afirmación. Toda la tendencia de la evolución consiste en desarrollar la capacidad de construir con materia mental, y la raza tiene ante sí dos cosas.
+
+Primero. La disipación gradual de masas indefinidas de materia kama-manásica, circundando prácticamente a todo ente de la familia humana, produce una condición lóbrega y brumosa, dentro y alrededor de cada aura. Gradualmente <pin lang="en">954</pin> ésta se esclarecerá y los hombres estarán rodeados por nítidas formas mentales, caracterizadas por una definida vibración y por una calidad particular e incidental al rayo del hombre y en consecuencia a su tipo de mente.
+
+Segundo. La acumulación de formas mentales humanas de carácter personal, vibrando actualmente alrededor de cada ser humano, así como los planetas vibran alrededor del sol, tenderán a aproximarse a un centro grupal. La energía mental, que emana de cada ser humano como una corriente relativamente débil de un indefinido conglomerado de materia mental, de carácter indeterminado y sin configuración definida, que continúa animando esas formas durante un breve período, se dirigirá a la creación de aquello que el grupo anhela y no a lo que el ente desea. Esto constituye <pin lang="es">753</pin> en gran parte la base del antagonismo que han de enfrentar todos los pensadores constructivos y trabajadores grupales. La corriente de energía que emana de ellos y que construye vigorosas formas mentales, corre en sentido opuesto al de la masa de hombres, despierta oposición y produce caos temporario. Los trabajadores y pensadores destacados de la familia humana, dirigidos por la Logia, se ocupan de tres cosas:
+
+1. Imponer a los hombres un ritmo nuevo y elevado.
+2. Disipar las lóbregas nubes de formas mentales indefinidas y semi-vitalizadas que circundan nuestro planeta, permitiendo la entrada de fuerza interplanetaria y de los niveles mentales superiores.
+3. Despertar en los hombres el poder de pensar con claridad, energetizar debidamente sus formas mentales, mantener vitalizadas esas construcciones mentales, por medio de las cuales pueden lograr su objetivo, y <pin lang="en">955</pin>traer al plano físico las condiciones deseadas.
+
+Dichos pensadores y trabajadores vitales deberían comprender con toda claridad por medio del sonido y la vitalización estos tres objetivos: el poder del pensamiento, la dirección de las corrientes mentales, la ciencia de la construcción mental, la manipulación de la materia mental de acuerdo a la ley y el orden, y el proceso de manifestar el pensamiento. También involucra la capacidad de rechazar o inutilizar impulsos que surgen del yo inferior, de aspecto estrictamente personal y centralizado, y la habilidad de trabajar en forma grupal, enviando cada pensamiento a cumplir la misión definida, la cual consiste en agregar su cuota de energía y materia a determinada corriente específica y conocida. Esto último es muy importante, pues todo aquel que trabaje para la humanidad no puede ser realmente útil hasta que (conscientemente y con pleno conocimiento de su tarea) dirige definitivamente su energía mental hacia determinado canal para prestar servicio a la raza.
+
+d. *Por lo tanto, en la construcción de todo pensamiento de orden elevado, los hombres deben realizar varias cosas que pueden ser enumeradas de la manera siguiente*:
+
+Primero, purificar sus deseos inferiores para permitirles ver, con claridad, en sentido oculto. El hombre no puede poseer una visión clara si está obsesionado por sus propias necesidades, actividades e intereses y es inconsciente de lo superior y de la actividad grupal. Esta clara visión lo capacita para leer, aunque inconscientemente al principio, los archivos akáshicos, a fin de comprobar dónde se inician los nuevos y entrantes impulsos mentales, la capacidad de subordinar sus propios intereses al bien del grupo, <pin lang="es">754</pin> colaborando con el plan, y la facultad que lo hará consciente de la nota clave de la raza y del “clamor de la humanidad”.
+
+
+
+
+
+[^1]: Los Dioses solares son los "Ángeles caídos". D. S. III, 267.
+
+      1. Calientan a las sombras.... los cuerpos humanos.
+      2. A su vez son calentados por la Mónada o Atma. D.S. III, 116-117-118, 266.
+      3. Son las Serpientes de sabiduría. D. S. III, 227.
+      4. Su naturaleza es conocimiento y amor. D. S. IV, 69.
+      5. Provienen del plano mental cósmico. D. S . VI, 175.
+      
+      El Ego o ángel solar está aprisionado. D. S. II, 264,265.
+
+         1. Ha de emanciparse por sí mismo de la esclavitud y la percepción sensoria.
+         2. Ha de ver en la luz de la Realidad Una. D. S. IV, 116.
+         3. Ha de redimir a la humanidad. D. S. III, 242.
+         4. Ha de dotarlo con los efectos y aspiraciones humanos. D. S. III, 242.
+         5.  Otorga al hombre inteligencia y conciencia. D. S. I, 210
