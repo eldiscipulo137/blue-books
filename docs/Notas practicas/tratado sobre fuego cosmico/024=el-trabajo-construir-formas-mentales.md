@@ -1,18 +1,10 @@
 ---
-title: El hombre como creador que crea con materia mental
+title: Creación de formas mentales
 ---
 
-# SEGUNDA PARTE
+# 1. Creación de Formas Mentales.
 
-# SECCIÓN D
-
-# LOS ELEMENTALES DE LA MENTE Y LOS ELEMENTALES DEL FUEGO
-
-# III. EL HOMBRE COMO CREADOR QUE CREA CON MATERIA MENTAL
-
-## 1. Creación de Formas Mentales.
-
-El tema que vamos a tratar ahora no lo dilucidaremos explícitamente debido a los peligros que acarrea. Durante el proceso creador el hombre maneja cierto tipo de fenómenos eléctricos y tiene que ver con aquello que vitalmente es afectado por cada pensamiento que emana de él y con esas vidas menores que (en conjunto) constituyen, desde cierto ángulo, una fuente de verdadero peligro para el mismo. Concretaremos lo que debe decirse en ciertas afirmaciones. <pin lang="es">748</pin>
+> [Tratado sobre fuego cósmico](/tratado-sobre-fuego-cosmico/el-hombre-como-creador-mental#1-creación-de-formas-mentales)
 
 a. *Gran parte de la angustia que actualmente se observa en el mundo puede ser atribuida directamente a la incorrecta manipulación de la materia mental por el hombre*, a los erróneos conceptos vertidos respecto a la naturaleza de la materia, y a las peligrosas condiciones producidas por el conjunto de tentativas creadoras que los seres humanos han realizado en el transcurso de los siglos.
 
@@ -103,35 +95,3 @@ Por lo tanto, será evidente que una forma mental es el resultado de dos tipos d
 2. En segundo lugar, la que emana del hombre en el plano físico por medio del cerebro.
 
 El hecho de que generalmente los hombres no reconozcan el primer factor, es responsable de gran parte del mal. Cuando la Ciencia del Yo” haya asumido debidas proporciones, los hombres deberán determinar cuidadosamente los impulsos egoicos en todos los procesos mentales y utilizar la verdadera energía egoica antes de comenzar a manipular sustancia dévica y construir formas con vidas dévicas.
-
-## 2. Construcción de Formas Mentales en los Tres Mundos.
-
-He de decir algunas palabras más respecto al tema del Hombre como Creador que crea con materia mental. Van dirigidas a todos los estudiantes que por su capacidad para concentrarse, han desarrollado cierta medida de control mental y desean llegar a [e756] comprender el proceso de la creación con mayor exactitud científica. Trataremos por lo tanto de dos factores en el proceso de construir formas mentales:
-
-1. El alineamiento con el Ego. [^2]
-2. El proceso de impresionar la voluntad egoica en el cerebro físico, o (en otras palabras) la utilización inicial de la energía egoica.
-
-<p>[i959] Considerémoslas una por una.</p>
-
-### a. El alineamiento con el Ego.
-
-a. **El alineamiento con el Ego.** Esto, como se sabe, sólo es posible para el hombre que ha llegado al Sendero de Probación o a cierto punto bien definido en la evolución. Por el conocimiento y la práctica se adquiere el poder de utilizar automática y científicamente el sutratma (o canal) como medio de contacto. Cuando a esta capacidad se agrega la utilización del antakarana con igual facilidad (el puente entre la Tríada y la personalidad), tenemos entonces un poderoso agente de la Jerarquía en la tierra. Podríamos generalizar las etapas de crecimiento y la consiguiente capacidad para llegar a ser un agente que aumenta constantemente sus poderes extrayendo los recursos de la energía dinámica de los tres mundos, de la manera siguiente:
-
-
-[^1]: Los Dioses solares son los "Ángeles caídos". D. S. III, 267.
-
-      1. Calientan a las sombras.... los cuerpos humanos.
-      2. A su vez son calentados por la Mónada o Atma. D.S. III, 116-117-118, 266.
-      3. Son las Serpientes de sabiduría. D. S. III, 227.
-      4. Su naturaleza es conocimiento y amor. D. S. IV, 69.
-      5. Provienen del plano mental cósmico. D. S . VI, 175.
-      
-      El Ego o ángel solar está aprisionado. D. S. II, 264,265.
-
-         1. Ha de emanciparse por sí mismo de la esclavitud y la percepción sensoria.
-         2. Ha de ver en la luz de la Realidad Una. D. S. IV, 116.
-         3. Ha de redimir a la humanidad. D. S. III, 242.
-         4. Ha de dotarlo con los efectos y aspiraciones humanos. D. S. III, 242.
-         5.  Otorga al hombre inteligencia y conciencia. D. S. I, 210
-
-[^2]: Alineamiento. Véase Cartas sobre Meditación Ocultista, Carta I.
