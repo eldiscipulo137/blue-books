@@ -132,6 +132,56 @@ Una vez que la forma mental ha sido vitalizada y su forma etérica terminada o �
 
 Se evidenciará cuán vital es esta materia, y la gran influencia que ejercen sobre los hombres y mujeres las formas mentales que ellos mismos crean, o los engendros mentales de otros.
 
+### c. El significado oculto del habla.
+
+c. **El significado oculto del habla.** La Antigua Escritura dice: “En las muchas palabras no falta pecado”, [^2] porque en una oleada de palabras en la etapa actual de la evolución del hombre, muchas se dicen sin ningún propósito o por ciertos motivos que (cuando se los analiza) se fundan estrictamente en la personalidad. Cuanto más progrese en el sendero de acercamiento a los misterios, mayor cuidado ha de tener el aspirante. Esto es necesario por tres razones:
+
+Primero, debido a su etapa de evolución puede impartir tal fuerza a sus palabras que le sorprendería si pudiera verlas en el plano mental. Construye con más exactitud que el hombre común, en consecuencia su forma mental tiene mayor vitalidad y desempeña con mayor precisión la función para la cual ha sido enviada, mediante el “Sonido” o el habla.
+
+Segundo, cualquier palabra hablada y en consecuencia cualquier forma mental construida (excepto en el sendero superior, y que no esté fundada en impulsos personales) puede erigir una barrera de materia mental entre el hombre y su objetivo. Esta materia o muralla de separación debe ser eliminada antes de poder <pin lang="en">978</pin> efectuarse un nuevo avance; dicho proceso es kármico e inevitable.
+
+Tercero, la palabra constituye en gran parte un sistema de comunicación en los niveles físicos; en los niveles más sutiles <pin lang="es">771</pin> donde se encuentra el trabajador y en las comunicaciones con sus compañeros de trabajo y colaboradores elegidos desempeñará una parte cada vez menor. La percepción intuitiva y la interacción telepática caracterizarán el intercambio entre aspirantes y discípulos, y cuando van acompañados de plena confianza, simpatía y esfuerzo unido para realizar el plan, tendremos un grupo con el cual podrá trabajar el Maestro, y a través de él derramar Su fuerza. El Maestro trabaja por medio de grupos, grandes o pequeños, y si la interacción entre las unidades del grupo es constante e ininterrumpida, se facilita Su tarea. Una de las causas más frecuentes de las dificultades surgidas en el trabajo grupal y la consiguiente interrupción de la afluencia de fuerza del Maestro, se funda temporariamente en el mal uso del lenguaje. Mientras tanto el canal del plano mental se obstruye.
+
+Menciono estos tres factores porque el asunto del trabajo grupal es de vital importancia y de él se espera muchas cosas en estos días. Si en cualquier organización del plano físico los Maestros pueden lograr formar un núcleo, aunque sea de tres personas que interactúen mutuamente (elijo esta palabra con premeditación) y que sigan desinteresadamente el sendero del servicio, Ellos podrán obtener resultados más definidos en menos tiempo de lo que es posible con un vasto y activo grupo de personas que, pudiendo ser sinceras y fervientes, desconocen el significado de la confianza y colaboración mutuas y descuidan sus palabras.
+
+Cuando un hombre comprende el significado del lenguaje, aprende cómo hablar, cuándo hablar, qué logra con hablar y qué sucede cuando habla, entonces está muy cerca de su objetivo. La persona <pin lang="en">979</pin> que controla correctamente sus palabras es la que hará mayor progreso. Esto siempre lo han comprendido quienes dirigen los movimientos ocultistas. Esa orden tan esotérica de Pitágoras en Crotona y muchas otras escuelas ocultistas de Europa y Asia, poseían una regla por la que no se permitía a ningún neófito y probacionista hablar durante dos años después de su ingreso, y cuando habían aprendido a guardar silencio durante ese período, les era concedido el derecho de hablar, puesto que ya habían aprendido una reticencia específica.
+
+Sería de valor comprender, por parte de los estudiantes, que todo buen orador realiza un trabajo muy esotérico. Un buen conferenciante (por ejemplo) es el que hace un trabajo análogo, en pequeña escala, al realizado por el Logos solar. ¿Qué hizo el Logos? Pensó, construyó, vitalizó. Un orador, por lo tanto, selecciona el material con el que  estructurar su oratoria y lo vitalizará. Reúne de toda la materia mental del mundo la sustancia que trata de emplear individualmente. Luego hace lo mismo que el segundo <pin lang="es">772</pin> Logos, le da forma inteligentemente. Construye la forma y, cuando ya lo ha hecho, termina desempeñando la parte de la primera Persona de la Trinidad, introduciendo su Espíritu, vitalidad y fuerza en ella, para que sea una vibrante y viviente manifestación. Cuando un conferenciante u orador de cualquier naturaleza puede realizar esto, mantendrá vivo el interés de su auditorio, el cual aprenderá siempre algo de él, pues reconocerá lo que la forma mental está destinada a transmitir.
+
+El estudiante hace precisamente lo mismo al hablar, pero la dificultad surge con frecuencia porque generalmente construye algo que no vale la pena y lo vitaliza con un tipo erróneo de energía, de manera que la forma, en vez de ser constructiva, vital y útil, se convierte en una fuerza destructiva. Si estudiamos las diversas cosmologías del mundo <pin lang="en">980</pin> veremos que el proceso de la creación fue logrado por medio del sonido, palabra o Verbo. La Biblia dice: “En el principio era el Verbo y el Verbo era Dios... Todas las cosas por Él fueron hechas; y sin Él nada de lo que es hecho, fue hecho.” [^3] De esta manera, de acuerdo a la enseñanza cristiana, los mundos fueron hechos por el Verbo de Dios.
+
+En las Escrituras hindúes, encontramos que al señor Vishnu, que representa a la segunda Persona de la Trinidad, se lo denomina “La Voz”. Es el gran Cantor que ha construido los mundos y el universo mediante Su canto. Es el Revelador del pensamiento de Dios que ha construido el universo de sistemas solares. Así como los cristianos hablan de la gran Palabra, el Verbo de Dios, el Cristo, así el hindú habla de Vishnu, el gran Cantor, que crea por medio de Su canto.
+
+En el plano físico se nos conoce por lo que hablamos, por nuestra parquedad, por las cosas que decimos y por las que no decimos, y se nos, juzga por la calidad de nuestra conversación. Juzgamos a las personas por lo que dicen, porque sus palabras revelan el tipo de materia mental con que operan y la cualidad de energía o vida que hay detrás de sus palabras. Los diversos Logos solares de las vastas constelaciones, se ponen en evidencia cuando escudriñamos los cielos estrellados; la cualidad del Logos de nuestro sistema solar se ve por medio de esa gran forma mental que Él construyó por el poder de Su palabra, la cual es energetizada con Su particular cualidad de amor. Cada vez que Dios habla crea los mundos, y en la actualidad sólo está en ese proceso. Aún no ha concluido lo que tiene que decir, y de ahí la evidente imperfección presente. Cuando termine esa gran frase o sentencia divina que ocupa Su pensamiento <pin lang="en">981</pin> tendremos un sistema solar perfecto, habitado por vidas perfectas.
+
+<p><pin lang="es">773</pin> Un pensamiento es evocado y concretado por medio de la palabra, extraído de lo abstracto y de un estado nebuloso, y materializado en el plano físico, produciéndose así (si pudieran verlo) algo muy definido en los niveles etéricos. La manifestación objetiva se produce porque “las cosas son aquello que el Verbo crea cuando las nombra”. El lenguaje es literalmente una gran fuerza mágica, y los adeptos o magos blancos, por medio del conocimiento de las fuerzas y del poder del silencio y del lenguaje, pueden producir efectos en el plano físico. Como bien sabemos existe una rama del trabajo mágico que consiste en aplicar este conocimiento como Palabras de Poder y esos mántram y fórmulas que ponen en movimiento las energías ocultas de la naturaleza y llaman a los devas a realizar su trabajo.</p>
+
+Las palabras constituyen una de las llaves que abren las puertas de comunicación entre los hombres y los seres más sutiles. Dan la clave para descubrir a esas entidades con las cuales se entra en contacto en el más allá. Pero sólo quien ha aprendido a guardar silencio y conoce el momento propicio en que debe hablar, puede atravesar el velo y establecer ciertos contactos esotéricos. En La Doctrina Secreta se dice: la magia consiste en dirigirse a los Dioses en Su propio lenguaje, por lo tanto, el lenguaje del hombre común no puede llegar hasta ellos.
+
+Por consiguiente, quienes tratan de aprender el lenguaje oculto, quienes anhelan conocer las palabras que penetrarán los oídos de aquellos que se hallan en el más allá, y quienes tratan de aplicar las fórmulas y frases que les dará poder sobre los Constructores, deben olvidar el modo con que empleaban las palabras y abstenerse de hablar por el método ordinario. Entonces el nuevo lenguaje será suyo y las nuevas expresiones, palabras, mántram y fórmulas serán puestas bajo su custodia.
+
+<p><pin lang="en">982</pin> Las leyes del lenguaje son las leyes de la materia, y los estudiantes deben emplear las palabras aplicando las leyes que rigen la sustancia del plano físico, pues ello concierne a la manipulación de materia en otros niveles. La palabra es el gran medio por el cual ponemos de manifiesto la naturaleza del pequeño sistema que estamos construyendo -ese sistema del cual cada ente humano constituye el sol central, porque de acuerdo a la Ley de Atracción atrae hacia sí aquello que necesita.</p>
+
+## 2. La Naturaleza de la Magia. [^4]
+
+Hemos considerado con cierta extensión la construcción de formas mentales y hemos visto que el proceso seguido por el hombre <pin lang="es">774</pin> es análogo al del triple Logos cuando creó el sistema solar. Ahora consideraremos esa gran rama del ocultismo que generalmente se denomina magia. El hombre que desentrañe el significado esotérico de lo que aquí se expone ocupará su lugar entre los que se titulan los “Hermanos Magos Blancos”. La magnitud del tema es demasiado grande para ser tratado brevemente, pues abarca <pin lang="en">983</pin> todos los sectores del esfuerzo en la construcción material.
+
+Primero debemos ocupamos de la actitud mental que adopta el hombre al encarar el trabajo creador y su capacidad para atraer, por medio del cuerpo mental, el propósito del Ego, impartiendo así a los agentes constructores del plano mental un determinado ritmo y cierta actividad vibratoria. Éste es el factor primordial que trae como resultado (en el plano físico) la iniciación de una actividad egoica directa. También se ha de recordar que al considerar este tema no nos referimos al trabajo diario del hombre común, sino al trabajo creador organizado del hombre evolucionado, de acuerdo a las leyes y preceptos. De esta manera establecemos una norma y acentuamos el ideal hacia el cual todo estudiante ocultista debiera esforzarse.
+
+Se ha de considerar también la tarea que realiza en el plano astral el inteligente estudiante de magia, donde, *por medio del deseo purificado y la emoción santificada, establece esas condiciones de equilibrio y esas vibraciones constantes que permitirán transmitir al plano físico sin impedimentos, por conducto del cerebro físico del hombre, la actividad vibratoria que emana del Ego y la actividad circulante de la fuerza superior*. De allí que (si puede <pin lang="es">775</pin> intercalarse un consejo práctico para el estudiante común) el cultivar la serenidad emocional sea uno de los primeros requisitos para adquirir el equipo que necesita el mago blanco. Esta serenidad no se logra reprimiendo toda actividad vibratoria astral por un esfuerzo de la voluntad, sino cultivando la capacidad de responder al Ego, negando toda respuesta a la vibración innata del vehículo astral mismo.
+
+Encararemos ahora el trabajo de transmitir fuerza al plano físico por conducto de los centros etéricos y del cerebro físico, estudiando algo el efecto que produce el sonido cuando es emitido inconscientemente en la conversación diaria y conscientemente <pin lang="en">984</pin> en las ordenadas y regulares palabras del que verdaderamente trabaja con magia. [^5]
+
+Por lo tanto, debido al valor práctico y vital de esta sección y a los peligros atinentes que pueden surgir al captar estas cuestiones quienes aún no están preparados para el trabajo de manejar conscientemente la fuerza, me propongo impartir la enseñanza necesaria presentándola en forma de “Reglas de la Magia”, con ciertos comentarios aclaratorios. De esta manera se resguarda plenamente el trabajo mágico y al mismo tiempo se les imparte suficiente conocimiento a aquellos cuyo oído interno está atento y el ojo de la sabiduría en proceso de abrirse.
+
+### a. Magos blancos y magos negros.
+
+a. **Magos blancos y magos negros**. En estos días mucho se habla entre los estudiantes ocultistas, sobre la magia blanca y negra [^6] y mucho de lo que se dice no tiene fundamento o veracidad
+
+
+
+
+
 
 
 [^1]: La Glándula Pineal. El Tercer Ojo. D. S. VI, 183.
@@ -164,3 +214,42 @@ Se evidenciará cuán vital es esta materia, y la gran influencia que ejercen so
          1. El ojo interno puede ver a través del velo de la materia. D. S. II, 326.
          2. El ojo espiritual revela los estados supersensibles D. S. IV, 100.
      14. En el hombre espiritual regenerado está activo el tercer ojo. D. S. III, 419.
+
+[^2]: La Biblia, Prov. X, 19.
+
+[^3]: La Biblia, Juan I.
+
+[^4]: Magia. D. S. I, 277.
+
+     1. Magia es la ciencia divina que conduce a participar de los atributos de la divinidad misma. Isis sin Velo, I.
+     2. Todo el trabajo mágico consiste en liberarnos de los repliegues de la Antigua Serpiente. Isis sin Velo, I.
+     3. El propósito del arte mágico es perfeccionar al hombre. Isis sin Velo, I.
+     4. La magia explora la esencia y el poder de todas las cosas. Isis sin Velo, I.
+     5. Magia y magnetismo son términos sinónimos. Isis sin Velo, I.
+     6. Magia es la suma total de la naturaleza del conocimiento. Isis sin Velo, II.
+     7. Magia no implica transgredir las leyes de la naturaleza. Isis sin Velo, I. Prefacio.
+     
+     Fundamentos de la Magia.
+
+     1. La magia está basada en los poderes internos que posee el alma del hombre. Isis sin Velo, I.
+     2. La trinidad de la naturaleza constituye la cerradura de la magia; la trinidad del hombre es la llave que se adapta a ella. Isis sin Velo, I.
+     3. La magia es la psicología oculta. Isis sin Velo, II.
+     4. La luz astral es el principal agente de la magia. Isis sin Velo, I; D. S. I, 270; IV, 79.
+     
+[^5]: **Magia**. Esta palabra encierra en sí la prueba de su elevado origen. La palabra latina Magus y la palabra griega, Magos, un mago, proporcionan derivados que indican autoridad, sabiduría , superioridad. Tenemos entonces magnitud, manificencia, magnielocuencia para expresar grandeza de posición, de acción y de palabra. Cambiando lógicamente las mismas palabras se convierten en majestad, implicando dominio, y tenemos también magistrado, algo magistral, lo cual ha sido simplificado por Maestro y, finalmente, mediante el proceso evolutivo de las palabras, se ha convertido en el común "Mister". Pero el latín es sólo un transmisor de palabras. Podemos igualmente seguir el desarrollo histórico de esta raíz hasta que llegamos al zendo, en que se aplica para designar a toda la casta sacerdotal. Los magos eran renombrados en todo el mundo por su sabiduría y capacidad en el ocultismo; sin duda nuestra palabra magia debe principalmente a esa fuente su actual existencia y significado. No es necesario que nos detengamos aquí porque, detrás de la palabra zendo "mag, aparece la palabra sánscrita maha, que significa "grande" . Creen los estudiosos que maha originalmente se pronunciaba magha. En el sánscrito existe en verdad la palabra Maga, y significa un sacerdote del Sol, pero fue evidentemente una adaptación posterior del zendo cuya raíz originalmente derivó del sanscrito. Lucifer, T. X, pág. 157.
+
+[^6]: **Magia**. El arte de la divina magia consiste en la capacidad de percibir la esencia de las cosas a la luz de la naturaleza (luz astral) y -empleando los poderes anímicos del Espíritu- de producir cosas materiales desde el universo invisible; en dichas actuaciones debe unirse lo que está arriba y lo que está abajo y actuar armoniosamente. D. S. IV, 79-80.
+
+     Magia es el segundo de los cuaro Vidyas, el gran maha-vidya en los escritos tántricos. Sobre ella se ha de verter la luz del cuarto vidya (atmavidya) para que sea magia Blanca. D. S. I, 200.
+
+     Magia Negra es definida por H.P.B. de la siguiente manera:
+
+     1. En la magia negra se emplea la luz astral con el propósito de engañar y seducir, mientras que el mayo blanco la emplea con proósitos informativos y para ayudar a la evolución. D. S. I, 269.
+     2. La magia negra trabaja con los polos opuestos. El mago blanco busca el punto de equilibrio y síntesis. D. S. II, 120
+     3. La magia negra tiene por símbolo la estrella de cinco puntas invertida, la magia blanca usa el mismo símbolo con la punta hacia arriba
+     4. La magia negra es maha-vidya sin luz de atma-vidya. La magia blanca es maha-vidya iluminada por atma-midya. D. S. II, 240.
+     5. La magia negra se rige por la luna. La magia blanca se rige por el sol.
+     6. La magia negra y blanca surgieron durante el gran cisma que comenzó en la cuarta raza raíz. D. S. III, 408; IV, 63, 79.
+     7. La magia negra se basa en la degradación del sexo y de la función creadora. La magia blanca está basada en la transmutación de la facultad creadora, en el pensamiento creador superior; el fuego interno abandona los órganos genitales y pasa a la garganta, el centro del sonido creador.
+     8. La magia negra trata con las fuerzas de la involución. La magia blanca trabaja con los poderes de la evolución
+     9. La magia negra se ocupa de la forma, la materia. La magia blanca se ocupa de la vida dentro de la forma, el Espíritu.
