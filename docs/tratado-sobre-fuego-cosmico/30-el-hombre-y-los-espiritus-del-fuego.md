@@ -178,8 +178,75 @@ Por lo tanto, debido al valor práctico y vital de esta sección y a los peligro
 
 a. **Magos blancos y magos negros**. En estos días mucho se habla entre los estudiantes ocultistas, sobre la magia blanca y negra [^6] y mucho de lo que se dice no tiene fundamento o veracidad
 
+<p><pin lang="es">776</pin> <pin lang="en">985</pin> Se ha expresado con toda exactitud que la línea de demarcación existente entre los dos tipos de trabajadores es tan tenue que difícilmente pueden reconocerla quienes aún no merecen ser llamados “conocedores”.</p>
 
+La diferencia entre ambos existe en el método y en el móvil, pudiendo resumirse de la manera siguiente:
 
+El móvil del mago blanco consiste en beneficiar al grupo para el cual emplea su energía y tiempo. El mago del sendero izquierdo siempre trabaja solo, y si alguna vez colabora con otros lo hace con un propósito egoísta oculto. El exponente de la magia blanca se interesa en el trabajo constructivo a fin de colaborar en los planes jerárquicos y llevar adelante los deseos del Logos planetario. El Hermano de la Oscuridad se ocupa de lo que está fuera de los planes de la Jerarquía y de lo que no está dentro del propósito del Señor del Rayo planetario.
+
+El mago blanco, como ya se dijo, trabaja totalmente por medio de los Devas Constructores mayores; valiéndose del sonido y de los números, fusiona su trabajo, influenciando así a los <pin lang="es">777</pin> Constructores menores que forman la sustancia de sus cuerpos y, por consiguiente, de todo lo que existe. Actúa <pin lang="en">986</pin> por medio de centros grupales y puntos vitales de energía, y desde allí produce en la sustancia los resultados deseados. El Hermano de la Oscuridad trabaja directamente con la sustancia y con los Constructores menores, no colabora con las fuerzas que emanan de niveles egoicos. Las legiones menores de la “Hueste de la Voz” son sus sirvientes, no las Inteligencias rectoras de los tres mundos; trabaja principalmente en los planos astral y físico, sólo raras veces lo hace con las fuerzas mentales, y únicamente en casos muy especiales, un mago negro oculto en el karma cósmico actúa en los niveles mentales superiores. Sin embargo los casos que allí pueden observarse constituyen las causas principales que contribuyen a la manifestación de toda magia negra.
+
+El Hermano de la Luz trabaja siempre por medio de la fuerza inherente al segundo aspecto, siempre que actúe en conexión con los tres planos inferiores. Después de la Tercera Iniciación trabaja acrecentadamente con energía espiritual o con la fuerza del primer aspecto. Impresiona las sustancias inferiores, manipula las vidas menores constructivas por medio de la vibración del amor y la atractiva coherencia del Hijo y construye las formas con sabiduría. Aprende a trabajar desde el corazón y, por lo tanto, manipula esa energía que emana del “Corazón del Sol”, hasta que (convertido en un Buda) puede prescindir de la fuerza que emana del “Sol Espiritual”. En consecuencia, el centro cardíaco del Hermano en el sendero de la derecha constituye el agente transmisor de la fuerza constructora, y el triángulo que emplea en su trabajo es el siguiente:
+
+1. El centro coronario que corresponde al cardíaco.
+2. El centro cardíaco.
+3. El centro laríngeo.
+
+Los Hermanos del sendero de la izquierda trabajan totalmente con las fuerzas del tercer aspecto, y esto les <pin lang="en">987</pin> otorga aparentemente mucho poder, porque el segundo aspecto sólo está en proceso de lograr su consumación vibratoria, mientras que el tercer aspecto está en la cumbre de su actividad vibratoria, siendo el producto de los procesos evolutivos del principal sistema solar precedente. Trabaja casi enteramente desde el centro laríngeo, y maneja principalmente las fuerzas del sol físico. Ésta es la razón por la cual obtiene mucho de lo que se propone aplicando el método de la estimulación o la desvitalización pránica, y explica por qué la mayoría de sus efectos se producen en el plano físico. Por lo tanto trabaja a través de: <pin lang="es">778</pin>
+
+1. El centro coronario correspondiente al laríngeo.
+2. El centro laríngeo.
+3. El centro en la base de la columna vertebral.
+
+El mago blanco trabaja siempre en colaboración con otros, siendo dirigidos por ciertos guías de grupo. Por ejemplo, los Hermanos de la Logia Blanca trabajan dirigidos por los tres grandes Señores, adaptándose a los planes establecidos, subordinando Sus propósitos e ideas individuales al gran esquema general. El mago negro trabaja por lo general en forma excesivamente individualista, llevando a cabo solo sus proyectos o ayudado por sus subordinados. Comúnmente no acepta ninguna autoridad superior, pero con frecuencia es víctima de los agentes que se hallan en niveles superiores del mal cósmico, utilizándolo en la misma forma que él emplea a sus colaboradores inferiores, es decir, actuando (en lo que atañe al propósito superior) ciega e inconscientemente.
+
+El mago blanco, como es bien sabido, trabaja con el aspecto evolutivo en conexión con el Sendero de Retorno. El hermano negro se ocupa de las fuerzas involutivas o del Sendero de Ida. Constituye la gran fuerza equilibradora de la evolución, y aunque uno <pin lang="en">988</pin> se ocupa del aspecto material de la manifestación y el otro del aspecto alma o conciencia, ellos y su obra, de acuerdo a la gran ley de evolución, contribuyen al propósito general del Logos solar, aunque (y esto contiene un gran significado oculto para el estudiante iluminado) no al propósito individual del Logos planetario.
+
+Por último, podría decirse brevemente en conexión con las diferencias que existen entre ambos, que el mago de la Buena Ley trabaja con el alma de las cosas. Su hermano de la oscuridad trabaja con el aspecto materia.
+
+El mago blanco trabaja por medio de los centros de fuerza, en el primero y cuarto subplanos de cada plano. El mago negro trabaja por medio de los átomos permanentes y con la sustancia y las formas involucradas. El mago blanco utiliza a este respecto los tres centros superiores; el mago negro emplea la energía de los tres centros inferiores (los órganos de la procreación, el bazo y el plexo solar) sintetizando su energía por un acto de la voluntad y dirigiéndola al centro en la base de la columna vertebral, de manera que la cuádruple energía es desde allí transmitida al centro laríngeo.
+
+El mago blanco usa la fuerza kundalínica a medida que es transmitida por el canal central de la columna vertebral. El mago negro emplea los canales inferiores, dividiendo la cuádruple energía en dos unidades, que ascendiendo por sus dos canales, deja el canal central inactivo. Se observa aquí que uno trabaja con la dualidad <pin lang="es">779</pin> y el otro con la unidad. Por lo tanto, en los planos de la dualidad se evidencia por qué el mago negro tiene mucho poder. El plano de la unidad para la humanidad es el plano mental. Los planos de la diversidad son el astral y el físico. De aquí que el mago negro tiene aparentemente más poder que el hermano blanco en los dos planos inferiores de los tres mundos.
+
+El hermano blanco trabaja dirigido por la Jerarquía o el gran Rey, llevando a cabo Sus propósitos planetarios. <pin lang="en">989</pin> El hermano de la oscuridad trabaja dirigido por ciertas Entidades separadas, desconocidas para él, vinculadas con las fuerzas de la materia misma. Mucho más podría decirse a este respecto, pero lo que se ha impartido basta para nuestro propósito.
+
+### b. El origen de la magia negra.
+
+b. **El origen de la magia negra.** Al tocar este tema invadimos los ámbitos del misterio y el dominio de lo inexplicable. Sin embargo pueden hacerse ciertas afirmaciones que, si se reflexiona sobre ellas, arrojará alguna luz sobre este oscuro tema.
+
+Primero. Debiera recordarse que el tópico acerca del mal planetario (y los estudiantes deben distinguir cuidadosamente entre mal planetario y mal cósmico) se halla oculto en los ciclos de la vida individual y en la historia del gran Ser, el Logos planetario de la Tierra. Por lo tanto, hasta que un hombre no haya pasado ciertas iniciaciones y adquirido cierta medida de conciencia planetaria es inútil que especule sobre su historial. En La Doctrina Secreta [^7] H. P. B. ha mencionado el tema de “los Dioses imperfectos”, y en dichas palabras reside la clave del mal planetario.
+
+Segundo. Podría decirse brevemente que, en lo que respecta a nuestra humanidad, los términos mal planetario y mal cósmico podrían interpretarse de la manera siguiente:
+
+El mal planetario surge de ciertas relaciones existentes entre nuestro Logos planetario y otro Logos planetario. Cuando se equilibre la oposición polar terminará el mal planetario. El equilibrio será efectuado por mediación (comprendida esotéricamente) de un tercer Logos planetario. Estos tres formarán finalmente un triángulo equilátero, entonces el mal planetario cesará. La fuerza circulará libremente, la oscuración planetaria llegará a ser posible y los “Dioses imperfectos” alcanzarán una perfección relativa. Así se equilibrará el karma del manvantara o ciclo <pin lang="en">990</pin> secundario, y se agotará mucho mal kármico planetario. Lo antedicho debe interpretarse en sentido esotérico, no exotérico.
+
+El mal cósmico, desde el punto de vista de nuestro planeta, se debe a la relación existente entre esa Unidad espiritual inteligente o “Rishi de la Constelación superior”, según se le denomina (Vida <pin lang="es">780</pin> animadora de una de las siete estrellas de la Osa Mayor, y nuestro prototipo planetario), y una de las fuerzas de las Pléyades. [^8] Los estudiantes deben recordar que a las “siete hermanas” se las denomina ocultamente las “siete esposas” de los Rishis y que la fuerzas duales (resultado de esa relación) convergen y actúan a través de ese Logos planetario, el Logos de un planeta determinado y el “reflejo” de cualquier Rishi específico. En ello, todavía en forma imperfecta, se halla oculto el misterio del mal cósmico a medida que se hace sentir en cualquier esquema planetario. Cuando el triángulo celestial esté debidamente equilibrado y la fuerza circule libremente a través de
+
+1. una de las estrellas de la Osa Mayor,
+2. la Pléyade implicada,
+3. el esquema planetario concerniente,
+
+también será rechazado el mal cósmico y se logrará una perfección relativa. Esto marcará el logro de la perfección primitiva y la consumación del ciclo mayor.
+
+El mal cíclico o terciario, se halla oculto en la relación existente entre los globos de cualquier esquema, estando dos de ellos siempre en oposición hasta ser equilibrados por la fuerza que emana de un tercero. Los estudiantes sólo captarán el significado de esta enseñanza a medida que estudien los pares de opuestos en sus propios ciclos y la tarea equilibradora del Ego.
+
+:::note
+
+El mal cíclico o terciario, se halla oculto en la relación existente entre los globos de cualquier esquema, estando dos de ellos siempre en oposición hasta ser equilibrados por la fuerza que emana de un tercero.
+
+:::
+
+De los ya mencionados surge un cuarto tipo de mal, <pin lang="en">991</pin> y se manifiesta principalmente en los sufrimientos y dificultades del cuarto reino o humano, el cual podrá evitarse de dos maneras: primero, equilibrando las fuerzas de los tres reinos (el quinto reino o espiritual, el humano y el animal) y, segundo, rechazando el poder atractivo de los tres reinos inferiores (el mineral, el vegetal y el animal, que forman una unidad) mediante el reino espiritual utilizando el cuarto reino o humano. En todos estos casos se forman triángulos de fuerza que, una vez equilibrados, se obtiene el fin deseado.
+
+Se dice que la magia negra hizo su aparición en nuestro planeta durante la cuarta raza raíz. [^9] Debe recordarse que esto se refiere estrictamente al cuarto reino y a su empleo consciente por esas personas equivocadamente desarrolladas. Las fuerzas del mal de índole planetaria y cósmica han existido desde que comenzó la manifestación, estando latentes en el karma del Logos planetario, pero durante la cuarta raza raíz de esta ronda los seres humanos <pin lang="es">781</pin> comenzaron a trabajar conscientemente con dichas fuerzas y a utilizarlas para determinados fines egoístas.
+
+Los magos negros trabajan regidos por seis grandes entidades, y se dice por ejemplo en La Biblia, que tienen el número 666. [^10] Vinieron (pues son cósmicas y no del sistema) con esa corriente de fuerza que emana de los niveles mentales cósmicos que produjeron los tres mundos del esfuerzo humano. Los estudiantes deberían recordar el hecho de que los tres planos inferiores de nuestro sistema solar no son considerados como un principio cósmico, porque constituyen el cuerpo físico denso del Logos, y al cuerpo físico denso no se lo considera un principio. La expresión “sin principios” también tiene un significado oculto. Estas entidades son la suma total de la sustancia de los tres subplanos inferiores del plano físico cósmico (los tres planos inferiores del <pin lang="en">992</pin> sistema), y los magos negros, regidos por ellas, entran en actividad a menudo inconscientemente, adquiriendo poder a medida que trabajan conscientemente. [^11]
+
+En las primeras etapas de la evolución humana todos los hombres son magos negros inconscientes, pero no por ello son “malditos” esotéricamente. A medida que prosigue la evolución son regidos por la fuerza del segundo aspecto, a la cual responde la mayoría, escapando de las redes de los magos negros, quedando así bajo la fuerza de otro número. Aquellos pocos que no logran hacerlo en este manvantara constituyen los “fracasados” que deben continuar la lucha en fecha posterior. Un ínfimo porcentaje se niega obstinadamente a “seguir adelante”, convirtiéndose en verdaderos “magos negros”. Para ellos el fin es siempre el mismo. Primero, el Ego se separa de la Mónada, significando que deben esperar muchos eones antes que aparezca otro sistema solar. En el caso de los que han “fracasado” el Ego se separa de la personalidad o yo inferior, lo cual significa que han de esperar un período menor, pero tendrán otra oportunidad en este sistema.
+
+Segundo, <pin lang="es">782</pin> durante un ciclo de vida practican el mal en forma ilimitada, dependiendo de la vitalidad que posea el cuerpo egoico separado y su innata persistencia. Estas son las vulgares “almas perdidas” a las que se refiere La Doctrina Secreta. [^12] Si los estudiantes analizan estas condiciones y amplían el concepto hasta abarcar un sistema solar anterior de mayor madurez, obtendrán <pin lang="en">993</pin> alguna luz sobre el problema del origen del mal en este sistema solar.
+
+### c. Condiciones para la magia blanca.
 
 
 
@@ -253,3 +320,29 @@ a. **Magos blancos y magos negros**. En estos días mucho se habla entre los est
      7. La magia negra se basa en la degradación del sexo y de la función creadora. La magia blanca está basada en la transmutación de la facultad creadora, en el pensamiento creador superior; el fuego interno abandona los órganos genitales y pasa a la garganta, el centro del sonido creador.
      8. La magia negra trata con las fuerzas de la involución. La magia blanca trabaja con los poderes de la evolución
      9. La magia negra se ocupa de la forma, la materia. La magia blanca se ocupa de la vida dentro de la forma, el Espíritu.
+
+[^7]: D. S. V. 69-70, Sección VI, 75.
+
+[^8]: D. S. IV, 116-117-118.
+
+[^9]: D. S. I, 122-124; III, 209,221;IV,62
+
+[^10] La Biblia Rev. XIII, 18
+
+[^11]: Podría preguntarse aquí qué relación puede haber a este respecto con la ronda interna. La ronda interna tiene muchos significados, algunos de los cuales es imposible darlos, pero dos cosas pueden decirse: Que se ocupa del efecto producido por el equilibrio triangular de las fuerzas al finalizar el ciclo, cuando la fuerza de la energía involucrada circula sin impedimentos, aunque lentamente a través de:
+
+     1. dos constelaciones del sistema solar,
+     2. los esquemas planetarios
+     3. tres globos en el esquema.
+
+     Debe recordarse que los tres son interdependientes. La fuerza empieza así a fluir cuando algún ciclo ha recorrido dos tercios. Concierne a las Iniciaciones mayores, y es la analogía, en los planos superiores, del atajo esotérico que conduce a la sabiduría y al conocimiento, que denominamos sendero de Iniciación.
+
+[^12]: Ningún alma puede perderse cuando:
+
+     1. Existe una buena aspiración
+     2. Ha realizado una acción altruista
+     3. Lleva una vida virtuosa
+     4. Lleva una vida de rectitud
+     5. Vive una vida naturalmente pura. Isis sin Velo, II.
+
+     Véase D. S. VI, 160-161-162.
