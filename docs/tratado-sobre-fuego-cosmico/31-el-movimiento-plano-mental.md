@@ -161,17 +161,219 @@ La actividad cíclica-espiral característica de todas las formas, quizá podrá
 
 ### 1. La Ley de Expansión.
 
+La ley que rige la gradual expansión evolutiva de la conciencia inmanente en toda forma es responsable de la forma esferoidal que posee toda vida en el sistema solar. Es un hecho en la naturaleza que todo lo que tiene existencia habita dentro de una esfera. [^2] El átomo químico es esferoidal; el hombre <pin lang="en">1041</pin> habita dentro de una esfera igualmente que el Logos planetario y el Logos solar, siendo esta esfera la forma que toma la materia cuando su propia <pin lang="es">819</pin> actividad interna y la actividad de la forma trabajan al unísono. Para producir esto requiere dos tipos de fuerza: giratoria y cíclica-espiral. Los científicos comienzan más o menos a reconocer y comprender que la Ley de la Relatividad, o la relación que existe entre los átomos, produce lo que se denomina Luz y su conjunto fenoménico constituye esa esfera compuesta, un sistema solar. El movimiento de las constelaciones externas a la esfera solar es responsable de su forma, conjuntamente con su propio movimiento giratorio en el espacio. Cuando la longitud de onda de luz de las constelaciones y su relación con el sol y también el efecto de esa longitud de onda o vibraciones de luz (atractivas o repulsivas con respecto al sol) sean mejor comprendidas, mucho será revelado. Poco ha sido todavía captado con respecto al efecto <pin lang="en">1042</pin> que esas constelaciones celestiales (antagónicas al sistema solar) producen sobre él, cuyas longitudes de onda no son transmitidas, ni sus rayos de luz atraviesan (si es posible expresarse en forma tan poco científica) la periferia solar.
+
+En La Doctrina Secreta se dice que "los siete Rayos solares se dilatan hasta convertirse en siete soles e incendian todo el cosmos". [^3] Esto es lo que produce ese incendio final que anuncia el gran pralaya y lleva a su término la encarnación logoica. Se produce de acuerdo a esta Ley de Expansión que causa la mezcla y fusión eventuales de los siete esquemas planetarios sagrados e indica que han llegado a la perfección final.
+
+En la literatura esotérica este término "Ley de Expansión" está limitado a la dilucidación de los siete Rayos y al tema de las iniciaciones planetarias. Cuando tratamos las expansiones de conciencia del ser humano y sus iniciaciones, las agrupamos bajo una segunda ley, la "Ley del Retorno monádico".
+
+Los estudiantes deberán recordar que estamos analizando las expansiones de conciencia de un Logos planetario por medio de
+
+1. las cadenas,
+2. las rondas,
+3. los reinos de la naturaleza,
+4. las razas raíces. <pin lang="es">820</pin> 
+
+Se recordará que la conciencia que Él está en proceso de desarrollar es la voluntad y el propósito absoluto del Logos solar, porque expresa el deseo del Logos cósmico. [^4] Por lo tanto, las expansiones podrían agruparse de la manera siguiente: <pin lang="en">1043</pin>
+
+1. El Logos solar expande Su conciencia hasta incluir el deseo del Logos cósmico.
+2. El Logos planetario expande Su conciencia hasta estar a la par de la voluntad y propósito del Logos solar.
+3. Los Señores de las Cadenas trabajan con la conciencia de deseo (la naturaleza amor) del Logos planetario.
+4. Las Vidas que dan forma al globo de la cadena trabajan con la conciencia inteligente del Logos planetario.
+
+Esto puede estudiarse en conexión con el globo de una cadena (tal como el de nuestra cadena terrestre) de la manera siguiente:
+
+El señor del mundo, el Logos planetario en encarnación física, se ocupa de su propio problema, llevar (a la manifestación física en el planeta) el propósito o voluntad del Logos solar a cualquier esquema determinado. Esto lo logra por medio de la meditación.
+
+La totalidad de los Dhyan Chohanes del quinto reino o espiritual se ocupa de manifestar activamente la voluntad y propósito del Logos planetario.
+
+La familia humana o cuarto reino, trata de manifestar el deseo o naturaleza amor del Logos planetario.
+
+Los tres reinos subhumanos tienen por objetivo <pin lang="en">1044</pin> manifestar la naturaleza inteligente del Logos planetario.
+
+Cuando esto se realiza de acuerdo a la Ley de Expansión, empleando el método de progresión espiral, el crecimiento cíclico, la repetición giratoria y la síntesis de cada espiral mayor, ello <pin lang="es">821</pin> constituye la expansión de la conciencia hasta abarcar esa esfera que incluyó al ovoide menor y también la evasión de la vida aprisionada en la esfera. Ésta se sumerge en su todo mayor. Cuando los fuegos de la esfera en cuestión arden, el "fuego por fricción", que produce el movimiento giratorio, y el "fuego solar", base de la actividad cíclica-espiral se fusionan y mezclan. El "círculo no se pasa" de la pared esferoidal confinadora es anulado, produciéndose una llamarada.
+
+El Antiguo Comentario lo expresa, refiriéndose a los planetas, aunque igualmente es aplicable al átomo de sustancia o al átomo solar, de la manera siguiente:
+
+1. "La vida palpita y el polo desempeña su función. La esfera gira en numerosos ciclos. A medida que gira presiente otras esferas y trata de desentrañar su secreto.
+2. Se encuentran. Procuran establecer una mayor intimidad o rechazar con odio cualquier otro acercamiento. Algunas desaparecen, otras retornan y se casan. Se conocen. Siguen su curso en espiral tomadas de la mano. Por la unión se enciende el fuego, los dos se convierten en uno, y viven nuevamente en su Hijo, el cual es el Tercero."
+
+Por el estudio de estas significativas palabras los estudiantes podrán aprender algo respecto a la "afinidad polar", el "Matrimonio en los Cielos", la transferencia de los gérmenes de vida del atrayente planeta masculino al receptivo y negativo y, finalmente, en un período posterior, la absorción de la vida de los dos planetas por un tercer planeta, que se denomina esotéricamente "el Hijo". Esto se refiere al planeta sintetizador que constituye la cúspide del triángulo solar.
+
+Resumiendo el efecto producido por la unión del movimiento atómico giratorio individual y la actividad cíclica-espiral de todos <pin lang="en">1045</pin> los grupos atómicos, es necesario señalar las unidades que son afectadas.
+
+El átomo esencial individual. Su progreso evolutivo hacia la autodeterminación se lleva a cabo por el efecto de su actividad grupal o por el movimiento de la forma, cuando modifica su propia acción innata.
+
+La forma atómica, que es también una unidad atómica, girando sobre su propio eje, influenciada e impulsada hacia el centro de fuerza de un macrocosmos superior por la actividad de su reino envolvente.
+
+El átomo humano, individual y autodeterminado, aunque todavía impulsado progresivamente adelante por la influencia de su grupo, o por la potente actividad del Hombre celestial de Cuyo cuerpo es una célula.
+
+<p><pin lang="es">822</pin> El átomo planetario, igualmente autodeterminado, un conjunto de todos los grupos planetarios que giran sobre su propio eje, sin embargo lo hace, de acuerdo a la acción cíclica-espiral, inducido por la actividad de la esfera mayor donde está ubicado.</p>
+
+El átomo solar, que también es una Vida individual, el Hijo en encarnación por intermedio del Sol, persiguiendo su propio e innato ciclo, aunque moviéndose en forma cíclica-espiral a través de los cielos y progresando debido al efecto producido por las Vidas activas extra cósmicas que lo atraen o rechazan.
+
+Este es el principal conjunto de los grupos atómicos, pero hay muchas otras formas intermedias las cuales no es posible todavía tratar. Todo lo que existe afecta aquello con lo cual entra en contacto, y estos efectos actúan como impulsos:
+
+1. De atracción o repulsión.
+2. De aceleración o retraso.
+3. Destructivos o constructivos.
+4. Desvitalizadores o estimuladores.
+5. Energetizadores o desintegradores.
+
+Todos pueden expresarse en términos de fuerza positiva y <pin lang="en">1046</pin> negativa, manifestándose como actividad giratoria y en espiral. El ciclo menor desde cierto punto de vista puede considerarse como perteneciendo a la actividad giratoria de ciertas formas atómicas, y los ciclos mayores, tan difíciles de comprender para el hombre, se relacionan con la actividad en espiral de la Vida omnincluyente de la esfera mayor. Cada átomo es parte de un todo mayor; el átomo solar no es una Vida separada, sino sólo un fragmento de una grandiosa Existencia que está más allá de la comprensión del hombre y que apenas la concibe vagamente el Dhyan Chohan más avanzado.
+
+### 2. La Ley del Retorno Monádico.
+
+Aquí podemos estudiar la Mónada desde el punto de vista cíclico y energético, y apartar nuestras mentes momentáneamente de ese aspecto de la manifestación que llamamos humano u hombre.
+
+Al considerar al "Divino Peregrino", podemos estudiarlo expresándose en forma de:
+
+1. Tres puntos focales de energía o fuerza.
+2. Tres fuegos, produciendo cada uno un efecto definido, el que a su vez produce efecto sobre los demás. <pin lang="es">823</pin>
+
+En la relación con un sistema solar, a estos tres fuegos en los planos cósmicos se los denomina [^5] <pin lang="en">1047</pin>
+
+1. el sol espiritual central (esencial),
+2. el sol (subjetivo), denominado "corazón del sol",
+3. el sol físico (objetivo),
+
+y este mismo concepto puede ampliarse hasta abarcar la manifestación monádica. Los centros monádicos se caracterizan por diferentes tipos de energía:
+
+|     |                             |                    |                     |
+| --- | --------------------------- | ------------------ | ------------------- |
+| 1.  | Energía monádica-dinámica   | impulso eléctrico  | fuego puro.         |
+| 2.  | Energía egoica-magnética    | impulso irradiante | fuego solar.        |
+| 3.  | Energía personal-individual | impulso rotatorio  | fuego por fricción. |
+
+El primero produce luz, el segundo calor y el tercero humedad o concreción.
+
+Mediante la interacción de los tres tipos de fuerza que <pin lang="es">824</pin> constituyen los tres aspectos monádicos, se establece un ritmo que oportunamente forma:
+
+1. Un "círculo no se pasa” o esfera ovoide, donde se halla confinado el peregrino, conteniendo en sí tres centros mayores de fuerza que corresponden a:
+   1. Los tres centros logoicos mayores cuando se observa el aspecto subjetivo o la fuerza de la existencia.
+   2. Los tres átomos permanentes si se trata del aspecto puramente objetivo.
+2. Una pulsación cíclica, causa de todo impulso evolutivo.
+
+<p><pin lang="en">1048</pin> Puede considerarse que los impulsos evolutivos para un sistema solar o para una Mónada son tres:</p>
+
+Tenemos el impulso que impele a todo átomo a la autodeterminación, siendo el secreto del fenómeno llamado individualización. Constituye, en gran medida, la fuerza llamada Brahma.
+
+Tenemos el impulso que obliga al átomo individual a la determinación grupal, siendo el secreto del fenómeno denominado "Iniciación", o el proceso de pasar de la Vida humana autodeterminada e individualizada, al reino superior. Es la suma total de la fuerza de Vishnu o segundo aspecto, y produce los estados de conciencia superiores.
+
+Tenemos finalmente el impulso que obliga a los grupos planetarios, la suma total de todos los átomos y formas, a comprender conscientemente la naturaleza del grupo omnincluyente, el átomo solar.
+
+La Mónada, influenciada por el Hombre celestial, forma inteligentemente su "círculo no se pasa". Cesa allí su trabajo desde un punto de vista estrictamente monádico; la vida inherente a la materia atómica así constituida produce el fenómeno posterior. La vida giratoria de los átomos y su interacción, modificada por la Vida del grupo planetario u Hombre celestial, llevada a cabo durante eones, causa el fenómeno de las diversas etapas involutivas llegando al punto en que ciertos átomos han evolucionado hasta adquirir la conciencia del hombre-animal. A través de todo este inconcebible período (es decir, en conexión con nuestra esfera terrestre), millares de vidas atómicas han proseguido su curso, energetizadas por la Vida de la Mónada a medida que palpita por intermedio del corazón monádico en el plano espiritual, respondiendo similarmente al ritmo mayor del Hombre celestial. Esto ha producido la gradual concreción, y ha llevado al hombre-animal a la etapa donde comienza a sentir la atracción ascendente de la Mónada. Al mismo tiempo la Mónada, en su <pin lang="en">1049</pin> propio plano, empezó a responder a la energía auto-engendrada de la forma inferior, los <pin lang="es">825</pin> dos ritmos hicieron contacto, se produjo la individualización y el peregrino manifestó su verdadera naturaleza.
+
+Luego -en lo que concierne a la Mónada- comienza la vida progresiva, la cual es realmente cíclica, periódica y en espiral. Al principio la acción o la interacción, entre la forma atómica inferior giratoria y la influencia de la Mónada, es aletargada, lenta y pesada; la forma retarda la acción de la Mónada, y su pesada vibración tiende a contrarrestar la superior. Paulatinamente, a medida que las activas espirillas desempeñan su parte, se hace sentir la vibración superior y la actividad o movimiento es más equilibrado, aunque más liviano. Así transcurren los ciclos hasta que el ritmo o vibración superior es tan dominante que la influencia de la forma es anulada y conduce a ser rechazada. Simultáneamente se hace sentir un ritmo aún más elevado, se acrecienta la actividad en los planos superiores y el Ego se niega con el tiempo a vivir en la envoltura. Como se dice en El Antiguo Comentario:
+
+> Las gotas de humedad se hacen más pesadas. Caen como lluvia en el plano más inferior. Se hunden en la arcilla y la hacen florecer. Así las aguas cubren la tierra y todos los ciclos.
+>
+> Dos son los objetivos de las gotas progenitoras y cada uno se logra en ciclos muy distantes; uno consiste en hundirse y perderse en el oscuro suelo de la tierra; el otro en elevarse y mezclarse con el aire límpido del cielo. Entre los dos vastos períodos el calor desempeña su parte.
+>
+> Pero cuando el calor se intensifica y los fuegos que están dentro de la tierra y debajo de las aguas queman y fluyen, la naturaleza de las incontables gotas sufre un cambio. Se disipan en vapor. Así el calor cumple su función.
+>
+> Luego, relampaguea nuevamente el fuego eléctrico, y transforma el vapor en aquello que permitirá su paso a través del aire.
+
+Resumiremos ahora brevemente los diversos impulsos vibratorios que tienen efecto definido sobre la Mónada, y deben tenerse en cuenta cuando consideramos la evolución <pin lang="en">1050</pin> del Divino Peregrino. Este tratado no tiene por finalidad extenderse sobre cada impulso característico, sino que procura sugerir, dejando que posteriores estudiantes amplíen individualmente las ideas impartidas.
+
+1. Tres impulsos innatos en los tres vehículos periódicos, como denomina H. P. B. a los tres centros principales de energía a través de los cuales se manifiesta la Mónada:
+   1. La energía del "círculo no se pasa" monádico, observándolo como una unidad.
+   2. La energía del cuerpo causal, dentro de la periferia monádica.
+   3. La energía del cuerpo físico, la síntesis en el plano <pin lang="es">826</pin> físico de la fuerza que afluye hacia la manifestación a través de los tres átomos permanentes.
+2. La actividad iniciada en los siete centros etéricos de fuerza, resultado de la actividad de los siete principios
+   1. El centro coronario -el siete esotérico con el tres exotérico.
+   2. El centro laríngeo.
+   3. El centro cardíaco -el tres esotérico y el siete exotérico.
+   4. El plexo solar -el tres esotérico y el cuatro exotérico.
+   5. Los órganos de la procreación -el dos esotérico.
+   6. La base de la columna -la unidad esotérica.
+3. La actividad innata de todo átomo en cada envoltura, que produce el ritmo de cada una.
+4. La actividad unificada de toda envoltura o forma que utiliza el Divino Peregrino.
+5. El movimiento activo unido producido por la unificación de los tres vehículos, las siete envolturas, los centros de fuerza y la sustancia atómica.
+6. El efecto producido por la acción de los grupos kármicamente aliados al Peregrino, los cuales son: <pin lang="en">1051</pin>
+   1. La vibración de su Rayo, su grupo monádico.
+   2. La vibración de su subrayo, su grupo egoico.
+   3. Las asociaciones de su personalidad, así como su energía nacional, racial y familiar. Todos actúan sobre los átomos sensibles de los diversos cuerpos y producen efectos específicos.
+7. La actividad o el movimiento iniciado y estimulado por la vida de cualquiera de los tres reinos inferiores de la naturaleza los cuales producen resultados definidos.
+8. La vibración del planeta particular donde la Mónada trata de expresarse y adquirir experiencia.
+9. El efecto producido en la sustancia de las envolturas por las influencias o vibraciones de los distintos planetas. Entendido esotéricamente, es la influencia ejercida por cualquiera de los centros solares, a medida que las fuerzas que emanan de ellos actúan sobre los centros planetarios, afectando así a las unidades monádicas implicadas. Esto se halla oculto en el karma del Hombre celestial y será elucidado cuando se divulgue la verdadera astrología esotérica. La astrología, tal como ahora se estudia y enseña, confunde más de lo que ayuda; los estudiantes de <pin lang="es">827</pin> astrología recién están aprendiendo el a b c de este estupendo tema y apenas si tocan los bordes exotéricos de ese gran velo que ha sido sabiamente tendido sobre toda la ciencia planetaria.
+10. Otra forma de energía que siempre debe considerarse es la del Logos planetario, cuando derrama Su fuerza a través de alguna cadena o globo sobre los grupos de entes humanos evolucionantes. Esta -desde el punto de vista humano- no puede ser calculada todavía, porque depende del centro de Su cuerpo colectivo al cual el Logos planetario, en meditación, "dirige Su atención" esotéricamente. Por supuesto todo ocurre de acuerdo a la ley cósmica, pero está más allá de la comprensión del hombre. Involucra conocer <pin lang="en">1052</pin> el propósito planetario individual, que se revela en las últimas iniciaciones.
+11. La energía inherente al mismo átomo solar tiene también un efecto rítmico sobre la mónada individual, y aunque sólo llega a la Mónada por medio de los centros mayores de la Existencia, tiene un efecto sobre todos y cada uno. Este otro factor aún no es reconocido suficientemente.
+12. Para finalizar, debe tenerse en cuenta la energía de la vida mayor (de la cual nuestro sistema solar sólo es una parte) y los impulsos que emanan del Logos cósmico, AQUEL SOBRE QUIEN NADA PUEDE DECIRSE, llegan a las vidas monádicas y producen estímulo o demora, de acuerdo a la naturaleza de la ideación cósmica. Estos lógicamente están por completo fuera del alcance del hombre común y sólo se los menciona porque ninguna clasificación sería completa sin los mismos.
+13. También hay que tener en cuenta la actuación de la energía que emana de cualquiera de los "Doce signos del Zodíaco", de los cuales se ocupa la astrología. Este tipo de fuerza concierne principalmente al estímulo planetario y al Logos planetario, y está oculto en Su karma cíclico, karma que por supuesto envolverá incidentalmente a esas mónadas y devas que forman Sus Cuerpos y centros.
+14. No podemos ignorar las tres grandes olas de energía que barren cíclicamente al entero sistema solar desde:
+    1. Las siete estrellas de la Osa Mayor. La fuerza de estas vibraciones depende de la intimidad del vínculo y de la exactitud del alineamiento entre un Hombre celestial particular y Su prototipo. El misterio es profundo; y se halla conectado con la etapa evolutiva de los "dioses imperfectos" y el objetivo de las deidades planetarias. <pin lang="en">1053</pin>
+    2. Las Siete Hermanas o las Pléyades, y en particular desde esa unidad denominada ocultamente "la esposa" del Logos <pin lang="es">828</pin> planetario, cuyo esquema recibirá oportunamente la simiente de la vida de nuestro planeta, el cual no es considerado un planeta sagrado.
+    3. El Sol Sirio.
+
+Hay otras corrientes de fuerza energética que tienen un efecto sobre el Peregrino, pero la enumeración anterior servirá para mostrar la complejidad del tema y la vastedad del esquema evolutivo. Todas estas emanaciones vibratorias atraviesan la esfera en forma cíclica; vienen y van, y de su presencia o ausencia y de la etapa de evolución de la Existencia emanante dependerá el carácter fenoménico de toda vida, la naturaleza de cualquier período específico y la cualidad de las Mónadas manifestadas. La aparición o desaparición de estas olas de vida-fuerza (planetaria, interplanetaria, del sistema, cósmica e intercósmica) es lo que impele a la encarnación a los peregrinos divinos y lo que produce la cíclica manifestación de grandes Vidas tales como el "Observador Silencioso" y el "Gran Sacrificio"; es también la causa de la disolución y reaparición de un esquema, y es responsable del traslado de las simientes de vida de un esquema a otro o de un sistema solar a otro.
+
+Esta gran oleada de fuerza arrastra a las Mónadas; al conjunto de fuerzas se lo denomina "fuerza evolutiva", y la vida y persistencia del Ser iniciador establece el término de su duración. El hombre es sólo el juguete de las fuerzas que lo traen y llevan, así como el átomo constituye en la estructura humana sólo el servidor que obedece la imposición del hombre; sin embargo, dentro de ciertos límites, el hombre controla su destino, <pin lang="en">1054</pin> maneja fuerzas y energías, manipula vidas inferiores y controla centros menores de energía, y a medida que transcurre el tiempo su radio de control se hace cada vez más extenso.
+
+El átomo controla su propia vida central; el hombre puede controlar los conjuntos de vidas que forman sus tres cuerpos; el iniciado y el adepto controlan muchos tipos de energías en los tres mundos, así como lo hace el Chohan en los cinco planos de la evolución. De esta manera el plan es llevado a cabo hasta que la Hueste de la Voz se convierte en Aquel que pronuncia las Palabras, y Quienes pronuncian las Palabras se convierten en la Palabra misma.
 
 
+Por lo tanto, será evidente que la "Ley del Retorno monádico", recién considerada, es la suma total de esas influencias que afectan directamente a los átomos monádicos y también a su progreso cíclico, estimulándolo o retardándolo en su actividad, de acuerdo a la fortaleza de la vida iniciática. Sólo después de la iniciación el átomo humano alcanza una etapa de desarrollo en que las fuerzas y las influencias comienzan a ser captadas. Cuando se comprendan <pin lang="es">829</pin> los métodos por los cuales se lleva a cabo conscientemente el reajuste de las corrientes de fuerza externas, se iniciará conscientemente y con exactitud científica la oposición a las fuerzas retardatorias, y el hombre se pondrá también conscientemente en línea con las fuerzas que lo impelirán al sendero de retorno. Este concepto no es muy complejo ni debe causar desaliento, porque la poderosa fuerza de la energía eléctrica eliminará siempre a la vibración más aletargante del fuego solar, y el fuego solar, a su debido tiempo, anulará los efectos del "fuego por fricción".
 
-
-
-
-
-
+### 3. La Ley de La Evolución Solar.
 
 
 
 
 
 [^1]: D. S. I. 219, 242-243,287.
+
+[^2]: El átomo. D. S. I, 133; II, 219. La ciencia esotérica está construida sobre la naturaleza ilusoria de la materia y la infinita divisibilidad del átomo.
+
+     1. Todo es atómico - Dios, Mónada, átomos.
+     
+     |     |                                            |              |
+     | --- | ------------------------------------------ | ------------ |
+     | a.  | La esfera de manifestación solar           | Dios.        |
+     |     | El huevo mundano. El huevo áurico logoico. | Macrocosmos. |
+     | b.  | La esfera de manifestación monádica        | Mónadas.     |
+     |     | El huevo áurico.                           | Microcosmos  |
+     | c.  | La esfera del átomo físico fundamental     | Átomos       |
+
+     2. El sistema solar es un átomo cósmico.
+     3. Cada plano es un átomo o esfera completa.
+     4. Cada planeta es un átomo.
+     5. Cada Hombre celestial es una unidad atómica.
+     6. Cada Mónada humana es un átomo en el cuerpo de uno de los Hombres celestiales.
+     7. El cuerpo causal es un átomo o esfera.
+     8. El elemento del plano físico es una unidad atómica.
+     
+     ¿Qué es un átomo?
+
+     9. Una envoltura formada con materia del sistema solar, en uno de sus siete grados, habitada por cualquier tipo de vida.
+        1. La inteligencia absoluta da forma a cada átomo. D. S. I, 280-290; II, 150.
+        2. La vida absoluta da forma a cada átomo. D. S. I, 272, 275; IV, 260, llamada 23.
+     10. Átomos y almas son términos sinónimos. D. S. II, 263-266.
+        1. En el actual sistema solar átomos y almas son términos sinónimos. El Rayo Primordial además del Rayo divino de Sabiduría.
+        2. En el sistema solar anterior átomos y mente, probablemente términos sinónimos, dieron por resultado el Rayo primordial de la materia inteligente activa, base de la presente evolución.
+        3. En el próximo sistema, los átomos y el tercer factor, el espíritu puro, quizás serán términos sinónimos. El Rayo Primordial y el Rayo divino además del tercer Rayo cósmico de Voluntad o Poder.
+     11. Los átomos son inseparables del Espíritu. D. S. II, 53.
+        1. Son las envolturas a través de las cuales se manifiesta el Dios, que da forma.
+        2. La forma de una envoltura es una esfera.
+        3. La cualidad de la envoltura es amor latente.
+        4. La materia de la envoltura es sustancia activa inteligente.
+
+[^3]: D. S. III, 79, llamada 52
+
+[^4]: Las cuatro subdivisiones del deseo deberían ser estudiadas en el Brahmana del Sama-veda (1) el deseo de conocer; de allí surge (2) el deseo de poseer; después (3) el deseo de afianzar la posesión, por ejemplo dar los pasos necesarios y emprender la acción que adjudicará la posesión; y finalmente (4) la adquisición -éstas son respectivamente las cuatro subdivisiones, deseo-cognoscitivo, deseo en sí, deseo-activo y la suma total de los deseos.
+
+     "El regidor del deso es Shiva y las instrucciones que imparte a sus subjerarcas es: Nuestra tarea es destruir. La orden y el método son los siguientes: Esto debe destruirse primero, aquello después; luego debe efectuarse este o aquel trabajo negativo. Primero averigüen, fomenten el "deseo de saber" y comprendan plenamente la naturaleza de Yo y de Esto. Luego fomenten el "deseo de poseer". Obtendré el Yo y el "Esto". Habiéndolos obtenido, pasarán a la Negación, a exclamar "no (ya no los deseo más)" En la Negación está el resumen, sam-a-hara, "reunir todo" y también el sam-hara, el "acaparar todo", reabsorción, destrucción. Pranava-Vada, pág 364.
+
+[^5]: 
+     1. Los nombres del Sol, que se mencionan en La Doctrina Secreta son:
+        1. Marttanda. D. S. I, 144-147; III, 209.
+        2. Agni. D. S. III, 68, llamada 26, 366-368.
+        3. Surya. D. S. i, 145.
+        4. Helios. D. S. III, 56.
+        5. Apolo D. S. III, 23, 128.
+     2. El Sol tiene los siguientes significados en la Doctrina Secreta:
+        1. En el cosmos. El Sol es el kama-rupa, cuerpo de deseo del Akasha (el segundo aspecto de Brahma). Compárese "Hijo de la necesidad". D. S. I, 101
+        2. En el sistema. El Sol es el sexto principio, budi y su vehículo. (Los Dragones de la Sabiduría que toman forma en el cuarto éter cósmico, nuestro plano búdico.)
+        3. Como entidad. El Sol es el séptimo principio de Brahma o el aspecto materia inteligente y activa.
+     
+     He aquí por qué surge el denominado "rechazo", porque la conciencia o el desarrollo del Ego (logoico o humano) es la meta de la evolución y no el aspecto materia. "El Rayo Primordial es sólo el vehículo del Rayo divino." D.S. I, 129.
