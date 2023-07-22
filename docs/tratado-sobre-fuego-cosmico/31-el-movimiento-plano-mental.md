@@ -317,7 +317,177 @@ Por lo tanto, será evidente que la "Ley del Retorno monádico", recién conside
 
 ### 3. La Ley de La Evolución Solar.
 
+Por supuesto es verídica la afirmación que la Ley de la Evolución solar es la suma total de todas las actividades menores. <pin lang="en">1055</pin> Podríamos considerar este punto en conexión con los átomos planetario y solar.
 
+El átomo planetario desarrolla, como todo en la naturaleza, tres actividades principales:
+
+Primero. Gira sobre su propio eje y también cíclicamente dentro de su propio "círculo no se pasa", desplegando así su propia energía innata. ¿Qué significa esta frase? Seguramente que los millones de átomos que componen el cuerpo planetario (sea denso o sutil) siguen un curso orbital alrededor de la unidad positiva energética central. Dicho centro de fuerza dinámica puede ser considerado como que subsiste en forma natural en dos lugares (si se permite un término tan inadecuado) de acuerdo a la etapa, aplicación y tipo particular de la entidad planetaria inmanente, la cual corresponde:
+
+1. Al centro coronario del hombre, si el Logos planetario es de evolución avanzada.
+2. A la analogía planetaria, con el centro cardíaco.
+
+El centro laríngeo, por supuesto, vibra siempre en cada Logos, pues todos son Creadores planetarios inteligentes, habiendo perfeccionado esta capacidad en un sistema solar anterior.
+
+Los estudiantes deben tener en cuenta aquí que estos centros de fuerza están representados en los Triángulos centrales del diagrama VI de la página [317](/tratado-sobre-fuego-cosmico/manas-as-cosmic-system-human-factor#en372), aunque no se hallará indicación alguna por medio de su estudio respecto a la relativa realización del Logos planetario. Análogamente en las cadenas se encuentran los correspondientes centros de energía y también dentro del cuerpo físico denso del Logos de cualquier esquema, el planeta físico.
+
+Un centro similar existe en el Polo norte, y hay dos más ubicados dentro de la esfera planetaria y la afluencia de fuerza o energía hacia esos centros internos (vía el centro polar) <pin lang="es">830</pin> frecuentemente provoca esos desastres que llamamos terremotos y erupciones volcánicas.
+
+Como sabemos, existe una mutación cíclica de la inclinación polar <pin lang="en">1056</pin> debido a la respuesta gradualmente creciente del Logos planetario a su Prototipo celestial, mediante el cual las influencias de la Osa Mayor, extraen u ocultamente "atraen" la atención del Logos y lo supeditan a una Voluntad impulsiva mayor. Esta mutación produce la destrucción de Su manifestación inferior, condición del Sendero cósmico de Iniciación, análoga al que sigue un discípulo.
+
+El átomo planetario gira sobre su eje y queda periódicamente bajo influencias que producen efectos definidos. Dichas influencias son las que provienen de la Luna y de los dos planetas que se hallan a ambos lados de ella -uno cerca del Sol, el otro lejos. La influencia de la Luna es excesivamente fuerte, y tiene un curioso parecido (en lo que concierne al planeta físico) con el "Morador del Umbral" que ejerce un efecto tan familiar y poderoso sobre el átomo humano. No se ha de llevar muy lejos esta cuestión del parecido porque se ha de tener en cuenta que la Luna no afecta al Hombre celestial, pues Su estado de evolución anula tal cosa, pero la influencia es sentida por la Entidad planetaria -suma total de las esencias elementales del planeta. Los estudiantes ocultistas científicos aprenderán mucho respecto al esquema planetario cuando consideren la influencia que ejerce la atracción kármica de la Luna sobre la tierra, conjuntamente con el efecto que producen, en sentido esotérico, los dos planetas vecinos.
+
+Segundo. El átomo planetario también gira orbitalmente alrededor de su centro solar. Esta es la expresión de la acción cíclica espiral y giratoria y su reconocimiento del imán divino central, que es impresionado constantemente por otros esquemas, produciendo cada uno efectos sobre el planeta. También pone al átomo bajo la afluencia de corrientes de energía, provenientes de lo que se denomina constelaciones zodiacales, que llegan hasta el esquema planetario vía el gran centro, el Sol. Cualquier estudiante <pin lang="en">1057</pin> que haya desarrollado, aunque sea ligeramente, el poder de la visualización y tenga alguna comprensión de las corrientes de fuerza del sistema solar, le será evidente que todo puede considerarse como remolinantes oleadas de corrientes entremezcladas, con numerosos puntos focales de energía que se manifiestan en cualquier parte, aunque no permanecen estáticos en ningún lugar.
+
+La tercera actividad que despliega el átomo planetario lo conduce a través del espacio conjuntamente con todo el sistema solar y personifica la "mutación" o inclinación hacia la órbita del sistema en los cielos.
+
+<p><pin lang="es">831</pin> Puede decirse que el átomo solar despliega análogas líneas de actividad haciéndolo en vasta escala en forma paralela a la evolución del átomo planetario. Toda la esfera solar, el "círculo no se pasa" logoico, gira sobre su eje, y así todo lo que está incluido en la esfera es arrastrado en forma circular a través del firmamento. Los guarismos exactos respecto a los ciclos que abarca la enorme rotación aún deben permanecer esotéricos, pero puede decirse que es aproximadamente de cien mil años, estando, como es de suponer, controlados por la energía del primer aspecto y, por consiguiente, del primer Rayo. Esto por sí solo es suficiente para explicar las variadas y diversas influencias que pueden observar los "videntes" durante vastos períodos, y hacen que las distintas partes de la esfera giren de acuerdo a las diferentes constelaciones zodiacales. Esta influencia (en conexión con los planetas) aumenta o disminuye según el lugar que ocupan los planetas en sus distintos senderos orbitales. De allí la inmensa complejidad del tema y la imposibilidad de que el astrónomo común y el estudiante de astrología hagan cómputos u horóscopos exactos. En el Aula de la Sabiduría, existe un sector cuyo tenue e indefinido reflejo lo constituyen las modernas y variadas organizaciones astrológicas. Los adeptos vinculados con él, no trabajan con la humanidad sino que Se ocupan específicamente de "hacer los horóscopos" (conociendo <pin lang="en">1058</pin> así inmediatamente la naturaleza del trabajo a realizar) de las distintas grandes vidas que dan forma a los globos y a los reinos de la naturaleza y también investigan la naturaleza de las influencias kármicas que actúan en la manifestación de tres de los Logos planetarios:</p>
+
+1. Nuestro Logos planetario.
+2. El Logos planetario de nuestro polo opuesto.
+3. El Logos planetario del esquema, que forma con los dos anteriores un triángulo planetario.
+
+Más allá de esto no pueden ir. Efectúan la progresión de los distintos horóscopos para el próximo ciclo establecido, y Sus datos son de profundo y significativo interés. Quisiera pedirle a los estudiantes que se abstengan (en los próximos años) de formular cómputos cíclicos de cualquier tipo, porque aún las innumerables constelaciones, que existen sólo en materia física de naturaleza etérica, son desconocidas e invisibles. Sin embargo, su influencia es poderosa, y hasta que no se desarrolle la visión etérica todos los cálculos estarán equivocados. Al hombre le basta por ahora cumplir su propio dharma, agotar su karma grupal y dominar lo que se ha llamado "sus estrellas".
+
+El átomo solar no sólo gira sobre su propio eje como el átomo <pin lang="es">832</pin> planetario, sino que también se mueve cíclicamente en espiral a través del firmamento. Ésta es una actividad distinta a la mutación o movimiento dinámico progresivo a través de los Cielos. Se refiere a las revoluciones de nuestro Sol alrededor de un punto central, y a su relación con las tres constelaciones mencionadas tan frecuentemente en este tratado:
+
+1. La Osa Mayor.
+2. Las Pléyades.
+3. El Sol Sirio.
+
+Estos tres grupos de cuerpos solares tienen preponderante influencia en lo que concierne a la actividad cíclica-espiral de nuestro sistema. Así como en el átomo humano la actividad <pin lang="en">1059</pin> cíclica-espiral es egoica y controlada desde el cuerpo egoico, así también en conexión con el sistema solar estos tres grupos están relacionados con la Tríada espiritual logoica, atma-budi-manas, y su influencia predomina en lo relativo a la encarnación, evolución y progreso solares.
+
+Más aún, podría agregarse que el tercer tipo de movimiento al que está sujeto nuestro sistema, el de progresión progresiva, es el resultado de la actividad unida de las siete constelaciones (formando una de las siete nuestro sistema solar), que a su vez son los siete centros del Logos cósmico. Esta actividad unida produce un empuje (si cabe la expresión) uniforme y constante hacia un punto en los cielos desconocido hasta para el Logos planetario.
+
+Los confines de los Cielos son ilimitados y enteramente desconocidos. Lo único posible para las minúsculas y finitas mentes de los hombres es especular desenfrenadamente y no es conveniente ocuparnos de ello. Al observar las estrellas en una noche clara, traten de comprender que en los muchos millones de soles y constelaciones visibles, para el ojo humano, y en las decenas de millones que revela el telescopio moderno se contempla la manifestación física de incontables millones de existencias inteligentes; de esto se infiere que lo visible constituye simplemente esas existencias que están encarnadas, pero sólo una séptima parte de las que pueden aparecer están encarnando. Seis séptimas partes están fuera de encarnación, esperando su turno para manifestarse, y absteniéndose de hacerlo hasta que en el girar de la rueda se produzcan condiciones mejores y más adecuadas.
+
+Comprendan también que los cuerpos de estos sensibles e inteligentes Logos planetarios, solares y cósmicos, están formados de seres vivos y sensorios; el cerebro se anonada y la mente se consterna ante un concepto tan inconcebible. Sin embargo es así, y todo avanza hacia alguna consumación insondable y magnífica que sólo imaginaremos en parte cuando nuestra conciencia <pin lang="en">1060</pin> se haya <pin lang="es">833</pin> expandido más allá del plano físico cósmico y del astral cósmico, hasta que pueda "concebir y pensar" en el plano mental cósmico. Esto implica poseer una comprensión mayor que la de los Budas que poseen conciencia del plano físico cósmico, y más grande que la de los Logos planetarios. Constituye la conciencia y el conocimiento de un Logos solar.
+
+Para el estudiante esotérico que ha desarrollado el poder de la visión interna, la bóveda celeste puede ser vista, por lo tanto, como un brillante fuego de luz, y las estrellas como "puntos focales de la llama" de la cual irradian corrientes de energía dinámica. La oscuridad es luz para el Vidente iluminado, y el secreto de los Cielos puede leerse y expresarse en términos de corrientes de fuerza, centros de energía y periferias dinámicas e ígneas del sistema.
+
+### 4. La Ley de la Irradiación.
+
+Observarán que a esta expresión de la actividad divina se le dedicará más tiempo que a cualquier otra, porque es la de mayor utilidad práctica. La Ley de la Irradiación empieza ser reconocida por los científicos desde que aceptaron la radiactividad de ciertas sustancias, y cuando accedan a aceptar el concepto oculto de la irradiación o condición emanante de todas las sustancias en una etapa específica de la evolución, entonces se acercarán definitivamente a la Realidad.
+
+*La irradiación es el efecto externo producido por las formas de todos los reinos cuando su actividad interna ha alcanzado tal grado de actividad vibratoria que los muros que confinan a la forma ya no constituyen una prisión, sino que permite la evasión de la esencia subjetiva*. Esto marca una etapa específica de realización en el proceso evolutivo, siendo también verdad respecto al átomo de sustancia con el que tratan el químico y el físico cuando trabajan con los elementos, como también lo es respecto a las formas de los reinos vegetal, <pin lang="en">1061</pin> animal, humano y además el reino divino.
+
+:::note Recuerda
+
+La irradiación es el efecto externo producido por las formas de todos los reinos cuando su actividad interna ha alcanzado tal grado de actividad vibratoria que los muros que confinan a la forma ya no constituyen una prisión, sino que permite la evasión de la esencia subjetiva
+
+:::
+
+Desde cierto punto de vista podría considerarse como la "forma verdadera" (esotéricamente se ha considerado como la forma etérica de la energía) que hace sentir su presencia de tal manera que hasta es evidente para el científico. Los estudiantes deben recordar aquí dos cosas:
+
+Primero, que en todas las conclusiones ocultas, es tenido en cuenta el cuerpo de energía y reconocida como de suprema importancia la vida subjetiva que se halla detrás de la forma.
+
+Segundo, que la manifestación objetiva densa, como ha sido reiterado frecuentemente, no es considerada como un principio; el ocultista trata sólo con principios.
+
+<p><pin lang="es">834</pin> Sería bueno recordarle al estudiante que en toda manifestación deben ser reconocidas tres cosas:</p>
+
+Primero, que lo externo, objetivo, tangible, negativo, receptivo y esotéricamente desorganizado, es amorfo e inútil cuando está separado de la energía interna.
+
+Segundo, que la "forma verdadera" o vehículo de fuerza, energetiza y produce la cohesión de lo que está desorganizado.
+
+Tercero, que la "esencia volátil" o la Vida esencial espiritual, se enfoca en algún lugar dentro de la "verdadera forma". [^6]
+
+<p><pin lang="en">1062</pin> Al estudiar el tema de la actividad de la irradiación, tratamos con el efecto producido por la esencia interna a medida que hace sentir su presencia a través de la forma, cuando la forma ha llegado a una etapa de tal refinamiento que lo hace posible.</p>
+
+<p><pin lang="es">835</pin> Cuando esta comprensión se aplique a las formas de todos los reinos, se podrán eliminar las separaciones existentes entre las distintas formas de vida y los "elementos" de cada reino, y se hallarán esos centros irradiantes unificadores. La palabra "elemento" se emplea todavía para definir las sustancias básicas que existen en lo que se llama materia esencial; de estas vidas se ocupan el químico y el físico; pero su analogía (en el sentido oculto del término) se encuentra en todos los reinos de la naturaleza; existen formas de vida en el reino vegetal que son ocultamente consideradas "radiactivas", siendo el eucalipto una de ellas. Hay también formas de vida animal que se hallan en una etapa análoga y el ente humano (cuando se aproxima a la "liberación") manifiesta un fenómeno similar.</p>
+
+Del mismo modo, cuando un esquema planetario se acerca a su consumación se hace "radiactivo", y a través de la irradiación transfiere su esencia a otro "planeta absorbente" o planetas, como sucede también en un sistema solar. Su esencia o verdadera Vida es absorbida por una constelación receptora, y el "casco externo" vuelve a su condición original desorganizada.
+
+<pin lang="en">1063</pin> En esta elucidación de la ley de la irradiación, vamos a considerar primero la causa de la irradiación.
+
+#### a. La causa de La irradiación.
+
+a. La causa de La irradiación. El estudiante podrá tener una verdadera perspectiva de este tema si únicamente lo observa en forma amplia. Dos aspectos de la materia se presentan lógicamente ante su visión mental, que han de estudiarse si se quiere formar un concepto adecuado acerca de este asunto -del cual se han ocupado, consciente o inconscientemente, durante siglos, los filósofos, científicos y alquimistas. Por lo tanto, debemos considerar
+
+1. aquello que es irradiante y
+2. aquello que es la causa subjetiva de la irradiación.
+
+Podría explicarse muy brevemente que cuando alguna forma se hace radiactiva, es porque imperan ciertas condiciones y se han producido ciertos resultados, que pueden resumirse de la manera siguiente:
+
+La forma radiactiva es aquella que ha recorrido sus ciclos designados a través de su rueda de la vida, grande o pequeña, y a girado con adecuada frecuencia, de manera que la volátil esencia -vida está preparada para abandonar esa forma y mezclarse con la forma mayor de la cual la menor es una parte. Debe recordarse a este respecto que la irradiación ocurre cuando la forma etérica o verdadera, responde a ciertos tipos de fuerza. La irradiación, tal como se entiende esotéricamente, no tiene que ver con la evasión de la esencia de la forma física o densa, sino con ese período de la <pin lang="es">836</pin> vida de cualquier entidad viviente (atómica, humana o divina) en que el cuerpo pránico o etérico, por el estado en que se encuentra, ya no puede limitar o confinar por más tiempo la vida inmanente.
+
+La irradiación tiene lugar cuando la vida interna autosuficiente de cualquier átomo es contrarrestada por un impulso o atracción más fuerte emanada de la envolvente existencia mayor de cuyo cuerpo forma parte. Sin embargo, esto sólo es verdad cuando ha sido producido por la atracción ejercida sobre la vida <pin lang="en">1064</pin> esencial, la vida esencial de la forma mayor; no se debe al poder atractivo del aspecto forma de esa vida mayor. Hay que establecer una diferencia muy definida. El no querer reconocer esto ha conducido a muchos estudiantes alquimistas e investigadores científicos a extraviar su camino y a rechazar las conclusiones a las cuales han llegado después de años de estudio. Confunden la tendencia del átomo a responder a la atracción vibratoria magnética más poderosa y abarcante de la forma, con esa verdadera atracción esotérica que ella sola produce la "irradiación oculta" -la de esa vida central esencial de la forma en que ese elemento en consideración, puede tener su lugar. Es muy necesario aclarar esto desde el comienzo. Quizás la totalidad del tema pueda esclarecerse si lo consideramos de la siguiente manera:
+
+El átomo de la forma gira sobre su propio eje, sigue sus propias revoluciones y vive su propia vida interna. Esto concierne a su percepción primaria. A medida que transcurre el tiempo se hace magnéticamente consciente de la naturaleza atractiva de aquello que lo circunda, y llega a tener conciencia de la forma que lo rodea. Esta es su percepción secundaria, aunque todavía concierne a lo que podríamos llamar materia, a falta de mejor término. Por lo tanto, el átomo interactúa con otros átomos.
+
+Más tarde, el átomo de una forma llega a ser consciente de que no sólo gira sobre su eje sino que sigue también una órbita alrededor de un centro de fuerza mayor dentro de una forma mayor. Esta es la percepción terciaria, causada por la atracción magnética que se hace sentir desde el centro mayor, provocando así un impulso dentro del átomo que lo impele a moverse dentro de ciertos ciclos específicos. Dicha percepción, comprendida esotéricamente, concierne a la sustancia o a la forma verdadera dentro de la forma objetiva.
+
+Finalmente, la fuerza atractiva del centro mayor llega a ser tan poderosa que la vida positiva dentro del átomo (cualquiera sea su tipo o reino) siente la fuerza de la energía central que lo sujeta <pin lang="en">1065</pin> a otros átomos en forma coherente, cumpliendo su función. Esta energía penetra a través del "círculo no se pasa” sin evocar respuesta de lo que podría llamarse las vidas electrónicas o negativas <pin lang="es">837</pin> dentro de la periferia atómica, sino que evoca una respuesta del núcleo positivo esencial del átomo. Esto se debe al hecho de que la vida esencial de cualquier átomo, su aspecto positivo más elevado, es siempre de la misma naturaleza que la vida mayor que lo atrae hacia sí. Cuando esto se siente con suficiente fuerza, se completa el ciclo atómico, la forma densa es expelida, la forma verdadera disipada y la vida central huye para encontrar su punto focal magnético mayor.
+
+Por medio de este proceso (que se lleva a cabo en todos los sectores del sistema solar) cada átomo a su vez se convierte en un electrón. La vida positiva de cualquier átomo en su debido curso evolutivo, se convierte en negativa para la vida mayor hacia la que es impelida o atraída, y así el proceso evolutivo lleva a toda vida en forma invariable a través de las cuatro etapas ya mencionadas. En los tres reinos inferiores de la naturaleza este proceso se lleva a cabo inconscientemente, de acuerdo al significado humano de ese término; pasa conscientemente a través del reino humano, y en las esferas superiores de existencia se realiza por medio de una conciencia envolvente que sólo puede insinuarse aplicando el término ambiguo de "comprensión grupal autoconsciente".
+
+Este es el proceso de transmutación al cual se hallaban abocados los antiguos alquimistas; pero raras veces llegaron a la etapa en que podían ocuparse de la respuesta mutua de los dos tipos de energía positiva y la consiguiente liberación de una fuerza positiva menor hacia su centro atractivo mayor. Cuando lo hicieron (en raras excepciones) se encontraban ante un muro, aunque habían logrado localizar el principio irradiante de la sustancia o de la verdadera forma, y llegado a penetrar (o negar) el cuerpo físico <pin lang="en">1066</pin> denso y la forma etérica, pero aún no habían podido percibir la naturaleza de la fuerza central que extraía la vida de la cual ellos se ocupaban, sacándola y llevándola de una aparente y legítima esfera a una nueva zona de actividad. Unos cuantos poseyeron este conocimiento pero (comprendiendo el peligro de sus conclusiones) rehusaron dejar escrito el resultado de sus investigaciones.
+
+Si los estudiantes analizaran las leyes de la transmutación [^7] como ya han sido captadas, y ante todo, incorporadas a los escritos, <pin lang="es">838</pin> de Hermes Trimegisto, podrían lograr, si lo tienen en cuenta, algunos resultados interesantes.
+
+Recuerden que lo que "busca liberarse" es la chispa eléctrica central; que esta liberación se alcanza primeramente debido a los resultados obtenidos por la actividad del "fuego por fricción", que acelera su vibración interna; luego, por su acción sobre el átomo, o la sustancia del fuego solar, que produce
+
+1. progresión orbital,
+2. vibración estimulante,
+3. respuesta interna activa,
+
+hasta que finalmente hace contacto con el fuego eléctrico. Esto es verdad para todos los átomos: <pin lang="en">1067</pin>
+
+1. El átomo de sustancia.
+2. El átomo de cualquier forma.
+3. El átomo de un reino de la naturaleza.
+4. El átomo de un planeta.
+5. El átomo de un sistema solar.
+
+En todos los casos los tres fuegos o tipos de energía desempeñan su parte, pasando por las cuatro etapas, y también tiene lugar la transmutación, transferencia o irradiación, lográndose la liberación de la energía positiva central y su absorción en una forma mayor, que será mantenida en su lugar, durante un ciclo específico, por una energía más fuerte.
+
+Como hemos visto, este proceso de convertir en radiactivos a todos los elementos, ha absorbido la atención de los estudiantes en el transcurso de las épocas. Los alquimistas de la edad media empezaron con los elementos más simples, y comenzando con el reino mineral, trataron de hallar el secreto del proceso liberador, conocer el método de la liberación y comprender las leyes de la transmutación. En la mayoría de los casos no triunfaron debido a que, habiendo localizado la esencia, no sabían cómo dominarla una vez liberada, ni (como ya se ha visto) poseían un concepto respecto a la fuerza magnética que atraía hacia sí la esencia liberada.
+
+<p><pin lang="es">839</pin> Con el objeto de comprender la ley y estar, por lo tanto, capacitado para trabajar perfectamente con ella, el estudiante investigador debe ser capaz de liberar la esencia de su forma. Tiene que conocer las fórmulas y palabras que la dirigirán hacía ese punto focal particular del reino mineral que guarda análoga relación con la mónada mineral, como el Ego en su propio plano guarda con el hombre que elimina la forma física y las formas verdaderas por medio de la muerte. Esto implica poseer ese conocimiento que sólo se confía al discípulo juramentado; si estudiantes fortuitos llegaran a conocer la ley y el proceso teóricamente, harían bien en detenerse hasta no haber aprendido <pin lang="en">1068</pin> a protegerse de la interacción de las fuerzas. Como bien sabemos, los que trabajan con radio y experimentan en los laboratorios, frecuentemente pierden la vida o algún miembro del cuerpo, debido a que desconocen las fuerzas que están manipulando. Las esencias liberadas se convierten en conductores de la fuerza mayor, su centro magnético, debido a que responden a éste, y dicha fuerza produce las penosas consecuencias que a veces se presentan en conexión con las sustancias radiactivas. Todo átomo radiactivo se convierte, por medio de esa facultad conductora, en un agente de liberación, produciendo en consecuencia lo que llamamos quemaduras, las cuales se deben al proceso de liberar la vida esencial del átomo de sustancia física.</p>
+
+Podría destacarse aquí el curioso fenómeno, en el reino humano, que se denomina erróneamente la prolongación de la vida, lo cual podría llamarse con más exactitud la perpetuación de la forma. La ciencia médica extrema hoy los esfuerzos para retener la vida en formas enfermas e inadecuadas, que si se dejara actuar a la Naturaleza, hace tiempo las hubiera eliminado. Por lo tanto aprisionan la vida y repetidas veces hacen volver la esencia de la vida una y otra vez a la envoltura en el momento de la liberación. Con el correr del tiempo cuando haya un mayor conocimiento, la verdadera ciencia médica será puramente preventiva. Concentrará su capacidad en preservar la vida atómica del átomo humano y en aumentar los procesos protectores preventivos y el funcionamiento correcto de la vida giratoria atómica, llevándonos a seguir debidamente el sendero orbital humano. Pero no irá más allá de eso; cuando haya sido recorrido el curso de la naturaleza, girado la rueda de la vida y llegada la hora de la liberación y el momento en que retorna la esencia a su centro, entonces se considerará que el trabajo ha concluido y será abandonada la forma. Sin embargo esto no será posible hasta que la familia humana haya llegado a una etapa <pin lang="en">1069</pin> donde por medio de la vida pura y los correctos pensamientos logre eliminar la presente corrupción. Entonces los hombres se mantendrán activos hasta la vejez o hasta que el Ego, <pin lang="es">840</pin> comprendiendo que ha realizado la tarea determinada para un ciclo, llegue a sustraer la chispa inferior de vida y a extraer el punto central de fuego. Esto lógicamente presupone poseer conocimientos y facultades que no se tienen en la actualidad.
+
+Estos conceptos pueden ampliarse hasta incluir todos los reinos de la naturaleza, los globos de una cadena, las cadenas, un esquema planetario y un sistema solar.
+
+La Luna es un ejemplo interesante del proceso de liberación o transmutación prácticamente completado en un globo, en ella la vida esencial del reino humano se ha retirado y ha encontrado un nuevo campo de manifestación. Toda vida animal ha sido absorbida igualmente por un centro mayor en otra cadena. Prácticamente puede decirse lo mismo del reino vegetal que existe en la Luna, aunque todavía hay algunas formas inferiores de vida vegetal (de un tipo desconocido para nosotros), mientras que el reino mineral es radiactivo y la esencia de todas las formas minerales se está liberando rápidamente.
+
+En conexión con los reinos de la naturaleza debe recordarse que su crecimiento y radiación oportuna dependen del propósito cíclico del Logos planetario y de las corrientes de fuerza emanantes de otros esquemas planetarios que actúan sobre Su cuerpo planetario.
+
+Todos los átomos se hacen radiactivos como resultado de la respuesta dada a un centro magnético más fuerte, respuesta producida por el desarrollo gradual evolutivo de cualquier tipo de conciencia. Esto en menor medida es verídico en relación con el reino mineral, aunque los científicos no han aceptado que la radiación se produce de esta manera. Más adelante lo harán, pero sólo cuando acepten la teoría general que aquí se expone respecto a los átomos y la consideren como una hipótesis <pin lang="en">1070</pin> plausible. Entonces habrán cambiado en parte su objetivo, tratando de desentrañar, por medio del claro pensar y el estudio de la analogía involucrada, qué punto focales de energía magnética existen y en qué forma afectan a los átomos de su medio ambiente. Aquí sólo puede darse un indicio. Estos oscuros problemas se solucionarán de dos maneras:
+
+Primero, estudiando el lugar que ocupa el sistema solar en el universo y el efecto que producen sobre él ciertas constelaciones; segundo, estudiando profundamente el efecto que tiene un esquema planetario sobre otro, y el lugar que ocupa la Luna en nuestra propia vida planetaria. Esto conducirá a una profunda investigación de las condiciones polares de la tierra, de las corrientes magnéticas planetarias y de la interacción eléctrica que existe entre nuestra tierra y los esquemas planetarios venusiano y marciano. Cuando esto se logre se revolucionarán la astronomía y la astrología <pin lang="es">841</pin> esotérica y será reconocida la naturaleza de la energía solar como la expresión de una Entidad de cuarta categoría. Esto ocurrirá al final de este siglo después de un descubrimiento científico aún más importante que el de la naturaleza del átomo. Hasta ese momento será tan difícil expresar que el concepto hilozoísta constituye una ciencia exacta como hubiera sido para un antepasado del siglo dieciséis, concebir el átomo como un simple aspecto de fuerza que ni siquiera es objetivamente tangible. Por eso una mayor elucidación traerá sólo confusión.
+
+Al considerar este amplio tema de la irradiación, resultado del movimiento en espiral progresivo, podría ser de interés puntualizar aquí que en cada reino de la naturaleza existen ciertos puntos focales de energía, los cuales, en el transcurso gradual de los eones, llevan a la sustancia atómica, de que están compuestas las formas en todos los reinos de la naturaleza, al punto donde se convierten en radiactivas y logran <pin lang="en">1071</pin> su liberación. (El término "liberación" en realidad significa la capacidad que posee cualquier átomo para salir conscientemente de una esfera de influencia energetizada y penetrar en otra de vibración superior, donde existe una más grande y amplia expansión de realización consciente).
+
+En términos generales podría decirse que:
+
+El reino mineral responde al tipo de energía, el aspecto inferior del fuego, de esas hogueras internas que ejercen influencia sobre los elementos del mundo mineral, y dividen estas vidas atómicas en series graduadas de tipo cada vez superior de energía mineral. Por ejemplo, el tipo de energía que actúa sobre el mineral de hierro o que produce el estaño, emana de un centro diferente de aquel que -en el cuerpo de la Entidad que da forma al reino mineral- convierte los elementos en maravillosas joyas, como ser el diamante, el zafiro, la esmeralda o el rubí. La energía de ese centro particular involucrado responde igualmente a la fuerza que se origina en ese centro del cuerpo del Logos planetario -el cual depende del reino que ha de vivificar. Al tratar de estos reinos, por lo tanto, podría indicarse brevemente la relación que existe entre ellos.
+
+| Reino      | Centro Planetario |
+| ---------- | ----------------- |
+| a. Humano  | Centro cardíaco.  |
+| b. Animal  | Centro laríngeo.  |
+| c. Vegetal | Plexo solar.      |
+| d. Mineral | Bazo.             |
+
+El centro planetario egoico es, por supuesto, el transmisor de los demás, y debiera tenerse en cuenta a este respecto que cada centro transmite tres tipos de fuerza, excepto el bazo que distribuye pura y simplemente los fuegos solares y la fuerza pránica. Los <pin lang="es">842</pin> estudiantes sabrán oportunamente cómo agrupar los diversos tipos en los diferentes reinos de acuerdo al tipo de energía desplegada en mayor medida, recordando que sólo en el cuarto reino, el humano, se manifiesta el más elevado de los tres tipos (el que produce la autoconciencia) <pin lang="en">1072</pin> y en los demás está latente. Esto se pondrá de manifiesto si se estudia el método de la individualización lunar.
+
+El reino vegetal responde al tipo particular de energía que produce el fenómeno del agua o humedad. Cualquier tipo superior de vida vegetal evoluciona por efecto del agua y por la combinación del calor y el agua se producen nuevos tipos. El botánico científico que desarrolla nuevas especies se ocupa del efecto que produce la energía sexual en el segundo reino de la naturaleza, y haría bien en considerar a toda vida vegetal como puntos de energía que responden a otros centros mayores de energía. Mucho se aprenderá a este respecto cuando se apliquen libremente la electricidad y las luces de colores en los laboratorios experimentales. Sexo o afinidad química en el reino mineral significa el despliegue, en ese reino, del segundo tipo de fuerza magnética; lo mismo puede observarse en el reino vegetal en la vida de la semilla y en los procesos de fertilización de todas las plantas. Neptuno, el Dios de las Aguas, tiene una curiosa relación con nuestro Logos planetario y también con esa Entidad cuya vida da forma al segundo reino.
+
+El reino animal responde a un tipo de energía que no es ni fuego ni agua sino una combinación de ambos, siendo el primer reino del plano físico que responde al sonido o a la energía que emana de lo que se denomina ruido. Este es un hecho oculto digno de la mayor atención. La energía que emana de esa Entidad cuya vida da forma al tercer reino de la naturaleza tiene cinco canales de acercamiento o sea cinco centros. La Entidad que anima al cuarto reino tiene siete, porque le han sido agregados la mente y la intuición. En el segundo reino existen tres centros, pero su manifestación es tan oscura que para la mente humana prácticamente no existen. En el primer reino o mineral, el acercamiento está limitado a un centro. <pin lang="en">1073</pin> Por lo tanto se observará que el estímulo de la energía magnética procede, podría decirse, a saltos 1-3-5-7. Cada reino se inicia con un equipo específico, y en el proceso evolutivo lo va acrecentando de manera que la vida liberada pasa al próximo reino con otro equipo además del primitivo.
+
+El reino humano responde similarmente a la energía, pero a la energía del fuego en su manifestación más elevada en los tres mundos. Debe tenerse en cuenta que nos referimos a la energía positiva del Todo mayor cuando afecta a los puntos energéticos positivos menores y no a la energía de la forma.
+
+El átomo llega a responder a la energía de la forma o a <pin lang="es">843</pin> aquello que lo circunda. Llega a ser consciente y luego responde a la fuerza del reino del cual forma parte. Gradualmente responde a influencias más fuertes o a la fuerza que emana de esa Entidad que constituye la vida de ese reino.
+
+Finalmente, el átomo llega a ser consciente de la energía planetaria, o a responder al Hombre celestial. Entonces trasciende el reino al que ha pertenecido, ascendiendo a otro reino, donde repite el ciclo.
+
+Todo esto puede ser expresado en términos de conciencia, pero en esta sección limitaremos el pensamiento al aspecto energía. Resumiendo, puede decirse que:
+
+1. El Logos planetario tiene siete centros, al igual que el hombre.
+2. La Vida que da forma al reino animal tiene cinco centros, dicho reino posee cinco prototipos en el plano arquetípico, mientras que el hombre tiene siete prototipos.
+3. La Vida que da forma al reino vegetal tiene tres centros de fuerza en Su propio plano, y por lo tanto sólo hay tres tipos básicos de vida vegetal. <pin lang="en">1074</pin> Todo lo que conocemos son diferenciaciones de esos tres tipos.
+4. La Vida que da forma al reino mineral actúa a través de un centro.
+
+#### b. La irradiación en los cinco reinos.
 
 
 
@@ -377,3 +547,36 @@ Por lo tanto, será evidente que la "Ley del Retorno monádico", recién conside
         3. Como entidad. El Sol es el séptimo principio de Brahma o el aspecto materia inteligente y activa.
      
      He aquí por qué surge el denominado "rechazo", porque la conciencia o el desarrollo del Ego (logoico o humano) es la meta de la evolución y no el aspecto materia. "El Rayo Primordial es sólo el vehículo del Rayo divino." D.S. I, 129.
+
+[^6]: Forma: "El modelo de acuerdo al cual la naturaleza hace su trabajo externo." D. S. III, 109; II, 263.
+
+     1. La divina ideación pasa de la forma abstracta a la concreta o visible.
+        1. Lo objetivo es una emanación de lo subjetivo D. S. II, 87.
+        2. El Impulso es la energía del Espíritu que produce objetividad. D. S. II, 39,316.
+        3. El Logos hace objetivo un pensamiento oculto. D. S. III, 40.
+     2. Se requieren tres cosas antes de que cualquier forma de energía llegue a objetivarse. D. S. I, 113.
+        1. Privación...Separación. Impulso inicial. Energía. Voluntad
+        2. Forma.......Cualidad o figura. Naturaleza. Amor.
+        3. Materia.....Esfera objetiva. Actividad inteligente. Véase D. s. VI, 194-195.
+     3. La vida precede a la forma. D. S. LI, 243.
+        1. El Pensador siempre permanece. D. S. III, 40.
+        2. La fuerza de la vida es la transformmación del pensamiento del Logos en energía. D. S. V, 168.
+     4. El espíritu tiene que adquirir plena autoconciencia. D. S. I, 219.
+        1. El espíritu tiene que adquirir plena autoconciencia. D. S. I, 219.
+        2. La forma aprisiona al Espíritu. D. S. VI, 194-195.
+        3. La forma es el principio de limitación. D. S. VI, 194-195.
+        4. El Espíritu da forma a todas las envolturas. D. S. II, 305; llamada 1.
+        5. El Espíritu atraviesa el ciclo del Ser. D. S. I, 172.
+     5. Los devas son el origen de la forma. D. S. II, 154. Existen en dos grandes grupos:
+        1. Los Ah-hi son el vehículo del pensamiento divino. D. S. I, 97.
+        2. La Hueste de la Voz. D. S. I, 148.
+        3. Son la suma total de la sustancia de los cuatro planos superiores y de los tres inferiores.
+     6. Existe una forma que combina todas las formas. D. S. I, 103-104,142.
+
+[^7]: En relación con la transmutación será interesante conocer la antigua fórmula siguiente. Constituía la base del trabajo alquímico del pasado.
+
+     "Es muy cierto y verídico, sin lugar a equivocarse, que aquello que está arriba es como lo que está abajo y lo que está abajo es como lo que está arriba, para realizar los milagros del Ser uno; así como todas las cosas surgieron del Uno por la meditación del uno, así todas las cosas, por adaptación, surgieron de este ser único."
+
+     "Su padre es el sol, su madre la luna; el viento lo lleva en su seno, su Madre es la Tierra. Éste es el Padre de toda perfección y consumación en todo el mundo, su poder es integral, si lo dirige a la tierra."
+
+     "Tú separarás la tierra del fuego y lo sutil de lo grosero, gentilmente, pero con mucha sagacidad; asciende desde la tierra al Cielo, nuevamente desciende a la tierra y recibe la fuerza de los superiores e inferiores, para que tengas la gloria del mundo entero; deja entonces que la oscuridad se disipe delante de ti. Ésta es la más grande virtud de todas las virtudes, superando todo lo sutil y penetrando todo lo sólido. Así fue creado el mundo." Tabla Esmeralda de Hermes.
