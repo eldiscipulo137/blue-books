@@ -489,6 +489,53 @@ Todo esto puede ser expresado en términos de conciencia, pero en esta sección 
 
 #### b. La irradiación en los cinco reinos.
 
+b. **La irradiación en los cinco reinos.** Hemos visto que lo que produce la irradiación es la respuesta de la vida positiva de cualquier átomo al poder atractivo de la vida positiva de un átomo mayor. Expresado en otras palabras podría decirse que la vida dévica de cualquier forma atómica prosigue su evolución, y por una serie de "liberaciones" se traslada, durante los ciclos manvantáricos, de un reino a otro, hasta que cada átomo ha logrado la autodeterminación, cumpliéndose así satisfactoriamente el propósito del Hombre celestial para un particular mahamanvantara. Por lo tanto, como es de esperar, al observar el tema como un todo y no desde el punto de vista de un reino, durante el proceso evolutivo se llevan a cabo cinco unificaciones con:
+
+1. El reino mineral.
+2. La mónada mineral con el reino vegetal.
+3. La mónada vegetal con el reino animal. La vida progresiva ya ha realizado tres unificaciones o expandido su comprensión tres veces.
+4. El reino humano.
+5. El Hombre celestial o con la gran vida planetaria.
+
+Durante estas cinco etapas una de ellas es considerada como la más importante de este sistema solar, constituyendo la etapa de <pin lang="es">844</pin> unificación con el reino humano. El hombre es la meta de la evolución para este particular ciclo mayor; cuando ha alcanzado la individualización y ha despertado la autodeterminación, la Mónada o el divino Peregrino logra realizar aquello que expresa más perfectamente el propósito logoico. Las <pin lang="en">1075</pin> etapas posteriores constituyen la consagración del vencedor, y la unificación final con el Yo divino es sólo la consumación de la cuarta etapa. Los estudiantes hallarán interesante comparar la analogía entre las cinco iniciaciones y estas cinco unificaciones. Hay una estrecha conexión entre ambas. Comprendiendo las leyes de los diferentes reinos se puede aprender mucho respecto a los requisitos que rigen las cinco Iniciaciones. Se hallará que las iniciaciones marcan etapas en que se responde al contacto y a la realización, las cuales tienen sus interesantes gérmenes en los cinco reinos.
+
+Podría aquí destacarse con propiedad que la irradiación es el resultado de la transmutación, la cual marca la terminación de un ciclo de actividad giratoria-espiral. Ningún átomo llega a ser radiactivo hasta que su propio ritmo interno haya sido estimulado a un grado en que la vida central positiva esté lista para imponer una actividad vibratoria superior; cuando las vidas negativas, dentro de la periferia atómica, son repelidas por la intensidad de su vibración, ya no son atraídas por su cualidad atractiva. Esto se debe a la entrada en, y su consiguiente respuesta a la vibración magnética de una vida positiva más fuerte que libera la chispa central aprisionada, produciendo lo que podría denominarse desde cierto aspecto, la dispersión del átomo. Sin embargo, este proceso cubre en la mayoría de los casos tan vasto período de tiempo que la mente humana es incapaz de seguirlo.
+
+:::note Recuerda
+
+la irradiación es el resultado de la transmutación, la cual marca la terminación de un ciclo de actividad giratoria-espiral. Ningún átomo llega a ser radiactivo hasta que su propio ritmo interno haya sido estimulado a un grado en que la vida central positiva esté lista para imponer una actividad vibratoria superior
+
+:::
+
+El período radiactivo es el más largo en el reino mineral y el más corto de todos en el reino humano. Como no estamos considerando la irradiación en el reino espiritual al final del mahamanvantara, no se hará aquí ningún comentario.
+
+Es interesante observar que durante esta ronda, debido a una decisión planetaria, el proceso de producir irradiación humana o "liberación" está siendo estimulado artificialmente por medio del método denominado iniciación, y el <pin lang="en">1076</pin> camino más corto para alcanzar la plena purificación y el estímulo se halla abierto para aquellos que están dispuestos a atravesar el fuego de la alquimia divina. Simultáneamente, en los otros reinos de la naturaleza, se intenta un proceso algo similar, pero no de grado. La grandiosa manipulación de los minerales, el trabajo científico del químico y la investigación científica son similares en el reino mineral a los procesos mundiales que se aplican para liberar la chispa humana. Por ejemplo, del caos y la hecatombe de la Guerra mundial y del peso del <pin lang="es">845</pin> metal que sufrió una violenta desintegración, la mónada mineral surgió como de una prueba iniciática, por incomprensible que esto parezca. Es evidente que un gran movimiento simultáneo está en vías de producir una irradiación más rápida en todos los reinos de la naturaleza, para que al término del ciclo se haya consumado el proceso de la irradiación planetaria. La intensificación de este conocimiento no se lleva a cabo en todos los planetas sino en muy pocos. Los otros recorrerán un ciclo más extenso. El proceso educativo iniciático que tiene por objetivo estimular la irradiación magnética o transmutarla, constituye sólo un experimento. Primero fue probado en Venus, con éxito, dando por resultado la consumación del propósito planetario en cinco rondas en vez de siete. Esto fue lo que hizo posible utilizar la energía venusiana en la cadena y en el globo de Venus de nuestro esquema y provocar así el fenómeno de la individualización forzada en la época lemuriana. El estímulo intensivo del tercer reino de la naturaleza, durante la tercer raza raíz, unificó en forma artificial los tres aspectos. El proceso de estimulación, por medio de la energía venusiana, comenzó realmente en la tercera ronda cuando se completó el triángulo de fuerza y estuvo listo para funcionar. Este factor hace que ocultamente la tercera Iniciación sea tan importante. En ella se vincula el triángulo humano: la Mónada, el <pin lang="en">1077</pin> Ego y la personalidad o Venus, el Sol y la Tierra están simbólicamente aliados.
+
+Se han dado ya suficientes indicaciones al estudiante para que tenga la oportunidad de pensar, aunque podría agregarse una palabra más a este respecto. En las cualidades potencialmente radiactivas de los cuatro reinos de la naturaleza, que más nos interesan, encontraremos que tienen una curiosa analogía con las funciones de los cuatro esquemas planetarios que, en su totalidad, forman el cuaternario logoico. Esto también se aplica en grado menor a las cuatro cadenas que forman el cuaternario planetario. Todos deben llegar a ser radiactivos y sus principios tienen que ser transmutados y haber trascendido la forma de la cual son responsables.
+
+Cuando el tema de la irradiación sea mejor comprendido nos proporcionará otro ejemplo más de la unidad de toda vida y otra corroboración de la naturaleza sintética de todo el proceso evolutivo. En todos los casos lo que irradia de cada reino de la naturaleza es una y la misma cosa. El ser humano radiactivo es de igual naturaleza que el mineral radiactivo (difiriendo sólo en grado y en respuesta consciente); en todos los casos lo irradiado es la vida central positiva, la chispa eléctrica o aquello que es su analogía. Existen por lo tanto siete analogías en conexión con el sistema solar, siete entidades que irradian o siete tipos de entes que de muestran capacidad para trascender su movimiento normal y <pin lang="es">846</pin> oportunamente trasladarse a una esfera mayor en la evolución. Estas son:
+
+:::note Recuerda
+
+En todos los casos lo que irradia de cada reino de la naturaleza es una y la misma cosa. El ser humano radiactivo es de igual naturaleza que el mineral radiactivo (difiriendo sólo en grado y en respuesta consciente); en todos los casos lo irradiado es la vida central positiva, la chispa eléctrica o aquello que es su analogía.
+
+:::
+
+1. La mónada mineral del reino mineral, o el núcleo positivo central de todos los átomos y elementos.
+2. La mónada del reino vegetal, o la vida positiva central de toda planta y vegetal.
+3. La mónada del reino animal, o la vida positiva de cada tipo animal. <pin lang="en">1078</pin>
+4. La mónada humana en sus millares de grupos.
+5. La mónada de cualquier tipo particular o forma.
+6. La mónada planetaria, o la suma total de todas las vidas dentro de un esquema planetario.
+7. La mónada solar, o la suma total de todas las vidas en el sistema solar.
+
+Cada una de éstas posee en primer lugar actividad giratoria o autocentrada; luego, cada una simultáneamente con su movimiento original, despliega una actividad cíclica-espiral. Con ello se hace "consciente" de la forma, hasta que finalmente llega a ser radiactiva. Durante el período final trasciende la forma, se libera de ella, llegando a ser así consciente y capaz de participar en la actividad de un todo aún más grande y omniabarcante.
+
+#### c. La irradiación y la ley cíclica.
+
+
+
+
 
 
 [^1]: D. S. I. 219, 242-243,287.
