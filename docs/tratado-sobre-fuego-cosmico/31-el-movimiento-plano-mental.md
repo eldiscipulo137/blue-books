@@ -529,9 +529,82 @@ En todos los casos lo que irradia de cada reino de la naturaleza es una y la mis
 6. La mónada planetaria, o la suma total de todas las vidas dentro de un esquema planetario.
 7. La mónada solar, o la suma total de todas las vidas en el sistema solar.
 
-Cada una de éstas posee en primer lugar actividad giratoria o autocentrada; luego, cada una simultáneamente con su movimiento original, despliega una actividad cíclica-espiral. Con ello se hace "consciente" de la forma, hasta que finalmente llega a ser radiactiva. Durante el período final trasciende la forma, se libera de ella, llegando a ser así consciente y capaz de participar en la actividad de un todo aún más grande y omniabarcante.
+Cada una de éstas posee en primer lugar actividad giratoria o auto centrada; luego, cada una simultáneamente con su movimiento original, despliega una actividad cíclica-espiral. Con ello se hace "consciente" de la forma, hasta que finalmente llega a ser radiactiva. Durante el período final trasciende la forma, se libera de ella, llegando a ser así consciente y capaz de participar en la actividad de un todo aún más grande y omniabarcante.
 
 #### c. La irradiación y la ley cíclica.
+
+c. **La irradiación y la ley cíclica**. Dispersas en este tratado hay innumerables indicaciones de la naturaleza cíclica de este fenómeno; los estudiantes deben recordar que respecto a la irradiación, como en todas las demás cosas, existen períodos de pasividad y actividad intensas. Esto se observa con toda claridad en conexión con el cuarto reino de la naturaleza. Se está entrando ahora en un período de radiactividad donde hombres y mujeres lograrán una comprensión más amplia; comenzarán a trascender sus limitaciones humanas y a penetrar uno a uno, unidad por unidad, en el quinto reino. Este período en lo que respecta al ciclo mayor, se inició cuando la Puerta de la Iniciación fue abierta en la época atlante, aunque numerosos ciclos menores ya se sucedieron, puesto que la afluencia en el quinto reino se rige también por la ley cíclica, el flujo y reflujo periódicos. Al término de la cuarta raza raíz hubo un período de característica radiactividad, y centenares de hombres pasaron de la cuarta Jerarquía creadora a otra superior. Muchos cargos ocupados por Entidades venusianas fueron abandonados para que nuestra humanidad pudiera ocuparlos, y siguió una vasta irradiación <pin lang="en">1079</pin> intercadenaria en que muchos Kumaras y ciertas existencias menores abandonaron nuestra cadena terrestre y pasaron a realizar un trabajo más sutil y avanzado. Entonces la actividad menguó gradualmente, hasta que en ciclos periódicos acarreó <pin lang="es">847</pin> influencias que produjeron una nueva irradiación, aunque no poseía la fuerza del período precedente.
+
+:::note Recuerda
+
+respecto a la irradiación, como en todas las demás cosas, existen períodos de pasividad y actividad intensas
+
+:::
+
+Otro período de radiactividad tuvo lugar durante la época del Buda y muchos alcanzaron el grado de Arhat en esa época. Ese período fue el punto culminante de lo que se ha denominado esotéricamente "un ciclo de tercer grado", y desde esa época no se ha logrado un grado similar de actividad radiactiva. Una tenue irradiación humana se sintió en la época de Cristo, pero sólo duró unos doscientos años y aunque algunos individuos han alcanzado desde entonces la meta, sin embargo pocos han logrado pasar a través de los fuegos de la transmutación y trascender el cuarto reino. El ciclo se halla nuevamente en la vuelta ascendente; alrededor del siglo catorce el reino humano empezó a ser notablemente radiactivo, estando en camino de completar un "ciclo de segundo orden" o un período donde se trascenderá una actividad aún mayor que la desarrollada en la época de Buda, y manifestará su magnitud cuando se hayan cumplido ciertas condiciones.
+
+Primero, cuando se haya esclarecido el actual caos mundial. Segundo, cuando la presente generación haya consumado su tarea de reconstrucción. Tercero, cuando el gran Señor haya iniciado Su misión en la tierra, incrementando así la vibración en todos los reinos de la naturaleza, particularmente en el segundo y en el cuarto. Cuarto, cuando el movimiento, inaugurado en la terminación de cada siglo por la Logia Transhimaláyica, esté en marcha y los Egos psico-científicos, sus agentes, hayan hecho sentir su presencia. Finalmente, cuando la Logia, trabajando en conexión con la cuarta raza raíz, haya instituido un determinado movimiento <pin lang="en">1080</pin> que formará parte del proceso estimulador, traerá como resultado que los más destacados pensadores de esa raza se convertirán en radiactivos. Tendrán una gran oportunidad, y de tanta importancia que un Miembro de la Logia, Confucio, como se lo llamó en el pasado, encarnará para dirigir el trabajo. Ya se están dando los pasos preliminares y han comenzado a encarnar Egos que tratarán de canalizar las energías de esta raza en la correcta orientación, aunque la culminación del ciclo estimulador no se alcanzará hasta mediados del siglo próximo. Es innecesario señalar que dicho movimientos al principio provocarán disturbios; sólo cuando el polvo de la lucha y el ruido de las fuerzas combatientes se haya extinguido, se verá surgir el propósito. Esto es muy evidente en Rusia en la actualidad.
+
+Un imperante factor, muy difícil de explicar para que pueda comprenderlo el pensador común, es el advenimiento cíclico de egos que han alcanzado el suficiente grado de evolución, y ya están preparados para iniciar su primera vida radiactiva. En un gran <pin lang="es">848</pin> sector del esfuerzo jerárquico todos los Egos están divididos en dos grupos, de acuerdo a su ciclo y a su tipo de energía. Dichos grupos están a su vez subdivididos de acuerdo a la cualidad y al efecto vibratorio que han de producir en cualquier reino de la naturaleza, encarnando en forma simple y unida. Esto podría ilustrarse destacando que mediante el gradual advenimiento de seres humanos vegetarianos por inclinación natural y por la aparición de egos que están específicamente interesados en el bienestar y cuidado de los animales (como es tan notable ahora), aparece cíclicamente un grupo de entes humanos que tiene una definida relación kármica con el tercer reino. Esta relación se diferencia específicamente de los grupos carnívoros y a veces inhumanos de los últimos quinientos años.
+
+Sería útil e interesante mencionar aquí algunos de los términos esotéricos aplicados a algunos de estos <pin lang="en">1081</pin> grupos, recordando que sólo constituyen unos cuantos de un vasto número, enumerando aquellos cuya terminología pudiera ser educativa e informativa para el estudiante:
+
+1. Las unidades inertes.
+2. Átomos de centralización rítmica.
+3. Entes de irradiación primaria.
+4. Los hijos del ritmo pesado.
+5. Los puntos de ígnea excelsitud (nombre dado a menudo a los tipos magnéticos altamente evolucionados).
+6. Puntos terciarios de fuego secundario.
+7. Llamas magnéticas (nombre aplicado a chelas e iniciados de determinados grados).
+8. Hijos positivos de la electricidad.
+9. Entes giratorios del séptimo orden.
+10. Puntos de luz de la cuarta progresión.
+11. Chispas eléctricas.
+12. Entes de resistencia negativa.
+13. Átomos equilibrados.
+
+Podrían darse muchos nombres más, pero los anteriores bastarán para indicar la naturaleza general de este conjunto de energía, bajo los cuales se reúnen todos los miembros de la familia humana, estando ubicados de acuerdo a:
+
+1. Su ritmo.
+2. Su cualidad
+3. Su calor
+4. Su luz
+5. Su influencia magnética.
+6. Su radiación.
+7. Su actividad.
+
+<p><pin lang="es">849</pin> Esta clasificación es una ampliación de otra más importante que agrupó a todos los Egos de acuerdo al color, sonido y vibración. Una enumeración similar ha agrupado también a los átomos en los otros reinos; <pin lang="en">1082</pin> también los Dhyan Chohanes de categoría más elevada tienen su lugar en los archivos jerárquicos de este quinto o tercer sector.</p>
+
+Una clasificación cíclica es de igual interés, pero de naturaleza totalmente diferente, dando al iniciado y al investigador intuitivo numerosas indicaciones de valor evolutivo e histórico. Nuevamente podemos agregar un breve epítome de algunos nombres y expresiones empleados bajo los cuales los seres humanos están agrupados en los archivos de este séptimo sector:
+
+1. Unidades que se hallan en la etapa de la niebla ígnea.
+2. Puntos de origen lunar.
+3. Hijos del sol.
+4. Devas del cuarto grado.
+5. Llamas de las esferas interplanetarias.
+6. Átomos de la esfera color carmesí -se refiere a ciertos Egos que han venido a la tierra del esquema planetario, cuya nota es roja.
+7. Los triunfantes Vyasian.
+8. Los puntos del tercer pétalo planetario, y otros grupos de puntos relacionados con el loto planetario de doce pétalos.
+9. Los amantes de la vibración inferior.
+10. Los rechazadores del octavo esquema.
+11. Los puntos de triple resistencia.
+12. Los seguidores del ARHAT.
+13. Los cíclicos hijos de la paz.
+14. Los consecutivos hijos de la guerra.
+15. Las motitas dentro del ojo planetario.
+16. Los puntos reconocidos dentro de los chakras. Lógicamente forman diez grupos.
+
+Cada nombre imparte a la mente del iniciado algún conocimiento respecto al lugar que ocupa en la evolución la Mónada implicada, a la naturaleza de sus encarnaciones y a su lugar en la evolución cíclica.
+
+<p><pin lang="en">1083</pin> El mismo método de agrupamiento se usa en conexión con todos los reinos aunque sólo en el caso de los reinos cuarto y quinto se trata de átomos individuales; las clasificaciones y registros para los otros reinos conciernen a los grupos. Cuando un grupo es conocido, la naturaleza, vibración y ritmo del átomo dentro de ese grupo se evidencia de inmediato. <pin lang="es">850</pin></p>
+
+## IV. EL GIRAR DE LA RUEDA [^8]
+
+
+
+
+
+
 
 
 
@@ -627,3 +700,5 @@ Cada una de éstas posee en primer lugar actividad giratoria o autocentrada; lue
      "Su padre es el sol, su madre la luna; el viento lo lleva en su seno, su Madre es la Tierra. Éste es el Padre de toda perfección y consumación en todo el mundo, su poder es integral, si lo dirige a la tierra."
 
      "Tú separarás la tierra del fuego y lo sutil de lo grosero, gentilmente, pero con mucha sagacidad; asciende desde la tierra al Cielo, nuevamente desciende a la tierra y recibe la fuerza de los superiores e inferiores, para que tengas la gloria del mundo entero; deja entonces que la oscuridad se disipe delante de ti. Ésta es la más grande virtud de todas las virtudes, superando todo lo sutil y penetrando todo lo sólido. Así fue creado el mundo." Tabla Esmeralda de Hermes.
+
+[^8]: El hombre debe comprender la naturaleza de la rueda en la que está girando, llamada en sánscrito la rueda de Samsara. Esta última palabra, derivada de la raíz Sru, mover, significa una rueda en movimiento o la gran rueda de la mutable vida donde las entidades humanas han sido convocadas para trabajar; nunca debe ser abandonada por compasión al hombre y en obediencia a la ley de unidad que vincula a los muchos, según la opinión de todos los verdaderos yoguis y de Sri Krishna. El Instructor explica la naturaleza de la rueda samsárica, de manera peculiar que merece ser reflexionada. Dice "todas las Bhootas surgen del alimento, y el alimento de Payanya o lluvia. La lluvia viene de yagna y el yagna del Karma. El Karma del Veda y el Veda de lo Eterno". Aquí tenemos una gama septenaria con los Bhootas (o forma manifestada) por un lado y la eterna sustancia no manifestada por el otro. Si dividimos a los siete en cuatro planos inferiores dominados por una tríada superior, de acuerdo a la teososfía, tendremos forma, alimento, lluvia y yagna como los cuatro inferiores; karma, veda y sustancia eterna como la tríada superior. La sustancia eterna que penetra todo el espacio, elaborada por el canto del mundo y dando origen a todas las leyes del karma que rigen el desarrollo del mundo, desarrollan los cuatro inferiores, y estos cuatro son originados por yagna -el espíritu de la evolución que conecta lo superior, con lo inferior o, en modo puránico, el espíritu que trata de agregar la armonía de lo manifestado, proporcionando un campo de desarmonía para trabajar y establecer su propia grandeza. Este espíritu de yagna en su propósito de producir la forma manifestada da origen a Payanya o lluvia. La palabra Payanya se aplica a la lluvia y a veces a un espíritu cuya función es producir la lluvia. Some Thougts o the Gita, pág. 127.
