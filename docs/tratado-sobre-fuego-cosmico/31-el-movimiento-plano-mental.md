@@ -720,6 +720,137 @@ La razón final por la cual no se puede ver en el planeta la verdadera forma esf
 
 ## V. EL MOVIMIENTO Y EL ASPECTO CONSTRUCTOR DE FORMAS
 
+### 1. El Movimiento en el Cuerpo Mental.
+
+En la primera parte de este tratado nos ocupamos algo de los diversos aspectos de la actividad, al considerar el "fuego por fricción" y el movimiento ígneo de la propia sustancia. Tocaremos brevemente algunos aspectos del tema, pues es necesario que el estudiante tenga presente ciertas <pin lang="en">1098</pin> cosas. Debe esforzarse por determinar la relación existente entre la mente universal (la mente del sistema) y la mente cósmica y tratar de comprender el propósito del cuerpo o envoltura mental, el más interesante de los distintos cuerpos a causa de su constitución ígneo gaseosa. También debiera tratar de lograr, por medio de la meditación, ese control mental y alineamiento que traerá estabilización y respuesta a la impresión causal, lo cual hará que le sean transmitidas instrucciones egoicas al hombre en el plano físico.
+
+Ciertos puntos, en conexión con el cuerpo mental, requieren ser puestos de relieve, aunque nuestro propósito consiste en llamar la atención sobre su naturaleza. De acuerdo a la Ley de Analogía, el estudiante debe estar capacitado para llegar a ciertas conclusiones y juzgar inteligentemente la asignación del propósito y lugar que le corresponde en el conjunto particular de pitris lunares que forman dicho vehículo.
+
+El cuerpo mental está compuesto sólo de cuatro tipos de esencia, mientras que el cuerpo astral y el físico están formados de siete tipos. Los devas que componen este cuerpo están agrupados y forman "la hueste de cuarto orden", teniendo íntima conexión con ese grupo de Vidas cósmicas que (por la impresión de su influencia sobre la materia solar) son responsables de que nuestro sistema solar sea de cuarto orden. Este grupo de Vidas es manejado y controlado, en sentido macrocósmico, desde niveles mentales cósmicos, vía el sol espiritual central, y a través de aquello que, en el lenguaje esotérico, se denomina "la cuarta cavidad solar". Si el estudiante meditara sobre la naturaleza del corazón humano, sus distintas divisiones, especialmente sobre una de las válvulas, obtendrá luz sobre este complejo problema. Afluye constantemente energía de estas grandes Entidades en los niveles mentales cósmicos; esta afluencia es la vida misma de las unidades solares, suma total de los cuatro subplanos inferiores del plano mental, y en consecuencia la vida <pin lang="en">1099</pin> de las unidades individuales que forman los cuerpos mentales de todos los seres humanos.
+
+<p><pin lang="es">862</pin> Será evidente para el estudiante cuidadoso, que en todos los planos el cuarto subplano tiene una íntima y peculiar relación con la cuarta Jerarquía creadora, las mónadas humanas, y esto es peculiarmente así en relación con el cuerpo mental. Por medio del número del plano (cinco) y el número del subplano (cuatro), la posibilidad de que el ser humano reciba la iniciación se convierte en una realidad, realizándose esa particular forma de actividad que caracteriza su progreso. Por lo tanto, dos corrientes principales de energía son responsables de la forma que tienen los cuerpos mentales, y ellas emanan:</p>
+
+1. Del cuarto subplano del plano mental cósmico, incluyendo los tres subplanos mentales.
+2. Del conglomerado de vidas que forman la cuarta Jerarquía creadora. Como sabemos el número esotérico de esta Jerarquía es el nueve, siendo el cuatro el número exotérico.
+
+La fusión de estas dos corrientes de fuerza (dentro de los confines de los tres mundos) da como resultado la progresiva actividad del hombre. Cuando esto va acompañado por la actividad auto engendrada de los átomos individuales de cualquier envoltura tenemos el movimiento progresivo-espiral. Esto es verdad macro y micro cósmicamente, porque la actividad del plano físico cósmico (nuestros siete planos del sistema), depende en gran medida de la actividad de ciertas manifestaciones de fuerza que pueden ser enumeradas de la manera siguiente:
+
+1. La que desarrolla la cuarta Jerarquía creadora, que en conjunto forman los centros de fuerza.
+2. Las influencias emanantes del cuarto éter cósmico, el plano búdico, de las cuales depende <pin lang="en">1100</pin> la manifestación tangible y objetiva de todo el sistema.
+3. La revelación, tanto macro como microcósmica, del cuarto aspecto del loto egoico solar y humano; ésta es la revelación de la "Joya en el Loto", y macro cósmicamente es la perfecta coordinación de los tres aspectos por medio de la sustancia, siendo la culminación del propósito logoico, el cuarto grupo. También podría expresarse de otra manera:
+
+ > Cuando se conozca todo el significado de la existencia cuatridimensional, entonces el cuarto y el quinto orden completarán el sagrado nueve.
+
+4. El alineamiento especifico, la simultánea interacción o libre circulación de la fuerza a través de las siguientes manifestaciones de la vida una:
+   1. El Cuaternario logoico e igualmente el humano. <pin lang="es">863</pin>
+   2. El cuarto éter del sistema.
+   3. El cuarto éter cósmico, el búdico.
+   4. La cuarta Jerarquía creadora.
+
+Cuando esto haya sido completado, la meta universal habrá sido alcanzada y el Logos habrá asumido el control deseado sobre Su cuerpo físico; entonces las unidades humanas actuarán en el plano búdico, y los grupos de vidas que forman los cuerpos mentales de los seres humanos (numéricamente ligados a la progresión anterior) también lo habrán logrado.
+
+Ciertas influencias y fuerzas actúan sobre la envoltura mental de cualquier ser humano, y producen en él esa actividad que se denomina "espiral-progresiva". Puede considerarse en forma breve que estas fuerzas contienen:
+
+1. Las energías de los átomos de sustancia que componen el cuerpo mental.
+2. Las energías del padre lunar, vida <pin lang="en">1101</pin> coherente del cuerpo mental grupal. Ambos grupos conciernen al no-yo, el tercer aspecto de la manifestación monádica.
+3. Las energías del Ángel solar o Padre, principio coordinador que se halla detrás de la manifestación en los tres mundos.
+4. Las energías de las vidas inteligentes que forman el cuerpo egoico. Dichas vidas tienen su fuente de emanación en otros niveles que no son del sistema. Ambos grupos se relacionan con el principio egoico, principio medio que vincula lo de arriba con lo de abajo, siendo el segundo aspecto de la manifestación monádica.
+5. La energía que emana de la "Joya en el Loto", el punto focal de energía en la Tríada superior. Ello concierne al Yo, el aspecto más elevado de la manifestación monádica.
+
+El efecto producido por la acción mutua de estos cinco tipos de energía, produce (por medio de la unidad mental) aquello que llamamos el cuerpo mental. Después de todo, esta envoltura es sólo la acumulación de esos átomos de una zona específica con la cual tiene que ver el Pensador, manteniéndola magnéticamente dentro de su "círculo no se pasa", sirviéndole de medio para su expresión mental, de acuerdo a su grado de evolución. Esta misma definición es aplicable a todas las envolturas atómicas, y una de las cosas que el estudiante de las ciencias ocultas debe hacer oportunamente es investigar la naturaleza de las vidas que conforman los cuerpos, las cualidades de las energías que influencian tales vidas y el carácter y la fuerza de los principios subyacentes. Entonces arribará a hechos de inestimable valor, concernientes a las energías del reino humano.
+
+<p><pin lang="es">864</pin> A fin de mantener la idea fundamental correlacionada con las distintas secciones de este tratado, les llamo la atención sobre los cuatro puntos que hemos considerado referentes al movimiento <pin lang="en">1102</pin> de los cuerpos físico y astral. Vemos que los efectos de ese movimiento pueden considerarse cuatro en total:</p>
+
+1. Separación.
+2. Impulso
+3. Fricción activa.
+4. Absorción.
+
+#### Separación.
+
+**Separación.** Se efectúa por medio de la actividad inicial del Ego, produciendo la primera de esas formas que intenta usar durante el ciclo de encarnación mediante el agrupamiento de dichas energías por medio del impulso auto engendrado. A fin de evolucionar, el Ego se identifica con esa forma, separándose temporariamente de su propio Yo verdadero. A través del velo de materia mental conoce ante todo la separación, sufriendo la primera experiencia en los tres mundos. Esto significa separarse del aspecto más elevado. Desde el punto de vista de la personalidad también se observa la separación, porque la actividad de la envoltura monádica, su propia volición interna, produce la formación de una esfera de actividad de naturaleza distinta, regida por leyes propias y -hasta que se halla logrado cierto alineamiento durante la evolución- viviendo su propia existencia separada, alejada de las dos envolturas inferiores astral y física. De esta manera puede afirmarse que "la mente mata lo Real" [^12] y oficia de "gran Engañadora" del Yo en un caso, y de "gran Separadora" en otro; se ubica entre la vida egoica centralizada y la existencia de la personalidad.
+
+Esta vida separada va fortaleciéndose a medida que la acción giratoria-espiral del cuerpo mental se intensifica durante los ciclos de manifestación y la Idea <pin lang="en">1103</pin> "individualizada" predomina diariamente cada vez más. El principio "Ahamkara" [^13], como se lo denomina en La Doctrina Secreta, realiza su trabajo, y el hombre se centraliza más fuertemente, haciéndose autoconsciente en el significado más inferior del término. Más tarde, a medida que entran en acción energías superiores y se realiza el esfuerzo para equilibrar, en los tres mundos, los tres tipos de manifestación de fuerza a través de los tres vehículo, el Ego se hace consciente del engaño, liberándose finalmente. Cuando esto está en proceso de consumación, durante las etapas finales de la evolución, el cuerpo mental se convierte <pin lang="es">865</pin> en un transmisor de las corrientes de fuerza que provienen de la mente egoica, se construye el antakarana entre la mente superior y la envoltura mental, y el "cuerpo mental transmisor" se fusiona con el "cuerpo astral reflector". Así se elimina la separación.
+
+El estudiante observará, por lo tanto, que la meta para el cuerpo mental es simplemente llegar a ser un transmisor de los pensamientos y deseos del Ángel solar y actuar como agente de la Tríada. La meta para el cuerpo astral es poder llegar a ser en forma similar el reflector de los impulsos búdicos que llegan al cuerpo emocional por conducto de ciertos pétalos del loto egoico y del átomo astral permanente. El proceso de equilibrar las fuerzas de la personalidad (produciendo estabilidad y alineamiento) es llevado a cabo mediante la científica manifestación de las reacciones eléctricas de los tres cuerpos o envolturas.
+
+:::note Recuerda
+
+El estudiante observará, por lo tanto, que la meta para el cuerpo mental es simplemente llegar a ser un transmisor de los pensamientos y deseos del Ángel solar y actuar como agente de la Tríada. La meta para el cuerpo astral es poder llegar a ser en forma similar el reflector de los impulsos búdicos que llegan al cuerpo emocional por conducto de ciertos pétalos del loto egoico y del átomo astral permanente.
+
+:::
+
+Se considera que la fuerza de la envoltura mental es positiva. El cuerpo físico es considerado negativo para el mental. El vehículo astral es el punto de unificación de las energías, el campo de batalla donde las dualidades se ajustan entre sí, obteniéndose el equilibrio. Tal es la idea subyacente en las palabras cuerpo "kama-manásico", pues éste durante dos tercios de la jornada del peregrino tiene dos propósitos. Técnicamente en la última etapa el <pin lang="en">1104</pin> hombre establece la diferencia entre voluntad y deseo y entre su cuerpo mental y de deseos.
+
+#### Impulso.
+
+**Impulso.** La actividad desplegada por el cuerpo mental y el grado de vibración en progresivo crecimiento se efectúa por la afluencia de energías de distintos tipos. A medida que estos diversos factores presionan sobre la envoltura mental producen acrecentada actividad y velocidad del movimiento giratorio en los átomos individuales, acelerando también el progreso de todo el vehículo. Esto significa transferir, con mayor rapidez, los átomos de baja vibración de la envoltura, por átomos de calidad superior.
+
+Implica también la transición más rápida de las diversas energías o la acción en espiral acrecentada. Este factor permite reencarnar con mayor rapidez y asimilar más rápidamente las experiencias aprendidas. En forma curiosa, desde el punto de vista del pensador común, dicho factor produce períodos devachánicos más extensos, porque estos ciclos de reflexión mental interna aumentan siempre su actividad. Constituyen ciclos de intenso ajuste mental, y de generación de fuerza, hasta que (al finalizar el ciclo de encarnación) la actividad que ha sido generada es tan fuerte que la continuidad de conciencia llega a ser un hecho consumado. Entonces el hombre con frecuencia supera el devachán, pues no lo necesita. Otros resultados obtenidos son la actividad cuatridimensional de las diversas "ruedas", las que comienzan no sólo a rotar sino a <pin lang="es">866</pin> "girar sobre sí mismas", y la vivificación de las cuatro espirillas de la unidad mental. Podrían enumerarse algunas de las energías que producen acrecentado impulso en la envoltura mental, y cuando sean consideradas por el estudiante, volverá a ponerse de manifiesto lo complicado que es realmente el desarrollo humano. Estas energías son:
+
+1. La directa y acrecentada influencia del Ángel solar. Esta influencia se siente: <pin lang="en">1105</pin>
+   1. Cuando las tres hileras de pétalos se abren.
+   2. Cuando la "joya interna" irradia más poderosamente.
+2. La acción refleja proveniente de la personalidad física o las corrientes de pensamiento enviadas en el transcurso del tiempo, desde el cerebro físico.
+3. Las actividades del cuerpo astral.
+4. Las corrientes de pensamiento o unidades de energía, iniciadas por la identificación con los grupos, nacional, familiar, racial y egoico.
+5. Las corrientes que hacen impacto sobre el cuerpo mental de todos los seres humanos a medida que los diferentes Rayos entran y salen de la encarnación.
+6. Las fuerzas y energías que entran en actividad o están latentes en diferentes ciclos.
+7. La interacción entre planetas, sistemas y constelaciones, para lo cual sirve de ilustración el efecto que produce la energía venusiana sobre nuestra Tierra,
+
+y muchos otros factores demasiado numerosos para ser mencionados. Dichas energías tienen su efecto y sirven para apresurar o retardar el proceso evolutivo.
+
+Los estudiantes deben tener en cuenta que todos los grupos egoicos están regidos por la Ley del Karma, pero sólo en lo que puede afectarlo al Hombre celestial, no cuando la ley se manifiesta en los tres mundos. Esta ley kármica, impulso que rige a Sus centros, se manifestará de modo peculiar cuando las mónadas humanas formen parte de dichos centros, entonces cada grupo tendrá sus propios problemas relacionados con la "actividad" y recorrerán en espiral la ronda del Ser en su propia y peculiar modalidad, manifestando cualidades y movimientos diferentes a los de sus hermanos. Por ejemplo, por el retiro de la energía, no por la inercia básica, las mónadas, la suma total de los centros de fuerza creadora del Hombre celestial, reaccionan <pin lang="en">1106</pin> violentamente, en el plano físico, en contra de ciertas "leyes de la naturaleza", y en el período de su transición desde el centro más inferior al centro laríngeo del <pin lang="es">867</pin> Hombre celestial, revelan cualidades revolucionarias que las convierte en un enigma para sus hermanos.
+
+Debemos considerar ahora la "fricción activa" del cuerpo mental, y la actividad del mismo cuando se manifiesta como absorción. Recordemos que ambas conciernen al movimiento de la envoltura mental como un todo. El resultado de esta actividad es acción giratoria-espiral-progresiva.
+
+#### Fricción activa.
+
+**Fricción activa.** Como se deduce, estas palabras tratan del aspecto "fuego por fricción" de la sustancia y, por lo tanto, del aspecto inferior de la energía del cuerpo mental. La fuerza de la Vida dentro de la envoltura se manifiesta en la acción atractiva y repulsiva de los átomos individuales, y esta constante e incesante interacción produce el "calor oculto" del cuerpo y su creciente irradiación. También constituye uno de los factores que trae la gradual formación de nuevos átomos de sustancia (los cuales son cada vez de mejor y más adecuada cualidad) y la exclusión de aquello que no es satisfactorio como medio de expresión inteligente.
+
+La unidad mental es la síntesis de los cuatro tipos de fuerza y sus cuatro expresiones que estamos considerando.
+
+Cada uno de los grupos de vidas, esencia viviente de cuatro subplanos, se enfoca a través de una de las espirillas del ente, influenciando a
+
+1. la envoltura misma,
+2. el hombre en el plano físico.
+3. una parte del centro coronario,
+
+y expresando en mayor o menor grado las cuatro cualidades.
+
+Puede observarse que algunos instructores ocultistas aplican a estos grupos, nombres que expresan <pin lang="en">1107</pin> la idea de la empresa en actividad que constituye su función predominante.
+
+A las "Vidas" del cuarto subplano (donde se halla la unidad mental) se las denomina "Absorbentes de lo superior y de lo inferior" o "aspectos transmisores de cuarto orden". Reciben energía, por un lado la absorben del Ego durante la primera etapa del proceso de encarnación y por otro absorben las energías de la personalidad al finalizar el período de manifestación. Por lo tanto desempeñan una actividad que podría considerarse correspondiente al primer aspecto. Cuando se recuerde que el proceso cósmico se repite en cada plano y que el Ego permanece inmanifestado en los tres mundos, se comprenderá que esas vidas constituyen los separadores primordiales y los "destructores" finales.
+
+A las vidas del siguiente plano (que utilizan la segunda espirilla de la unidad mental) se las denomina "puntos de interacción del impulso cíclico"; acumulan el impulso por medio del proceso <pin lang="es">868</pin> de atracción y repulsión y representan la fuerza dual, en el cuerpo mental, pues sólo por medio de la unión y separación de los átomos grandes y pequeños, macro y microcósmicos, es posible producir cualquier clase de manifestación.
+
+En el subplano formado por las vidas que funcionan a través de la tercera espirilla se encuentran "los puntos de fricción activa" o los "productores de calor" y todos -los absorbentes, los puntos de impulso y los productores de calor- derraman sus fuerzas a través de las "vidas separadas" que forman la verdadera barrera entre el próximo cuerpo y la envoltura mental.
+
+Esto sólo es posible cuando su trabajo está unificado y sintetizado. El estudiante debe recordar que las vidas son la expresión de una Vida, y que una de las espirillas será el medio para expresar determinadas cualidades de esas vidas. Estamos tratando específicamente con el cuarto efecto del movimiento de <pin lang="en">1108</pin> la envoltura mental a medida que se manifiesta a través de todo el vehículo.
+
+#### Absorción.
+
+Absorción: Esta facultad produce las formas del "círculo no se pasa" mental (al final del ciclo), principio activo que se halla detrás de la manifestación devachánica. El estudiante, por medio de una consideración del proceso macrocósmico, puede llegar al conocimiento de la separación del cuerpo mental y su funcionamiento individual. Nos referimos al proceso del "retiro celestial"; bajo la ley de analogía no es fácil seguir los distintos pasos y etapas, debido a las siguientes razones:
+
+A que todos nuestros planos son subplanos del físico cósmico, formando el cuerpo físico logoico. Cuando el Logos se retira finalmente de la manifestación funciona en Su cuerpo astral cósmico, estando el devachán cósmico aún lejos de Él, resultando imposible concebirlo. En consecuencia, todo lo que podemos considerar son ciertos puntos referentes al "descanso en el Cielo", del hombre.
+
+Absorción en el devachán significa ser absorbido en un definido estado de conciencia dentro del cuerpo físico logoico; el devachán es esotéricamente un estado de conciencia, pero donde se piensa conscientemente en términos de tiempo y espacio en los tres mundos. Por lo tanto no tiene un lugar designado para la unidad de conciencia, pero sí lo tiene desde el punto de vista del Hombre celestial. Prakriti (materia) y conciencia son en la manifestación- inseparables.
+
+El "devachán", mencionado en los libros ocultistas, está conectado con la conciencia del cuerpo planetario logoico y con el subplano gaseoso del plano físico cósmico. En consecuencia, es trascendido en el momento en que el hombre empieza a actuar en los éteres cósmicos, tales como el cuarto éter cósmico, el plano búdico. Se halla estrechamente vinculado con ciertas fuerzas <pin lang="es">869</pin> kármicas porque es allí donde el hombre se ocupa del cúmulo de formas mentales que ha construido, <pin lang="en">1109</pin> y son esencialmente de naturaleza esotérica, mental y sustancial.
+
+En el devachán el hombre da forma y pule las piedras con que edifica el Templo de Salomón. Es el taller adonde se llevan las piedras individuales (buenas acciones y pensamientos) para ser modeladas después de haber sido extraídas de la cantera de la vida personal. Por ser de materia mental, puede considerárselo como un centro o corazón de paz, dentro de la periferia de la esfera de influencia de la unidad mental. Las cuatro espirillas forman cuatro corrientes de fuerzas protectoras. Una analogía de esta corriente de fuerza puede observarse en los cuatro ríos que emanaron del Jardín del Edén. De allí es expulsado el hombre al mundo de la encarnación física, y el Ángel de la espada flamígera cuida la entrada cerrándole el paso hasta el momento de haber evolucionado en tal grado que pueda llegar al portal cargado con piedras, capaces de resistir la acción del fuego. Cuando somete estas piedras al fuego y resisten la prueba, puede entrar de nuevo al "Cielo", aunque su tiempo está limitado por la naturaleza y cualidad de lo que ha traído.
+
+Cuando, en el devachán, la conciencia ha absorbido toda la esencia de la experiencia de la vida, entonces ese lugar o aspecto de materia no puede absorberlo y, evadiendo toda limitación, penetra en el vehículo causal.
+
+### 2. El Movimiento en el Cuerpo Causal.
+
+
+
+
+
+
+
+
 
 [^1]: D. S. I. 219, 242-243,287.
 
@@ -820,3 +951,7 @@ La razón final por la cual no se puede ver en el planeta la verdadera forma esf
      Simbolismo de los colores. El lenguaje del prisma, en el cual "los siete colores maternos tienen cada uno siete hijos", es decir cuarenta y nueve matices o "hijos" entre los siete, cuyos graduados matices constituyen tantas letras o caracteres alfabéticos. El lenguaje de los colores contiene cincuenta y seis letras para el iniciado. El septenario de cada letra es absorbido por el color materno, así como los siete colores maternos son finalmente absorbidos por el rayo blanco, la Unidad divina simbolizada por dichos colores.
 
 [^11]: Maya o Ilusión. La palabra Maya debe ser bien comprendida para que pueda captarse el espíritu de la filosofía antigua. La derivación que se atribuye a la palabra es Ma-ya, o eso no. Maya es por lo tanto un poder que hace aparecer las cosas como lo que no son, o el poder de la ilusión que surge de la restricción del antiguo concepto sobre la verdadera unidad que periódicamente aparece como multiplicidad, debido al poder de Maya que coexiste con esa unidad.
+
+[^12]: "La mente es el Destructor de lo Real." La Voz del Silencio , pág. 14.
+
+[^13]: "Ahamkara. El "Yo" que hace necesario establecer un principio para que pueda desarrollarse la conciencia y trascender cuando ha realizado su trabajo.
