@@ -844,6 +844,55 @@ Cuando, en el devachán, la conciencia ha absorbido toda la esencia de la experi
 
 ### 2. El Movimiento en el Cuerpo Causal.
 
+Hemos estudiado en parte esta actividad al manifestarse la forma cuádruple en la envoltura o cuerpo mental; la razón por la cual no se ha dicho mucho respecto a este tema se debe a que el cuerpo mental está regido por las leyes del aspecto materia y sujeto a las mismas reglas que rigen a los vehículos materiales de todo lo existente; sólo que es materia de grado más refinado. En consecuencia, el estudiante puede aplicar al cuerpo mental lo que se ha dicho anteriormente respecto a los cuerpos astral y físico, <pin lang="en">1110</pin> y evitar así la necesidad de tratar el tema con más detalles. El cuerpo causal difiere del aspecto Brahma en que éste es una personificación más plena de la vida del segundo aspecto, predominando las características de éste. Estudiar la naturaleza del movimiento en el vehículo causal requiere mucha claridad mental y adecuada apreciación de la naturaleza de ese cuerpo.
+
+Debe recordarse que al considerar el cuerpo causal, tratamos específicamente con el vehículo de manifestación de un Ángel solar, que es la vida que le da forma y lo construye, perfecciona y <pin lang="es">870</pin> expande, reflejando así en pequeñísima escala el trabajo del Logos en Su propio plano.
+
+Cada parte del cuerpo causal es impulsada por un tipo de fuerza que emana de un gran centro; quizás sea de interés considerar las partes componentes del "Templo del Alma", si estudiamos el tipo de actividad animadora y llegamos a un conocimiento de las fuerzas que actúan sobre él y a través del mismo. Las consideraremos separadamente, comenzando por la hilera externa de pétalos.
+
+#### Los Pétalos de Conocimiento.
+
+**Los Pétalos de Conocimiento**. Representan el aspecto inferior de la Tríada y responden a las formas inferiores de fuerza egoica. Estos pétalos son tres y están influenciados por ciertas corrientes de actividad.
+
+1. Una corriente de energía emana de la tríada inferior de átomos permanentes, en particular del átomo físico permanente, por medio de uno de los tres pétalos llamados pétalos de conocimiento. La corriente de fuerza generada en el yo inferior circula en una triple corriente (el triple Sendero hacia Dios reflejado en el yo inferior) alrededor del triángulo atómico en la base del loto egoico. Cuando ha adquirido suficiente fuerza y <pin lang="en">1111</pin> pureza, afecta la hilera externa de pétalos. Esto comienza a sentirse durante el tercer período de evolución del hombre cuando todavía constituye una unidad inteligente común o átomo. Esta energía, cuando se fusiona con la vida innata de las vidas atómicas que forman los pétalos, produce finalmente esa íntima fusión de alma y cuerpo que hace del hombre un alma viviente.
+2. Otra corriente de energía emana con el tiempo de la segunda hilera de pétalos cuando está activa, conteniendo instintivamente la vida y cualidad del Manasaputra en manifestación. La segunda hilera de pétalos de cualquier loto egoico es la única que nos da la clave de la naturaleza del Ángel solar, así como la hilera externa es -para la visión interna del Adepto- la clave del grado de evolución de la personalidad. Observando al loto egoico el vidente puede conocer la naturaleza de:
+   1. El yo personal, por la condición del triángulo atómico y de la hilera externa de pétalos.
+   2. El Yo superior , por el color y ordenamiento de la hilera central de pétalos, la cual mediante el ordenamiento de las vidas atómicas que forman los pétalos y la circulación de las corrientes de <pin lang="es">871</pin> fuerzas en los mismos, le permite conocer la "familia" a la que pertenece el Ángel solar.
+   3. La Mónada , a través de la hilera de pétalos internos, siéndole revelada en forma similar su etapa de percepción inferior.
+   4. El número del Rayo al que pertenece, siendo conocido por la cualidad de la "luz" que emana de la joya oculta.
+ 
+ En estos pétalos se hallan implicados grupos de vidas solares y de otra índole, y las corrientes de energía que provienen de ellas se enfocan a través de los pétalos. Esto es evidente para aquel que posee la clave. Es un hecho curioso que las corrientes de fuerza que forman los pétalos y <pin lang="en">1112</pin> están en constante flujo producen aparentemente "símbolos clave" dentro de la periferia de la rueda egoica, revelándose así a través de su actividad.
+
+3. Un tercer tipo de energía resultante de una afluencia de fuerza monádica o átmica, es la que -al finalizar la evolución- se hace sentir a través de la hilera de pétalos internos.
+4. Por lo tanto, cuando los pétalos se abren transmiten vida o energía proveniente de tres fuentes:
+
+ |     |             |                     |                          |
+ | --- | ----------- | ------------------- | ------------------------ |
+ | 1.  | Yo inferior | Pitri lunar         | Pétalos de Conocimiento. |
+ | 2.  | Ego         | Ángel solar         | Pétalos de Amor.         |
+ | 3.  | Mónada      | Padre en los Cielos | Pétalos de Sacrificio.   |
+
+ Entonces es posible sentir un tipo más elevado de energía, la energía del centro del cuerpo del Hombre celestial o Logos planetario, que utiliza la "Joya en el Loto" como punto focal.
+
+ En este resumen hemos tratado los principales tipos de energía que se manifiestan en el cuerpo causal o egoico. Otros tipos de influencia pueden también ser considerados en conexión con la hilera externa de pétalos.
+
+5. Tenemos la energía que llega directamente a los pétalos de conocimiento desde el átomo manásico permanente. Los átomos permanentes de la Tríada espiritual, así como los cuerpos que se construyen a su alrededor, atraen a ciertos grupos de vidas dévicas que hasta la fecha no han sido considerados. No son los pitris lunares, como comúnmente se comprende ese término, sino que tienen una conexión <pin lang="es">872</pin> directa con aquello que se llama "la luna cósmica", o con ese sistema solar agonizante que tiene la misma relación con nuestro sistema que la luna con la cadena terrestre. Esta "luna <pin lang="en">1113</pin> cósmica" transmite su energía al subplano atómico manásico por intermedio del planeta Saturno. Es una energía triple, existiendo una relación exotérica entre esta triple energía y los anillos de Saturno.
+
+ El Antiguo Comentario expresa esta verdad, relativa a un interesante grupo de hijos de manas, de la manera siguiente:
+
+ > Estos Hijos de la Mente se aferraron a la antigua y agonizante forma y rehusaron abandonar a su Madre. Prefirieron disolverse con ella, pero un hijo menor (Saturno) trató de rescatar a sus hermanos, y con ese fin construyó un triple puente entre lo viejo y lo nuevo. Este puente persiste y forma un sendero por donde es posible evadirse.
+ > 
+ > Algunos huyeron y vinieron a ayudar a los encarnantes Hijos de la Mente, que habían abandonado a la Madre por el Padre. Se tendió el puente sobre el abismo mayor, pero aún quedaba el abismo inferior, y los vivientes Hijos de la Mente deberán tender el puente.
+ > 
+ > (último párrafo se refiere a la construcción del antakarana.)
+
+ La energía transmitida desde el átomo manásico permanente de cada jiva encarnante, la unión con su reflejo, la energía de la unidad mental y la triple corriente de fuerza creada de esta manera en el plano mental, tienen su reflejo planetario en la relación que existe entre Saturno y otro esquema planetario, y los tres anillos que son anillos de energía y símbolos de una verdad interna.
+
+6. La energía también afluye a los pétalos de conocimiento desde el grupo egoico, o desde el conjunto de pétalos de conocimiento de los lotos que pertenecen al grupo afiliado a cualquier Ángel solar en particular. Anteriormente ya nos hemos ocupado de estos grupos.
+7. La energía es también transmitida a los pétalos por intermedio de grupos y emanaciones provenientes de esos esquemas planetarios y corrientes de fuerza que forman los pétalos externos de ese gran centro que es nuestro sistema solar y que, según se nos dice, es visto desde los planos superiores como un loto de doce pétalos. Estas corrientes <pin lang="en">1114</pin> no emanan de los siete planetas sagrados, sino de otros cuerpos planetarios dentro del "círculo no se pasa" solar. Las corrientes de fuerza de los planetas sagrados actúan sobre la hilera central de pétalos. Aquí hay un indicio <pin lang="es">873</pin> para el avanzado estudiante, y la clave para descifrar la naturaleza del aspecto inferior del Ángel solar.
+
+#### Los Pétalos de Amor Sabiduría.
+
 
 
 
