@@ -893,8 +893,34 @@ Cada parte del cuerpo causal es impulsada por un tipo de fuerza que emana de un 
 
 #### Los Pétalos de Amor Sabiduría.
 
+**Los Pétalos de Amor Sabiduría**. Las corrientes de energía que actúan sobre, y a través de esta segunda hilera de pétalos, son muy semejantes a las ya tratadas, pero se originan de diferentes grupos de vidas (lunar y solar).
 
+1. La forma inferior de energía, que llega a esta hilera, emana del yo inferior por intermedio del átomo astral permanente y del segundo pétalo de la hilera externa. Es energía astral transmutada y más poderosa que la energía análoga de la primera hilera, debido a la naturaleza innata del cuerpo astral y a que es acrecentada por la energía de la propia hilera externa Este factor produce un rápido progreso al finalizar el período evolutivo. Existen ciertas corrientes de fuerza en la evolución de la Mónada, que podría decirse, representan para ella la línea de menor resistencia, enumeradas específicamente desde la más inferior son:
+   1. Emanaciones del reino vegetal.
+   2. Energía astral.
+   3. Energía de la segunda hilera de pétalos.
+   4. Fuerza búdica.
+   5. Actividad del segundo Logos planetario o solar.
 
+ Esto, lógicamente, atañe solo a nuestro sistema solar, siendo el sistema de amor regenerador.
+
+2. Otra forma de energía influyente se origina en la hilera interna de pétalos, punto focal <pin lang="en">1115</pin> de fuerza para la mónada, considerada como atma. Debe destacarse que las corrientes de fuerza que forman los "pétalos de voluntad" tienen una actividad dinámica y (cuando éstos están activos) producen un desarrollo muy rápido. De los dos tipos de fuerza existente ésta constituye la interna; su mutua interacción provee el estímulo necesario y da como resultado la apertura del capullo y la revelación de la Joya.
+
+Los dos tipos de energía tienen su analogía con las ya enumeradas, pero sólo menciono una de ellas, la que llega hasta la segunda hilera de pétalos de amor por intermedio del átomo búdico permanente. La energía así originada es de un tipo peculiarmente interesante, siendo la energía básica de toda manifestación y la suma total de las fuerzas que forman el séptuple corazón del sol físico, estando situadas dentro de su protectora luminosidad. A su vez transmiten los impulsos vitales desde el corazón del Sol <pin lang="es">874</pin> central espiritual; tenemos así una cadena graduada y directa de energías transmisoras:
+
+1. El Corazón del Sol central espiritual.
+2. El triple corazón del Sol físico.
+3. Los devas búdicos que transmiten a:
+   1. a hilera central de pétalos,
+   2. el átomo astral permanente,
+   3. el centro del corazón dentro de la cabeza,
+   4. el centro cardíaco.
+
+Esta energía búdica es la suma total de la fuerza de vida de Vishnu o el Hijo, transmisor y representante de una Deidad cósmica aún mayor.
+
+Lo anterior sirve para demostrar la unicidad del ente más ínfimo con la gran Vida que le da forma, mostrando la belleza integral del esquema. La vida más grande del Señor de Amor cósmico palpita en grado infinitesimal <pin lang="en">1116</pin> en el corazón de Su más ínfimo reflejo, y por esta razón el átomo hombre puede también decir "yo también soy Dios; Su Vida es mía".
+
+#### Los Pétalos de Sacrificio.
 
 
 
