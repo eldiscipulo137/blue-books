@@ -1053,6 +1053,49 @@ Tales son los objetivos que tienen ante sí aquellos que recorren el sendero y e
 
 ### 2. El Movimiento Causa la Manifestación Periódica.
 
+Aquí debemos tener presente que estamos considerando el alineamiento sintético en conexión con el segundo aspecto, y tratando por lo tanto, con la actividad de esas formas de la manifestación divina que se están acercando a su objetivo, el cual puede definirse como la capacidad de vibrar sincrónicamente con la unidad mayor de la cual forma parte. Por lo tanto el estudiante debe considerarlo de siete maneras.
+
+Las primeras tres conciernen a la relación entre las unidades perfectas o casi perfectas de los tres reinos de la naturaleza con el alma grupal inmediata, y su ininterrumpida manifestación en cualquier reino particular.
+
+Cuarto, la relación que tiene el discípulo o el hombre en el sendero con su grupo inmediato, y las leyes que rigen su reaparición o encarnación física.
+
+Quinto, la relación que existe entre un Espíritu planetario y Su grupo de planetas, y los procesos de la oscuración del hombre o retiro de la manifestación en el plano físico.
+
+Sexto, la relación que existe entre los tres principales Espíritus planetarios o los tres aspectos mayores del Logos y sus manifestaciones.
+
+Séptimo, la relación existente entre la Vida animadora de un sistema solar y el grupo de constelaciones de las cuales forma parte, y Su manifestación periódica.
+
+Esto ya lo hemos tratado cuando estudiamos el tema de la encarnación y, anteriormente, cuando consideramos el pralaya u oscuración, haciéndolo entonces en forma general. Ahora podemos ocuparnos más específicamente de las actividades finales o formas <pin lang="es">887</pin> de movimiento de estos distintos conglomerados de vidas, y ver qué sucede durante las etapas finales de existencia consciente y de manifestación limitada. El tema <pin lang="en">1133</pin> es peculiarmente abstracto, particularmente en lo que atañe a los grupos elementales, pero podrían ponerse de manifiesto ciertos puntos interesantes dignos de un cuidadoso estudio. Primeramente, consideraremos los tres reinos inferiores y luego los métodos y actividades desarrollados por un ser humano, un Logos planetario y un Logos solar.
+
+La aparición y desaparición del cualquier Vida manifestada está íntimamente relacionada con la posesión, el desarrollo evolutivo y la desintegración final de átomo permanente. Los átomos permanentes, tal como se comprende generalmente el término, son propiedad exclusiva de esas vidas que han adquirido autoconciencia o individualidad y relativa permanencia en tiempo y espacio. El átomo permanente puede ser visto como el punto focal de manifestación en cualquier plano particular. Sirve de ancla, si puedo emplear este término, para cualquier individuo en alguna esfera particular, y esto es aplicable a los tres grandes grupos de Vidas autoconscientes:
+
+1. Los Jivas encarnados o seres humanos.
+2. El Logos planetario.
+3. El Logos solar.
+
+Debemos recordar aquí que todos los subplanos atómicos de los siete planos forman las siete espirillas del átomo permanente logoico, porque éste tiene una estrecha relación con el tema en consideración.
+
+Por lo tanto, las unidades en los tres reinos inferiores no poseen átomos permanentes, pero contribuyen a la formación de esos átomos en los reinos superiores. Podrían hacerse aquí algunas amplias generalizaciones, aun que no debe dárseles una interpretación demasiado textual o personal.
+
+Primero, puede decirse que el reino inferior o reino mineral, proporciona ese algo vital que es la esencia del átomo físico permanente del ser humano; proporciona esa energía, base negativa de la <pin lang="en">1134</pin> afluencia de energía positiva, que puede verse entrar por la depresión superior del átomo físico permanente.
+
+Segundo, el reino vegetal proporciona similarmente la energía negativa para el átomo astral permanente del hombre y, tercero, el reino animal proporciona la fuerza negativa que, cuando es energetizada por la positiva, se ve como la unidad mental. La energía proporcionada en los tres reinos inferiores está formada por la vibración más elevada que ese reino es capaz de producir, y sirve <pin lang="es">888</pin> de vínculo entre el hombre y sus diversas envolturas, ligadas a cualquiera de los reinos inferiores:
+
+|                     |                         |                |
+| ------------------- | ----------------------- | -------------- |
+| a. El cuerpo mental | unidad mental           | reino animal.  |
+| b. El cuerpo astral | átomo astral permanente | reino vegetal. |
+| c. El cuerpo físico | átomo físico permanente | reino mineral. |
+
+En el hombre estos tres tipos de energía se unen y sintetizan, y cuando se alcanza la perfección de la personalidad y el alineamiento de los vehículos, tenemos:
+
+|                                           |              |
+| ----------------------------------------- | ------------ |
+| a. La energía de la unidad mental         | positiva.    |
+| b. La energía del átomo astral permanente | equilibrada. |
+| c. La energía del átomo físico permanente | negativa.    |
+
+Entonces el hombre se vincula estrechamente con los tres reinos inferiores porque éstos le proporcionan lo mejor que poseen y literalmente le han dado sus átomos permanentes, permitiéndole manifestarse debido a su actividad. Los tres grupos anteriores pueden también estudiarse desde el punto de vista de los tres Gunas. [^17] <pin lang="en">1135</pin>
 
 
 
@@ -1165,3 +1208,7 @@ Tales son los objetivos que tienen ante sí aquellos que recorren el sendero y e
 [^15]: La Biblia. Mal. IV, 2.
 
 [^16]: El centro alta mayor, ubicado en el lugar donde el canal de la columna vertebral se une al cráneo; está situado en la parte baja y posterior de la cabeza. y se compone del tipo de materia etérica más inferior, materia del cuarto éter, mientras que los centros etéricos de los discípulos están compuestos de materia de los éteres superiores.
+
+[^17]: De aquí que a todo Dios manifestado se lo denomine Trinidad. La unión de los tres Aspectos o fases de manifestación, en sus puntos externos de contacto con el círculo, da el Triángulo fundamental de contacto con la materia, la cual con los tres Triángulos formados con las líneas trazadas por el Punto, producen el divino Tetractys a veces llamado el Cuaternario cósmico, los tres Aspectos divinos en contacto con la materia, preparados para crear. Éstos, en su totalidad, son la Superalma del cosmos que va a existir
+
+     La Forma. Podemos observar primeramente los efectos de dichos Aspectos cuando la materia responde a ellos. Por supuesto no se deben al Logos de un sistema sino que son las analogías en la materia universal de los Aspectos del yo universal. El Aspecto Bienaventuranza o Voluntad, impone a la materia la cualidad de Inercia -Tamas, el poder de resistir, estabilidad, quietud. El aspecto Actividad hace que la materia responda a la acción - Rajas, movilidad. El aspecto Sabiduría le otroga Ritmo-Sattva, vibración armónica. Mediante la ayuda de la materia así preparada, los Aspectos de la Conciencia logoica pueden manifestarse como Seres. *Estudio sobre la Conciencia, por Annie Besant*.
