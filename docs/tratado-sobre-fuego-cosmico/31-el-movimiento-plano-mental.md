@@ -1097,6 +1097,103 @@ En el hombre estos tres tipos de energía se unen y sintetizan, y cuando se alca
 
 Entonces el hombre se vincula estrechamente con los tres reinos inferiores porque éstos le proporcionan lo mejor que poseen y literalmente le han dado sus átomos permanentes, permitiéndole manifestarse debido a su actividad. Los tres grupos anteriores pueden también estudiarse desde el punto de vista de los tres Gunas. [^17] <pin lang="en">1135</pin>
 
+|           |           |               |                          |
+| --------- | --------- | ------------- | ------------------------ |
+| 1. Tamas  | inercia   | reino mineral | átomo físico permanente. |
+| 2. Rajas  | actividad | reino vegetal | átomo astral permanente. |
+| 3. Sattva | ritmo     | reino animal  | unidad mental.           |
+
+Éstos deben ser considerados sólo desde el punto de vista de la personalidad, el yo inferior o no-yo. Para ilustrar esta idea, podría señalarse que, cuando el cuerpo animal del hombre prehumano se ajustó rítmicamente y obtuvo su vibración más elevada o sáttvica, entonces fue posible la individualización y el verdadero ser humano se manifestó. <pin lang="es">889</pin>
+
+Cada reino es positivo para el reino inmediato inferior, y entre ellos se encuentra ese período de manifestación que une a ambos y conecta lo positivo con lo negativo. El tipo de más intensa actividad o rajas, en el reino mineral se encuentra en esas formas de vida que no son ni minerales ni vegetales, pero que unen a ambas. Similarmente en el reino vegetal el período de Rajas aparece en su más plena expresión justamente antes de que la actividad se haga rítmica y el vegetal se fusione con el animal. En el reino animal se observa lo mismo en los animales que se individualizan, pasando del alma grupal a la identidad separada. Estos tipos de actividad deben ser considerados como actividad física para el mineral, actividad sensoria para el vegetal y actividad mental rudimentaria para el animal.
+
+Cuando esta triple actividad es alcanzada, puede observarse que el cuerpo físico denso del Logos solar o planetario, está plenamente desarrollado y puede hacerse entonces contacto <pin lang="en">1136</pin> consciente con el cuerpo etérico o vital. Este contacto produce al hombre, porque Espíritu (tal como el hombre comprende el término) después de todo, únicamente es energía, vitalidad o vida esencial del Logos planetario o solar. Su analogía en el hombre es prana. Se llegará a comprender esto si el hombre se da cuenta de que todos los planos de nuestro sistema solar son sólo los siete subplanos del plano físico cósmico. Su comprensión traerá la unión de la ciencia y la religión, pues lo que el científico denomina energía, el religioso lo llama Dios, siendo ambos lo mismo, el propósito manifestado en materia física de esa gran Entidad externa al sistema. La naturaleza constituye la aparición del cuerpo físico del Logos, y las leyes de la naturaleza rigen los procesos naturales de ese cuerpo. La Vida de Dios, Su energía y vitalidad se encuentran en cada átomo manifestado; Su esencia mora en todas las formas. A esto lo llamamos Espíritu, aunque Él en Sí es distinto a esas formas, así como el hombre sabe que él no es sus cuerpos. Sabe que es voluntad y propósito, y a medida que evoluciona, ese propósito y voluntad se hacen más conscientemente definidos. Lo mismo le ocurre al Logos planetario y al Logos solar. Habitan dentro, pero se encuentran fuera del esquema planetario del sistema solar.
+
+:::note Recuerda
+
+Espíritu (tal como el hombre comprende el término) después de todo, únicamente es energía, vitalidad o vida esencial del Logos planetario o solar. Su analogía en el hombre es prana. Se llegará a comprender esto si el hombre se da cuenta de que todos los planos de nuestro sistema solar son sólo los siete subplanos del plano físico cósmico. Su comprensión traerá la unión de la ciencia y la religión, pues lo que el científico denomina energía, el religioso lo llama Dios, siendo ambos lo mismo, el propósito manifestado en materia física de esa gran Entidad externa al sistema.
+
+:::
+
+Es útil recordar que en los tres reinos inferiores, la manifestación o aparición en el plano físico es siempre manifestación grupal y no la aparición de unidades separadas. Cada alma grupal, como se las llama, está dividida en siete partes que aparecen en cada una de las siete razas de un período mundial, y existe una interesante diferencia entre ellas y los entes humanos. Cuando alguna parte de las siete divisiones del alma grupal ha desencarnado, se encuentran en el plano astral, aunque el alma grupal <pin lang="es">890</pin> materna se encuentre en el plano mental. Cuando han desencarnado los entes humanos del cuarto reino, pasan al mental a través del astral y descienden nuevamente a la encarnación desde niveles mentales. <pin lang="en">1137</pin> Por lo tanto cada alma grupal forma subjetivamente un triángulo de fuerza con el punto superior en el plano mental, el inferior en los niveles etéricos del plano físico y el otro en el plano astral. El tercer punto para el alma grupal mineral se encuentra en el segundo subplano del astral, el vegetal en el tercero y el animal en el cuarto. Debido a que el centro de fuerza del alma grupal animal se encuentra en el cuarto subplano del plano astral es posible hacer oportunamente la transferencia de ese reino al cuarto.
+
+Ciertas leyes rigen la aparición periódica de los tres reinos de la naturaleza: las leyes de la involución, las de los reinos elementales y las de los tres grandes grupos que contienen los gérmenes y semillas de todas las formas manifestadas. Debemos considerar los siete grupos siguientes de la manifestación logoica:
+
+1.2.3. Tres grupos de existencias superhumanas:
+   1. El grupo que forma el aspecto Padre sobre el cual poco puede decirse aquí.
+   2. El grupo de los siete Logos planetarios.
+   3. El grupo de los siete rajas devas, o sea la vida de cada plano físico.
+
+.4. Un grupo de vidas solares que constituyen los manasaputras o el hombre.
+
+5.6.7. Tres grupos de vidas elementales, que constituyen los tres reinos elementales involutivos.
+
+Estos tres grupos inferiores logran concretarse y entrar en el arco ascendente a través de los tres reinos inferiores. El cuarto grupo, en ciertos aspectos, es el más importante del actual ciclo, pues extrae algo de los otros seis grupos y, en consecuencia, constituye la síntesis de energías extraídas de cada uno y su manifestación. Los tres grupos superiores están estrechamente ligados, y hasta que el hombre no haya pasado el período de existencia, donde es controlado por <pin lang="en">1138</pin> aquello que ha extraído de los tres reinos inferiores, no puede comprender la naturaleza y el propósito de los tres superiores. Podemos expresar el tema de la siguiente manera:
+
+1. Los tres grupos superiores son sáttvicos.
+2. Los tres grupos inferiores son tamásicos.
+3. El cuarto grupo, el humano, es rajásico.
+
+Más aún, los tres grupos superiores están energetizados por tres corrientes de fuerza que entran a través de las tres espirillas del átomo logoico permanente. Los tres grupos inferiores están <pin lang="es">891</pin> energetizados por la energía que penetra a través de las tres espirillas inferiores (los tres planos inferiores) y ellas energetizan al cuerpo denso logoico, siendo vitalizadas en el sistema solar anterior y no constituyen, en forma alguna, factores de control en la existencia logoica. El cuarto grupo, el humano, es energetizado por la fuerza de la cuarta espirilla a la que damos el nombre de energía búdica, teniendo el problema de crear ciertas condiciones mediante las cuales las vibraciones búdicas puedan dominar a las tres inferiores. Esta imposición finalmente libera a los entes humanos y les permite pasar a un grupo superior. Las almas grupales elementales encuentran su analogía en lo superior -primeramente, en el reino humano en los tres principales grupos de Egos, en quienes predominan los tres tipos de energía; luego en los tres grupos planetarios principales o mayores y, finalmente, en los tres aspectos.
+
+|                 |               |          |                   |          |                       |
+| --------------- | ------------- | -------- | ----------------- | -------- | --------------------- |
+| Grupo Elemental | reino animal  | Sáttvico | Logos solar.      | Urano.   | Aspecto Padre         |
+| Grupo Elemental | reino vegetal | Rajásico | Logos planetario. | Neptuno  | Aspecto Hijo          |
+| Grupo Elemental | reino mineral | Tamásico | Devas del plano.  | Saturno. | Madre, aspecto Brahma |
+
+<p><pin lang="en">1139</pin> El cuarto grupo o humano, une las tres vidas. La manifestación periódica de los tres grupos elementales (por intermedio de los tres reinos inferiores) está regida, por consiguiente, por factores ocultos en la naturaleza de esa gran vibración que llamamos tamásica o ritmo pesado. Es la vibración de Brahma, el tercer aspecto, la madre o aspecto materia. Por lo tanto su aparición es de manifestación muy lenta; las siete vibraciones subsidiarias traen a la manifestación en forma lenta y alternada, cualquiera de los siete grupos de cada alma grupal. No puede decirse cuáles son los ciclos, sólo pueden mencionarse dos cosas: primero, que la aparición de estos grupos como unidades en manifestación está controlada por tres factores:</p>
+
+1. La luna, porque ellos son los numerosos padres lunares.
+2. El rayo en manifestación en cualquier época.
+3. El karma de la Vida que da forma a cualquier reino.
+
+Segundo, el karma y la historia de la vida de la entidad planetaria. Duerme y despierta; es la encarnación de tamas, y a medida que progresa y evoluciona también lo hacen los reinos inferiores.
+
+Los pitris lunares son para la entidad planetaria lo que los tres centros mayores para el hombre o el Logos. Los pitris lunares que contribuyen a la forma humana son (para la entidad planetaria) la analogía del centro coronario. Los padres de las formas <pin lang="es">892</pin> vegetales corresponden a su centro cardiaco, mientras que los pitris del reino mineral son similares al centro laríngeo. Esto es muy confuso, pero contiene indicios de mucho valor.
+
+No es posible dar mayor información respecto a la aparición periódica de las formas de vida subhumana. El tema es demasiado oscuro, y sus detalles demasiado vastos. Hasta que el estudiante no se haya capacitado para comprender los escritos <pin lang="en">1140</pin> simbólicos o jeroglíficos de los adeptos, [^18] le resulta imposible captar el tema. Mucha enseñanza al respecto Se encuentran en los registros del Manu, porque concierne principalmente a las etapas iniciales de la construcción de la forma. Puede decirse que la aparición de cualquier vida en manifestación se debe a la actividad primaria por parte de alguna Entidad, cuya actividad es en gran parte la <pin lang="es">893</pin> expresión del primer Rayo. Esto concierne a la manifestación periódica de la vida o vidas de cualquier ronda, como así también a la existencia efímera de una libélula; se relaciona con la forma a través de la cual evoluciona lo que llamamos raza y se ocupa de la minúscula vida de un individuo en esa raza. Las mismas leyes rigen todo, aunque la respuesta a la ley puede ser relativa y gradual. Esta ley tiene el nombre genérico de la "Ley de Ciclos", y se expresa en términos de tiempo; <pin lang="en">1141</pin> pero el secreto de los ciclos no puede darse todavía pues impartiría al intuitivo demasiada información peligrosa. El conocimiento de esta ley, en lo que concierne a las rondas, razas, su brazas, grupos (evolutivos e involutivos) e individuos (humanos y superhumanos), permite a los Señores del Karma y a los Adeptos de la Buena Ley manipular fuerza o energía y llevar todo lo que existe a su triunfante culminación. En conexión con ello el estudiante puede obtener mucha iluminación sobre la difícil cuestión de la fuerza si recuerda que toda forma en cada reino, en el arco descendente y ascendente, es en sí una fuerza negativa impulsada a la actividad por una fuerza positiva, manifestándose como una combinación de ambas. Las diferencias radican en el hecho de que algunas formas son positivo-negativas, otras negativo-positivas, mientras que otras están en un punto de equilibrio. Esto incluye todas las etapas intermedias. Los Constructores del cosmos actúan bajo la ley cíclica conscientemente, y utilizan la acumulación de estas fuerzas en cualquier reino, grupo o unidad, para llevar a cabo la consumación del plan. Sería de gran interés para los hombres poder ver e interpretar algunos de los registros jerárquicos, porque en ellos, hombres y ángeles, minerales y elementos, animales y vegetales, reinos y grupos, Dioses y hormigas están especificados en términos de fórmulas de energía, y revisando estos archivos puede conocerse, en cualquier momento, el aumento aproximado de la vibración en cualquier tipo de forma. Esto también puede expresarse en términos de gunas; el discípulo hallará además (cuando se le permita tener acceso a los archivos) que él conjuntamente con toda expresión de vida divina, están descritos por una triple fórmula que transmite a la mente del iniciado las proporciones de tamas o inercia, rajas o actividad, sattva o ritmo de cualquiera de las formas. En consecuencia, a través de analogías, imparte conocimiento relativo a las realizaciones pasadas, la oportunidad presente y el futuro <pin lang="en">1142</pin> inmediato de cualquier ente o vida encarnada, manifestándose en cualquiera de los tres aspectos.
+
+Otras series de registros en los archivos contienen datos -bajo una fórmula diferente de lo que esotéricamente se denomina "contenido calórico" de cualquier ente, la "luz radiante" de cualquier <pin lang="es">894</pin> forma y la "fuerza magnética" de cada vida. Por medio de este conocimiento los Lipika controlan la aparición y tránsito de toda Vida divina, superhumana, solar y humana, y por el estudio de esa fórmula que constituye la fórmula básica para un sistema solar, se controla la aparición en el plano físico de un Logos solar y se determina la duración de un pralaya cósmico. No debe olvidarse que los Señores Lipika del sistema solar tienen Sus prototipos cósmicos y poseen a su vez débiles y oscuros reflejos humanos en los grandes científicos astrónomos que se esfuerzan por comprobar hechos respecto a los cuerpos celestes, dándose cuenta subconscientemente de la existencia de fórmulas cósmicas que imparten información respecto a la gravedad específica, constitución, irradiación, atracción magnética, calor y luz de cualquier sol, sistema solar o constelación. Muchos de ellos, en épocas futuras y remotas, llegarán a la plena comprensión y tendrán bajo su custodia las fórmulas, perteneciendo así a las filas de los Lipika. Es una línea peculiar que requiere ciclos de cuidadoso entrenamiento en las matemáticas divinas.
+
+Los Señores Lipika que controlan la manifestación periódica de la vida pueden clasificarse, hablando en general, en los grupos siguientes, los cuales sería interesante observar:
+
+1. Tres Señores del Karma cósmico, o foráneos al sistema, actúan desde un centro en Sirio por medio de tres representantes. Forman un grupo alrededor del Logos solar, y para Él tienen una categoría análoga a la de los tres Budas de Actividad que se hallan alrededor de Sanat Kumara. <pin lang="en">1143</pin>
+2. Tres Señores Lipika agentes kármicos que actúan por medio de tres aspectos.
+3. Nueve Lipika, suma total de los agentes de la Ley que actúan a través de lo que la cábala llama los nueve Sephiroth.
+4. Siete agentes que presiden el karma de cada uno de los siete esquemas.
+
+Los cuatro grupos corresponden, en la manifestación, al Inmanifestado, expresándose a través de los triples aspectos; regidos por Ellos trabajan una infinidad de agentes menores. Estos también pueden clasificarse más o menos; cada uno de los grupos enumerados se halla en todo esquema y emanación de rayo:
+
+1. Los Señores Lipika de un esquema los cuales, por medio de la manipulación de fuerzas, hacen posible que un Logos planetario encarne de acuerdo a la Ley y resuelva Su problema cíclico. <pin lang="es">895</pin>
+2. El grupo (regido por el primero) que controla el destino de una cadena
+3. El grupo rector de la energía de un globo.
+4. Agentes de todo tipo que se ocupan de ajustar el karma, que incide sobre la manifestación periódica de formas tales como
+   1. una ronda, siete en total,
+   2. un reino de la naturaleza, siete en total,
+   3. el reino humano,
+   4. una raza raíz, una subraza y una ramificación de raza,
+   5. una nación, familia, grupo y sus analogías en todos los reinos.
+   6. un plano,
+   7. el mundo de los reptiles e insectos,
+   8. la evolución de las aves,
+   9. los devas,
+   10. entes humanos, grupos egoicos, vidas monádicas, <pin lang="en">1144</pin> y miríadas de otras formas, objetivas y subjetivas, planetarias e interplanetarias, en conexión con el Sol y con los planetoides.
+
+Todos trabajan con emanaciones de energías y unidades de fuerza bajo la ley cíclica, y todo tiene el mismo objetivo -producir la actividad perfecta, la intensificación de calor y la radiante luz magnética como expresión de la voluntad o el propósito de cada vida encarnada.
+
+La periodicidad de la manifestación consiste en la aparición cíclica de ciertas formas de energía específica, y esto es verdad ya sea que el hombre hable de un sistema solar, de un Rayo, de la aparición de un planeta en el espacio o del fenómeno del nacimiento humano. Ciertos factores extraños a cualquier unidad de energía, en consideración, afectarán inevitablemente su aparición y actuarán como agentes desviadores o rectores. La Ley de Ciclos ha sido considerada siempre como una de las más difíciles que el hombre pueda dominar y se ha dicho acertadamente que cuando un hombre ha dominado sus técnicas y puede comprender sus métodos de computación del tiempo, ha logrado la iniciación. Sus complejidades son tan numerosas y están tan ligadas a la ley mayor, la de causa y efecto, que prácticamente todo el posible campo de conocimiento es superado por su intermedio. Comprender esta ley implica capacidad para:
+
+1. Tratar las fórmulas matemáticas superiores del sistema solar.
+2. Computar la relación que existe entre una unidad de cualquier grado y el todo mayor en cuya vibración esa unidad es impulsada a un periódico despliegue. <pin lang="es">896</pin>
+3. Leer los archivos akáshicos de un sistema planetario.
+4. Juzgar los efectos kármicos en tiempo y espacio.
+5. Establecer la diferencia entre las cuatro corrientes de efectos kármicos, respecto a los cuatro reinos de la naturaleza.
+6. Establecer la distinción entre las tres corrientes principales de energía <pin lang="en">1145</pin> -las unidades de inercia, movilidad y ritmo-. y percibir la nota de cada unidad y el lugar que le corresponde dentro del grupo de puntos de transición. Estas últimas unidades se hallan en la cumbre de una de las tres ondas, listas, por lo tanto, para ser transferidas a una onda de capacidad vibratoria superior.
+7. Entrar en el Aula de los Archivos y leer allí los documentos peculiares que tratan, en forma cuádruple, de la manifestación planetaria. Concierne al Logos planetario, y trata de la transferencia de energía desde la cadena lunar, de la transmisión de energía a otro esquema planetario, de la interacción entre la Jerarquía humana (el cuarto reino) y la gran Vida que da forma al reino animal.
+
+Cuando un hombre puede realizar todo esto y ha adquirido el derecho de conocer aquello que produce el fenómeno de la manifestación, tiene también el derecho de entrar en los concilios de la Jerarquía planetaria y dirigir él mismo las corrientes de energía a través y fuera del planeta. Puede obtenerse alguna idea de la complejidad que rige la manifestación periódica de un ser humano al considerar las fuerzas que traen a la manifestación a los entes humanos, las cuales producen la individualización; esto constituye, después de todo, la aparición de una tercer corriente de energía en conjunción con otra dos. El hombre es el punto de reunión de tres corrientes de fuerza, preponderando una u otra de acuerdo a su tipo particular.
+
 
 
 [^1]: D. S. I. 219, 242-243,287.
@@ -1212,3 +1309,30 @@ Entonces el hombre se vincula estrechamente con los tres reinos inferiores porqu
 [^17]: De aquí que a todo Dios manifestado se lo denomine Trinidad. La unión de los tres Aspectos o fases de manifestación, en sus puntos externos de contacto con el círculo, da el Triángulo fundamental de contacto con la materia, la cual con los tres Triángulos formados con las líneas trazadas por el Punto, producen el divino Tetractys a veces llamado el Cuaternario cósmico, los tres Aspectos divinos en contacto con la materia, preparados para crear. Éstos, en su totalidad, son la Superalma del cosmos que va a existir
 
      La Forma. Podemos observar primeramente los efectos de dichos Aspectos cuando la materia responde a ellos. Por supuesto no se deben al Logos de un sistema sino que son las analogías en la materia universal de los Aspectos del yo universal. El Aspecto Bienaventuranza o Voluntad, impone a la materia la cualidad de Inercia -Tamas, el poder de resistir, estabilidad, quietud. El aspecto Actividad hace que la materia responda a la acción - Rajas, movilidad. El aspecto Sabiduría le otroga Ritmo-Sattva, vibración armónica. Mediante la ayuda de la materia así preparada, los Aspectos de la Conciencia logoica pueden manifestarse como Seres. *Estudio sobre la Conciencia, por Annie Besant*.
+
+[^18]: Símbolos
+
+    "Un símbolo oculta o revela." Carlyle.
+
+    1. Los símbolos son para:
+       1. Los poco evolucionados. Enseñan grandes verdades en forma simple.
+       2. El grueso de la humanidad. Preservan la verdad intacta y personifican hechos cósmicos.
+       3. Los discípulos de los Maestros. Desarrollan la intuición.
+    2. Los libros simbólicos de los archivos del Maestro son utilizados para instruir. Estos se interpretan:
+       1. Por su color.
+       2. Por su posición, es decir, arriba, sobre o abajo de una línea.
+       3. Por su conexión entre sí.
+       4. Por su clave. Una página puede leerse de cuatro maneras:
+          1. De arriba hacia abajo.....involución
+          2. De abajo hacia arriba.....evolución
+          3. De derecha a izquierda.....ciclos mayores, etc
+          4. De izquierda a derecha.....ciclos menores.
+    3. Las tres claves:
+       1. Interpretación cósmica. Los símbolos que representan sucesos cósmicos, es decir, Oscuridad, Luz, Cruz, el Triángulo.
+       2. Interpretación del sistema. Trata de la evolución del sistema y su contenido.
+       3. Interpretación humana. Trata del hombre. La cruz de la humanidad. El candelabro de siete brazos.
+    4. Cuatro clases de símbolos:
+       1. Símbolos de objetos externos...............cosas del plano físico.
+       2. Símbolos de la naturaleza emocional..cosas del plano astral, figuras
+       3. Símbolismo numérico...................... mental inferior, el hombre se utilizó a si mismo para contar.
+       4. Simbolismo geométrico................... simbolismo abstracto, mental superior.
