@@ -1194,7 +1194,191 @@ La periodicidad de la manifestación consiste en la aparición cíclica de ciert
 
 Cuando un hombre puede realizar todo esto y ha adquirido el derecho de conocer aquello que produce el fenómeno de la manifestación, tiene también el derecho de entrar en los concilios de la Jerarquía planetaria y dirigir él mismo las corrientes de energía a través y fuera del planeta. Puede obtenerse alguna idea de la complejidad que rige la manifestación periódica de un ser humano al considerar las fuerzas que traen a la manifestación a los entes humanos, las cuales producen la individualización; esto constituye, después de todo, la aparición de una tercer corriente de energía en conjunción con otra dos. El hombre es el punto de reunión de tres corrientes de fuerza, preponderando una u otra de acuerdo a su tipo particular.
 
+Enumeremos brevemente estos factores, obteniendo así alguna idea de la complejidad del tema:
 
+El primero y supremo factor es el rayo en el que se encuentra determinado ente humano. Esto significa que existen siete corrientes de fuerza especializada, cada una con su peculiar cualidad, tipo y ritmo. Aunque el Rayo de la Mónada es su <pin lang="en">1146</pin> principal factor calificativo, el asunto se complica más porque tenemos también que considerar los dos Rayos subsidiarios, el del Ego y el de la personalidad.
+
+Segundo, debe tenerse en cuenta que los entes humanos, actualmente en este planeta, caen lógicamente en dos grandes grupos: aquellos que alcanzaron la individualización o se convirtieron en "entes de energía autodirigida" en la luna, y los que lograron la <pin lang="es">897</pin> autoconciencia en la tierra. Existe gran diferencia entre ambos grupos, pues las unidades de la cadena lunar se caracterizan no sólo porque son más evolucionadas, debido al período de evolución más extenso, sino por esa gran cualidad de actividad inteligente, pues (como se ha de suponer) en la tercera cadena o lunar, el tercer Rayo era un factor dominante. En esta cuarta cadena domina el cuaternario o la síntesis de los tres que producen el cuarto, y ésta es una de las razones por la que poseen una naturaleza tan intensamente materialista quienes han ingresado al reino humano en este planeta. Las diferencias entre ambos grupos son muy grandes, y uno de los misterios que se halla detrás de las principales divisiones de la humanidad -dirigentes y dirigidos, capitalistas y trabajadores, gobernantes y gobernados- se encuentra justamente allí. Ningún sistema de reforma sociológica podrá desarrollarse con éxito sin la debida consideración de este importante hecho. Podrían enumerarse otros aspectos característicos, pero a esta altura sólo servirían para complicar el tema.
+
+Un tercer factor de diferenciación para los grupos de entes humanos que alcanzaron la autoconciencia en nuestro planeta se oculta en los métodos empleados por los Señores de la Llama en esa época. Según se dice, emplearon tres métodos.
+
+Primero, Ellos mismos tomaron cuerpo, energetizando así ciertas formas superiores del reino animal, aparecieron como hombres e iniciaron así un grupo particular. Sus descendientes pueden verse en los especímenes <pin lang="en">1147</pin> más elevados de nuestra actual humanidad. Sin embargo, aún hoy no están tan avanzados como los grupos de entes provenientes de la cadena lunar que aparecieron en los días atlantes. Su herencia es peculiar.
+
+Implantaron un germen mental en el grupo secundario de hombre-animales que estaban preparados para individualizarse. Este grupo, durante mucho tiempo, fue incapaz de expresarse; estaba cuidado por los Señores de la Llama, y casi resultó un fracaso. Sin embargo, en la época en que la última subraza de la raza raíz Lemuria estaba en su apogeo, se pusieron repentinamente al frente de la civilización y justificaron el esfuerzo jerárquico.
+
+Tercero, fomentaron el germen del instinto en ciertos grupos de hombres-animales hasta que floreció la mente. Nunca debe olvidarse que los hombres tienen dentro de sí (fuera de todo estímulo extraño) la capacidad de llegar a obtener la plena autoconciencia.
+
+Estos métodos nos llevan al cuarto factor, el de los tres tipos de movimiento que afecta poderosamente a los jivas encarnantes.
+
+Los Hijos de la Mente caracterizados por las tres cualidades de la materia, como se explicó anteriormente, son denominados genéricamente: <pin lang="es">898</pin>
+
+1. Los Hijos del ritmo sáttvico.
+2. Los Hijos de la movilidad.
+3. Los Hijos de la inercia.
+
+Estas cualidades caracterizan a los tres Rayos mayores y a las tres personas de la Deidad, siendo cualidades de la conciencia -materialista, inteligente y divina. Son las características que predominan en las cadenas, de las cuales la tierra es una.
+
+##### Esquema Planetario Terrestre <pin lang="en">1148</pin>
+
+|                |                 |
+| -------------- | --------------- |
+| Primera Cadena | Arquetípica.    |
+| Segunda Cadena | Ritmo sáttvico. |
+| 3ra Cadena     | Movilidad.      |
+| Cuarta Cadena  | Inercia.        |
+| Quinta Cadena  | Movilidad.      |
+| Sexta Cadena   | Ritmo sáttvico. |
+| Séptima Cadena | Perfección.     |
+
+Los factores considerados, que afectan a los diferentes entes encarnantes, tienen un efecto vital en su evolución cíclica; el rayo y los tres tipos principales producen la aparición periódica variable. En los libros de ocultismo se han hecho ciertas afirmaciones respecto a la variabilidad del tiempo transcurrido entre encarnaciones. Tales afirmaciones son en su mayoría inexactas, pues no tienen en cuenta la diferencia de Rayo ni permiten hacer cálculos sobre si el ente humano involucrado es una unidad de inercia, un punto sáttvico o una entidad rajásica. Ninguna regla fija ni rígida puede imponerse al público en esta época, aunque tales reglas existen y son regidas por siete fórmulas diferentes para los tres tipos principales. Dentro de esta séptuple diferenciación existen muchas menores; el estudiante avezado se abstiene de hacer aseveraciones dogmáticas sobre este tema tan peculiar y difícil. Aquí sólo se ha tocado la superficie. Debe recordarse que en las primitivas etapas de la encarnación, el ente estaba regido principalmente por la aparición grupal y venía a la encarnación conjuntamente con su grupo.
+
+A medida que transcurre el tiempo y su propia voluntad o propósito son más definidos, a veces se verá forzado a manifestarse independientemente de su grupo; también lo harán otros entes que pertenecen a otros grupos, lo cual conduce a la aparente confusión en detrimento de los cálculos superficiales del estudiante insustancial. Cuando esto sucede el ente en cuestión ha transferido su historial a otro registro en los archivos jerárquicos, y se convierte en lo que ocultamente se denomina "un punto de fuego autodirigido". Entonces posee una fuerte individualidad, totalmente <pin lang="es">899</pin> auto centrada, sin ningún <pin lang="en">1149</pin> sentido grupal, excepto las afiliaciones terrestres a las que se adhiere por instinto de autoprotección y bienestar personal. En esta etapa permanece durante un vasto período de tiempo, teniendo ante así la tarea de dominar una etapa posterior en la cual retorna al primitivo conocimiento del grupo en una vuelta más elevada de la espiral.
+
+Las reglas que rigen la encarnación del hombre común ya han sido consideradas, habiéndose dado mucha información en este tratado y también en el libro Cartas sobre Meditación Ocultista que, si son cotejadas, proporcionarán suficiente material de estudio durante mucho tiempo. Poco se ha dado respecto a las encarnaciones de los discípulos y a los métodos involucrados en las etapas posteriores de evolución.
+
+Debe tenerse presente que (para un discípulo) el alineamiento directo con el Ego, vía los centros y el cerebro físico, es la meta de su vida de meditación y disciplina. Esto se hace a fin de que el Dios interno pueda actuar con plena conciencia y controlar plenamente el plano físico. Así se ayudará a la humanidad y se fomentarán los asuntos grupales. Nuevamente debe recordarse que las fundamentales Leyes de Rayo y el tipo particular del discípulo determinan preeminentemente su aparición, aunque comienzan a imperar ciertas fuerzas que podrían tratarse aquí.
+
+:::note Recuerda
+
+Debe tenerse presente que (para un discípulo) el alineamiento directo con el Ego, vía los centros y el cerebro físico, es la meta de su vida de meditación y disciplina.
+
+:::
+
+Los factores que rigen la venida a la encarnación de un discípulo son los siguientes:
+
+Primero, su deseo de eliminar karma rápidamente a fin de librarse para prestar servicio. El Ego plasma este deseo, en el discípulo, durante la encarnación, eliminando así cualquier deseo por continuar en la bienaventuranza del devachán o trabajar en el plano astral. Por lo tanto, el objetivo del discípulo después de la muerte es desembarazarse de sus cuerpos sutiles y adquirir otros nuevos. No desea tener un período de descanso, y como el deseo es el factor que rige este sistema de deseos y particularmente este esquema planetario, si no hay deseo no existe incentivo para la realización. <pin lang="en">1150</pin> Entonces el hombre se ausenta del plano físico por breve tiempo y es impelido por su Ego a tomar un cuerpo físico con gran rapidez.
+
+Segundo, su deseo de realizar alguna obra de servicio dirigido por su Maestro. Esto implicará algunos ajustes, y ocasionalmente la temporaria detención de su karma. Dichos ajustes son hechos por el Maestro con el consentimiento del discípulo, siendo únicamente posibles en el caso de un discípulo aceptado de cierta categoría. Ello no significa que el karma se ha dejado de lado, sino que ciertas fuerzas son mantenidas en suspenso hasta haber cumplido un determinado trabajo grupal.
+
+<p><pin lang="es">900</pin> Tercero, un discípulo volverá a la encarnación ocasionalmente a fin de adaptarse al plan de un discípulo más avanzado que él. Cuando un mensajero de la gran Logia necesita un vehículo para expresarse y no puede usar un cuerpo físico debido a la sutilidad de su sustancia, utilizará el cuerpo de un discípulo. Tenemos un ejemplo, en la forma que Cristo usó el cuerpo del iniciado Jesús, al tomar posesión de él en el momento del Bautismo; otro ejemplo, cuando se ha de dar un mensaje al mundo durante repetidos ciclos, un discípulo de grado elevado aparecerá, en encarnación física, en el grupo de un Maestro y será "influenciado" o "inspirado" (en sentido esotérico-técnico) por un instructor más avanzado que él.</p>
+
+Cuarto, un discípulo puede estar muy avanzado en ciertas líneas, pero, debido a su desarrollo incompleto, carece de lo que se llama pleno desenvolvimiento de un principio particular. Por lo tanto puede decidir (con pleno consentimiento de su Ego y de Su Maestro) tomar una rápida serie de encarnaciones consecutivas con la intención de trabajar específicamente para llevar cierta cualidad o serie de cualidades, a un punto elevado de vibración, completando así su esfera de manifestación. Esto explica que se encuentren a veces personas peculiares aunque poderosas; <pin lang="en">1151</pin> son tan unilaterales que parecen estar desequilibradas y dedican toda su atención a una línea de desarrollo, en tal forma que otras líneas son casi imperceptibles. Sin embargo, aparentemente tienen gran influencia, fuera de toda proporción, en relación a su valor superficial. Una comprensión de estos factores disuadirá al estudiante inteligente de emitir juicios precipitados y llegar a rápidas conclusiones respecto a sus semejantes.
+
+Ocasionalmente aparece una variante en estas rápidas e inmediatas encarnaciones, cuando un iniciado (cuyo ciclo casi ha cumplido), reencarna expresando casi totalmente un principio perfecto. Esto lo hace para bien de determinado grupo que -a pesar de ocuparse en trabajar para la humanidad- fracasa en su objetivo por carecer de una cualidad particular o corriente de fuerza. Cuando esto se evidencia en el aspecto interno, algún discípulo avanzado pone a disposición de la Jerarquía la energía de esa cualidad particular y la envía para equilibrar al grupo; con frecuencia lo hace durante un período de rápida sucesión de vidas.
+
+Tales son algunas de las causas que rigen la manifestación periódica de quienes están clasificados en los archivos jerárquicos como "puntos alineados de fuego". Se caracterizan por la energía que fluye a través de ellos, la cualidad magnética de su trabajo, sus poderosos efectos grupales y su comprensión del plan en el plano físico.
+
+La entrada a la manifestación de las vidas superhumanas (las <pin lang="es">901</pin> Existencias mayores liberadas o los rajas devas de un plano), la aparición del Logos planetario y el Logos solar en encarnación física son regidas por leyes similares a las que gobiernan al ente humano, pero en dimensión cósmica. Es notorio hasta para el estudiante más superficial, que un plano surge gradualmente de la oscuridad existente entre los sistemas, no sólo como resultado de la respuesta vibratoria de la Palabra pronunciada, sino como expiación del karma de una <pin lang="en">1152</pin> Vida cósmica y la relación existente entre Ella y la Existencia cósmica denominada Brahma o la tercera Persona de la Trinidad. El deva Regente de un plano es una Entidad superhumana que viene por un gran impulso cósmico para proporcionar la forma vibratoria que hará posible la aparición de otras formas menores. Los Señores de los Rayos o Logos planetarios, están similar y kármicamente vinculados con el segundo aspecto logoico o con esa Vida en manifestación que llamamos Vishnu. Se verá así que tres impulsos principales, emanantes cada uno de la voluntad, plan o propósito consciente de una Entidad cósmica, son responsables de todo lo que se ve y conoce en nuestro sistema solar. Por supuesto, se ha hecho hincapié frecuentemente en distintos libros ocultistas, pero esta clasificación puede ser de utilidad:
+
+| Entidad Cósmica | Entidades del sistema | Número de impulsos | Cualidad   |
+| --------------- | --------------------- | ------------------ | ---------- |
+| 1. Brahma       | Los Señores Raja      | 7. Actividad       | Inercia.   |
+| 2. Vishnu       | Los Logos planetarios | 7. Sabiduría       | Movilidad. |
+| 3. Shiva        | El Logos solar        | 1. Voluntad        | Ritmo.     |
+
+Debería observarse aquí que esta clasificación es aplicable al micro y al macrocosmos, y los estudiantes hallarán interesante su análisis.
+
+### 3. El Movimiento Causa la Vinculación Triangular.
+
+En este tratado ya se ha dicho bastante para demostrar el plan general subyacente y explicar la necesidad del surgimiento o encarnación del sistema; no intento extenderme mucho. Así como no es posible para un hombre, en las primeras encarnaciones, concebir los efectos que tendrá sobre él la evolución y comprender la naturaleza del hombre en el Sendero, tampoco es posible para las grandes <pin lang="en">1153</pin> existencias del sistema concebir (excepto en los términos más amplios y generales) la naturaleza del Logos solar y el efecto que la evolución producirá sobre Él. Baste añadir, con respecto a esta materia, que cuando se hayan realizado algunos amplios alineamientos cósmicos, y la energía del ovoide causal logoico en los planos mentales cósmicos pueda afluir ininterrumpidamente hasta <pin lang="es">902</pin> llegar al átomo del plano físico (nuestro sistema solar), tendrán lugar grandes acontecimientos e inconcebibles posibilidades.
+
+Ciertos fenómenos menos importantes que este evento principal, ocurrirán a medida que transcurran los ciclos, los cuales podrán resumirse en forma general de la manera siguiente:
+
+Primero. Se formarán ciertos triángulos en el sistema que permitirán la interacción de energía entre los distintos esquemas planetarios, llevando así a una madurez más rápida los planes y propósitos de las Vidas implicadas. Debe observarse aquí que cuando consideramos la transmisión de energía, por medio del alineamiento y la formación de ciertos triángulos, siempre se hace en conexión con la energía del primer aspecto. Concierne a la transmisión del fuego eléctrico. Es importante tener presente esto, pues preserva la exactitud de la analogía entre el macro y el microcosmos.
+
+Segundo. Se formará en el sistema un último triángulo que contendrá una fuerza suprema, porque será utilizado por la esencia y energías extraídas del septenario de esquemas como base negativa para la recepción de energía eléctrica positiva. Esta energía eléctrica es capaz de circular a través de los esquemas debido a la realización de un alineamiento cósmico. La introducción de esta terrible fuerza espiritual, durante las etapas finales de la manifestación, hará que los siete soles se incendien. [^19] Aunque los siete se han convertido en los tres, esto sucede sólo en <pin lang="en">1154</pin> conexión con los planetas físico densos.
+
+<p><pin lang="es">903</pin> La ignición de que se habla en los libros ocultistas y en La Doctrina Secreta se produce en materia etérica; esta ardiente energía etérica lleva a una consumación (y por eso destruye) los tres esquemas mayores restantes. Tenemos su analogía en la ignición del cuerpo causal, en la cuarta Iniciación, mediante la fusión de los tres fuegos. Constituye sólo una analogía, y los detalles no deben ser llevados muy lejos. El esquema de Saturno es considerado esotéricamente como que ha absorbido los "fuegos por fricción del espacio del sistema"; Neptuno es visto como el custodio de las "llamas solares" y Urano como el hogar del "fuego eléctrico". Cuando estos tres esquemas sean estimulados en forma simultánea por medio de la actividad foránea al sistema, iniciada por</p>
+
+1. el alineamiento logoico,
+2. la adquisición de una Iniciación logoica,
+3. la actividad de "AQUEL SOBRE QUIEN NADA PUEDE DECIRSE",
+
+y esas formas pasen de uno a otro esquema en forma triangular, entonces ellos también entrarán en oscuración. Nada queda, excepto los ardientes soles etéricos, y ellos -por la misma intensidad del fuego- se disiparán con gran rapidez.
+
+### 4. La Relación entre los Centros Laríngeos, Alta Mayor y Mental.
+
+<p><pin lang="en">1155</pin> El tema de los centros ha sido siempre de gran interés para el hombre, y ha ocasionado mucho daño porque se han ocupado demasiado de los centros físicos, desgraciadamente los nombres dados a los centros tienen su contraparte en el físico, y debido a la habitual aptitud del hombre para identificarse con lo físico y tangible se han acumulado una gran cantidad de datos basados en el estudio del efecto que produce la meditación sobre los centros físicos más que en un conocimiento espiritual. Tal tipo de meditación sólo puede practicarse sin peligro cuando el hombre no está polarizado en el yo personal inferior, sino cuando observa todas las cosas desde el punto de vista del Ego, con quien está plenamente identificado. Entonces se reconoce que los centros de materia física tienen un uso definido y son simples puntos focales de energía ubicados en el cuerpo etérico.</p>
+
+Son utilizados como transmisores de ciertas energías, conscientemente dirigidas por el Ego o Yo, con el fin de inducir al cuerpo físico (que no es un principio) a cumplir con el propósito egoico. Para ello el Ego tiene que seguir ciertas reglas, ajustarse a la ley y no sólo controlar conscientemente al cuerpo físico sino conocer las leyes que rigen la energía y la constitución del cuerpo etérico y u relación con el físico. Debe llamarse la atención a los estudiantes sobre ciertos hechos fundamentales referentes a los <pin lang="es">904</pin> centros y así complementar, correlacionar y sintetizar lo dado en este tratado. Es de valor la repetición, y la información dada y las analogías indicadas deberían proporcionar a todos los partidarios del raja yoga una base para su sensata consideración, la sabia meditación y la más plena comprensión de las verdades involucradas. Debido al acelerado desarrollo de la raza y al rápido <pin lang="en">1156</pin> desenvolvimiento de la futura visión etérica, será de positivo beneficio si los estudiantes de ocultismo tienen al menos un concepto teórico de la naturaleza de aquello que veremos relativamente pronto.
+
+Como ya se sabe, los centros son siete y están formados de materia de los subplanos etéricos del plano físico. Como se ha dicho, existen literalmente diez, pero a los tres inferiores no se los considera de utilidad para dirigir la energía egoica. Están relacionados con la perpetuación de la forma física y tienen íntima vinculación con:
+
+1. Los tres reinos inferiores de la naturaleza.
+2. Los tres subplanos inferiores del plano físico.
+3. El tercer sistema solar, desde el punto de vista logoico.
+
+Debe tenerse en cuenta que aunque los tres sistemas solares (el pasado, el presente y el futuro) se diferencian en tiempo y espacio en lo que concierne a la conciencia del hombre, desde el punto de vista del Logos representan con mayor exactitud lo superior, lo intermedio y lo inferior, expresándose los tres como uno solo. Al sistema anterior, por lo tanto, se lo considera esotéricamente el tercero, es el más inferior y está relacionado con la materia densa y negativa. Evidentemente el sistema solar anterior tiene en consecuencia una estrecha relación con el tercer reino o reino animal, el cual presumiblemente ha sido trascendido por el hombre.
+
+Los siete centros que conciernen al hombre se clasifican en dos grupos: los cuatro inferiores relacionados con los cuatro Rayos de Atributo o los cuatro rayos menores, íntimamente conectados con el cuaternario micro y macrocósmico, y los tres transmisores superiores de los tres rayos de aspecto.
+
+Estos centros transmiten energía de <pin lang="en">1157</pin> muchas y variadas fuentes, las cuales podrán enumerarse brevemente como:
+
+1. Los siete Rayos, vía los siete subrayos de cualquier rayo monádico específico.
+2. Los triples aspectos del Logos planetario a medida que se manifiestan por medio de un esquema.
+3. Lo que se denomina "las séptuples divisiones del Corazón logoico", o el sol en su séptuple naturaleza esencial, tal <pin lang="es">905</pin> como se lo ve esotéricamente detrás de la forma solar física externa.
+4. Los siete Rishis de la Osa Mayor, la cual afluye vía la Mónada y es transmitida en forma descendente, fusionándose en los niveles superiores del plano mental con las siete corrientes de energía de las Pléyades que llegan como fuerza física manifestada a través del Ángel solar.
+
+Estas distintas corrientes de energía pasan a través de ciertos grupos o centros acrecentando su actividad y afluyendo más libremente a medida que transcurre la evolución. En lo que concierne al hombre en la actualidad, todas estas energías convergen en su cuerpo físico y procuran energetizarlo y dirigir su actividad por medio de los siete centros etéricos. Dichos centros reciben la fuerza proveniente de:
+
+1. El Hombre celestial, y por lo tanto de los siete Rishis de la Osa Mayor vía la Mónada.
+2. Las Pléyades, vía el Ángel solar o Ego.
+3. Los planos, de los Raja devas de un plano o energía fohática, vía las espirillas de un átomo permanente.
+
+Este hecho explica el gradual crecimiento y desarrollo del hombre. Al principio lo rige la fuerza proveniente del plano de la sustancia y hace que se identifique <pin lang="en">1158</pin> con la sustancia más grosera, se considera un hombre, un miembro del cuarto Reino, y se convenza de que es el no-yo. Más adelante, cuando la fuerza del Ego afluye, prosigue su evolución síquica (uso aquí la palabra "síquico" en su significado superior) y empieza a considerarse como el Ego, el Pensador, el Uno que emplea la forma. Finalmente, responde a la energía de la Mónada y se da cuenta de que no es hombre ni ángel, sino una esencia divina o Espíritu. Los tres tipos de energía citados se demuestran durante la manifestación como Espíritu, Alma y Cuerpo, y por intermedio de ellos los tres aspectos de la deidad se unen y convergen en el hombre y están latentes en cada átomo.
+
+La séptuple energía de los planos y por consiguiente de la sustancia, llega a su consumación cuando los cuatro centros inferiores están plenamente activos. La séptuple energía de la síquis, el aspecto conciencia se manifiesta cuando las tres superiores de los tres mundos vibran con precisión. La séptuple actividad del espíritu se hace sentir cuando cada uno de estos siete centros no sólo están plenamente activos sino que rotan como "ruedas que giran sobre sí mismas, cuando son cuatridimensionales y no sólo vidas individuales, sino que están vinculados con el séptuple centro de <pin lang="es">906</pin> la cabeza. El hombre es visto entonces como realmente es -una red de fuego con flamígeros puntos focales, transmitiendo y haciendo circular energía ígnea. Estos centros no sólo reciben la energía por la cúspide de la cabeza o, para ser más exactos, por un punto situado ligeramente encima de la cúspide de la misma, sino que la hacen salir a través de ese centro, siendo de distinto color y más brillante, y vibrando con mayor rapidez que aquello que entra. El cuerpo etérico está formado por un aspecto del fuego negativo y es el receptor del fuego positivo. A medida que los diversos tipos de fuego se fusionan, mezclan y circulan, adquieren y producen distintos efectos en los fuegos del sistema microcósmico.
+
+<p><pin lang="en">1159</pin> El centro en la base de la columna (el inferior, del cual el hombre debe ocuparse conscientemente) es de particular interés, debido a que en ese centro se originan tres extensas corrientes de energía que ascienden y descienden por la columna vertebral. Esta triple corriente posee muchas analogías interesantes que pueden ser descubiertas por el estudiante intuitivo. Pueden darse algunos indicios. Dicho canal de triple energía tiene tres puntos de sumo interés, los cuales (expresándolo de modo que tenga algún sentido para el interesado) pueden ser considerados como:</p>
+
+1. El centro básico que se halla en el extremo inferior de la columna vertebral.
+2. El centro alta mayor en la parte superior de la columna.
+3. El centro superior de la cabeza.
+
+Por consiguiente, constituye un panorama en miniatura de toda la evolución del espíritu y la materia porque:
+
+1. El centro inferior corresponde a la personalidad,
+2. El centro medio al Ego o Pensador,
+3. El centro superior de la cabeza a la Mónada.
+
+En la evolución de los fuegos de la columna, tenemos una analogía con el sutratma y sus tres puntos interesantes, el huevo aúrico monádico, su punto de emisión; el huevo aúrico egoico, el punto medio; el cuerpo o forma grosera, su punto inferior.
+
+Otro detalle interesante se observa en el hecho de que existen allí, entre estos centros, ciertas brechas (si es que puedo expresarlo así) que deben ser salvadas (en el curso de la evolución) por la acción energética de la vibración rápidamente creciente de la unidad de fuerza. Entre la triple energía de la columna vertebral y el centro alta mayor existe un vacío, así como existe aquello que debe ser unido entre el triple hombre inferior y el cuerpo egoico, o entre la unidad mental del cuarto subplano del plano mental y el Ángel solar del tercer subplano. Aunque se dice que la triada <pin lang="es">907</pin> atómica permanente está encerrada en la <pin lang="en">1160</pin> periferia causal, sin embargo, desde el punto de vista de la conciencia, existe aquello que debe ser unido. Además entre el centro alta mayor y el centro superior de la cabeza, existe otro abismo -una analogía del abismo que se encuentra entre el plano del Ego y el punto inferior de la Tríada, el átomo manásico permanente. Cuando el hombre ha construido el antakarana (en las etapas finales de su evolución en los tres mundos) ese abismo es salvado y la Mónada y el Ego se vinculan estrechamente; cuando está polarizado en su cuerpo mental, comienza a unir el antakarana, y cuando el centro entre los omóplatos, mencionado anteriormente como el centro manásico, vibra fuertemente, entonces el centro alta mayor y el centro coronario pueden ser unidos mediante el centro laríngeo.
+
+El hombre, al alcanzar esta etapa, se convierte en un creador que emplea materia mental, poseyendo una calidad diferente de la del común trabajador inconsciente. Construye al unísono con el plan, y el divino Manasaputra o Hijo de la Mente, en lugar de centralizar la atención como Hijo del Poder en los tres mundos, lo hará en la Tríada espiritual, recapitulando así en una vuelta más alta de la espiral el trabajo hecho anteriormente como hombre. Esto es posible cuando el crecimiento del triángulo ya mencionado (base de la columna, centro alta mayor y laríngeo, unificados en la cabeza) es acompañado por otra triplicidad, el plexo solar, el corazón y el tercer ojo; la energía fusionada por medio de ellos se unifica similarmente en ese centro de la cabeza. El tercer ojo es un centro de energía construido por el hombre, analogía del centro de energía, el cuerpo causal, construido por la Mónada. El centro alta mayor está construido similarmente por otras corrientes de fuerza y corresponden, en forma interesante, a la triple forma construida por el Ego en los tres mundos.
+
+Cuando este trabajo dual ha continuado hasta cierto nivel evolutivo, otra triplicidad se vivifica dentro de la <pin lang="en">1161</pin> cabeza como consecuencia de estas corrientes duales de triple energía. Este triángulo transmite energía ardiente por medio de la glándula pineal, el cuerpo pituitario y el centro alta mayor, alcanzando el centro de la cabeza. De esta manera, tenemos en estos tres triángulos nueve corrientes de energía que convergen y entran en el loto superior de la cabeza. La analogía con ciertas fuerzas macro cósmicas será aquí evidente para todo estudiante perspicaz.
+
+Hemos visto la estrecha conexión que existe entre los diferentes centros y el efecto gradual que se observa a medida que se vinculan y producen oportunamente un sistema circulatorio sintético para la energía egoica conjuntamente con la energía del hombre inferior, lo que constituye una especie de medio por el <pin lang="es">908</pin> cual se hace sentir la fuerza egoica. Sin embargo, macro cósmicamente, poco puede decirse en forma inteligible para el hombre en su actual etapa de evolución. A pesar de todo, pueden hacerse breves afirmaciones que (una vez reflexionadas y correlacionadas) arrojarán alguna luz sobre la evolución planetaria y la relación que existe entre el Logos planetario y el Logos solar.
+
+Un Logos solar usa como centros de energía los esquemas planetarios, personificando cada uno un tipo peculiar de energía y vibrando, por consiguiente, de acuerdo a la clave del Ángel solar logoico, del cual el Ángel solar humano es un vago reflejo. Aquí es interesante observar que mientras el Ángel solar humano es una unidad manifestándose a través de tres hileras de pétalos, la analogía logoica es aún más interesante, porque la gran Entidad cósmica se manifiesta en el plano mental cósmico como una triple llama que atraviesa siete hileras de pétalos, siendo la energía de estos siete círculos de energía lo que palpita por medio de un esquema. Todo esto se halla oculto en el enigma de AQUEL SOBRE QUIEN NADA PUEDE DECIRSE, y no puede ser develado por el hombre -siendo la verdad oscura, incluso para el más elevado Dhyan Chohan de nuestro sistema.
+
+Los centros de energía del Logos solar tienen <pin lang="en">1162</pin> la forma de vastos lotos [^20] ruedas, en cuyos centros reside oculta esa Vida cósmica central que llamamos un Logos planetario. Es el lugar de encuentro de dos tipos de fuerza, espiritual o logoica, que llegan hasta Él (por medio del Loto logoico en los planos mentales cósmicos) desde el plano de los siete Rishis de la Osa Mayor y, en <pin lang="es">909</pin> segundo lugar, de la fuerza búdica, transmitida por medio de las Siete Hermanas o las Pléyades, desde una constelación llamada el Dragón en algunos libros, de donde proviene la denominación de "El Dragón de Sabiduría.
+
+Se suma a ésta una tercera energía de tipo manásico, en consecuencia, puede ser detectada en estos centros. Llega a los centros logoicos por medio de la estrella Sirio y es transmitida desde esa constelación que (como ya hemos <pin lang="en">1163</pin> mencionado) debe permanecer incógnita en la actualidad. Estas tres grandes corrientes de energía forman la manifestación total de un centro logoico. Es conocido por nosotros como un esquema planetario.
+
+Dentro del esquema planetario, estas corrientes de energía actúan predominantemente de la manera siguiente:
+
+|     |                    |                        |                                     |
+| --- | ------------------ | ---------------------- | ----------------------------------- |
+| a.  | Energía espiritual | tres planos superiores | las Mónadas.                        |
+| b.  | Fuerza búdica      | cuarto plano           | los Ángeles solares.                |
+| c.  | Fuerza manásica    | dos planos inferiores  | los cuatro reinos de la naturaleza. |
+
+La energía física, remanente de un sistema solar anterior, se demuestra a través de la forma física densa y del material energetizado durante el ciclo involutivo. No se la considera un principio; se la observa como la base de maya o ilusión.
+
+Los distintos esquemas planetarios no son todos parecidos pues difieren en
+
+1. el tipo de energía,
+2. el punto de evolución, <pin lang="es">910</pin>
+3. la posición en el plan general,
+4. la oportunidad kármica,
+5. el grado de vibración.
+
+La principal diferencia reside en el hecho de que, como hemos repetido a menudo, tres de ellos forman los tres centros superiores de energía etérica del Logos, y cuatro constituyen los centros inferiores.
+
+Saturno es aquí de interés para nosotros porque el Logos de Saturno mantiene una posición, en el cuerpo logoico, similar a la mantenida por el centro laríngeo del microcosmos. Hacia el fin de la manifestación tres centros se alinearán de la misma manera que lo han hecho el centro de la base de la columna vertebral, el centro laríngeo y el centro alta mayor. Debe destacarse que hay tres esquemas planetarios que <pin lang="en">1164</pin> mantienen una posición análoga a la de la glándula pineal, del cuerpo pituitario y del centro alta mayor, pero no son los esquemas a los cuales nos referimos como centros o que sabemos que los Logos planetarios les dan forma. Algunos planetoides y también un esquema que ya no está activo y se halla en pasividad tienen su ubicación aquí. En el cuerpo logoico dicho esquema constituye la analogía del tercer ojo atrofiado del cuarto reino de la naturaleza. Cuando el hombre haya desarrollado la visión etérica y expandido así su campo visual será consciente de estos hechos, porque entonces verá. Muchos esquemas planetarios que se encuentran sólo en materia etérica serán revelados ante su mirada atónita, y no sólo encontrará que (como en el cuerpo microcósmico) existen siete (o diez) centros principales, sino numerosos centros con el propósito de energetizar diversos órganos. De la misma manera el cuerpo macrocósmico tiene miríadas de puntos focales de energía o nutridores, que tienen su lugar, su función y se perciben sus efectos. Estos centros sin globo físico denso, constituyen lo que a veces se llama "la ronda interna", transmitiendo su fuerza a través de esos centros mayores que según se dice en los libros ocultistas, están vinculados con la ronda interna.
+
+Cada uno de estos esquemas planetarios puede verse como un loto formado de siete pétalos principales, formando cada cadena un pétalo, pero teniendo también pétalos subsidiarios de un color secundario de acuerdo a la naturaleza y al karma de la Entidad implicada. En la enumeración de estos Lotos solares los estudiantes de ocultismo se extravían. Por ejemplo, es correcto decir que el esquema planetario que corresponde a la base de la columna vertebral microcósmica es un loto cuádruple y tiene, por lo tanto, cuatro pétalos. Posee cuatro pétalos sobresalientes de un matiz peculiar, pero hay tres que poseen un color secundario y nueve de naturaleza terciaria. La indicación dada puede revelar a los <pin lang="es">911</pin> estudiantes intuitivos el nombre del planeta y la naturaleza de su evolución.
+
+<p><pin lang="en">1165</pin> Cada uno de estos lotos solares o esquemas planetarios, se despliega en tres grandes etapas de actividad, en cada una de las cuales domina uno de los tres tipos de energía. A medida que prosigue el desarrollo, la actividad vibratoria crece y la aparición de la actividad manifestante cambia:</p>
+
+1. El movimiento del loto o rueda, durante un largo período, no es más que una lenta revolución.
+2. Más adelante, durante un período aún más vasto, cada pétalo gira dentro del todo mayor, y en ángulo diferente al de la evolución total.
+3. Finalmente, estas dos actividades son incrementadas por la aparición de una forma de energía que, originada en el centro, palpita muy poderosamente y produce lo que aparentan ser corrientes de energía marchando hacia adelante y hacia atrás, desde el centro a la periferia.
+4. Cuando los tres actúan al unísono, el efecto es en extremo maravilloso e imposible de seguir para el ojo, concebir para la mente del hombre o expresar en palabras. Esta etapa, macro y microcósmica, constituye los diferentes grados de alineamiento, porque siempre debe recordar el estudiante que todo lo que se manifiesta es una esfera; en realidad el alineamiento consiste en establecer una comunicación ininterrumpida entre el corazón de la esfera y la periferia, o el límite de influencia de la voluntad dinámica y el centro.
+
+Dentro de cada esquema planetario se encuentran las siete cadenas y los siete centros planetarios, y dentro de la cadena están los siete globos, centros de la cadena. Los estudiantes no deberían estudiar los globos desde el punto de vista de los centros hasta poseer un mayor conocimiento respecto al misterio subyacente en la sustancia física densa, pues serían inducidos a error. Cuando se trata de llevar las analogías a los niveles inferiores hay más probabilidad de cometer errores. La analogía debe hallarse en la cualidad y en el principio expresado, no en la forma.
 
 [^1]: D. S. I. 219, 242-243,287.
 
@@ -1336,3 +1520,55 @@ Cuando un hombre puede realizar todo esto y ha adquirido el derecho de conocer a
        2. Símbolos de la naturaleza emocional..cosas del plano astral, figuras
        3. Símbolismo numérico...................... mental inferior, el hombre se utilizó a si mismo para contar.
        4. Simbolismo geométrico................... simbolismo abstracto, mental superior.
+
+[^19]: La salida y la puesta del Sol simbolizan la manifestación y la oscuración. D. S. III, 79.
+
+    El Pralaya es de diferentes clases:
+
+    |     |                    |                                                                                              |
+    | --- | ------------------ | -------------------------------------------------------------------------------------------- |
+    | 1.  | Pralaya cósmico    | La oscuración de los tres soles o de los tres sistemas solares.                              |
+    | 2.  | Pralaya solar      | La oscuración de un sistema al cabo de cien años de Brahama. Período entre sistemas solares. |
+    | 3.  | Pralaya incidental | La oscuración de un esquema. Período entre manvantaras.                                      |
+
+    El hombre repite esto en la séptima y quinta Iniciaciones y en cada renacimiento en los tres mundos.
+
+    Las Pléyades son el centro alrededor del cual gira nuestro sistema solar. D. S. III, 236; IV, 118-120
+
+    El Sol es la semilla y la matriz de todo en el sistema solar. D. S. I, 299-300; II, 86-87.
+
+    "Semilla proviene de la misma palabra que grano."
+
+    Compárense las palabras de La Biblia:
+
+    "Salvo que un grano de trigo caiga sobre el terreno y muera, quedará solo, pero si muere traerá mucha fruta."
+
+    "El Sol está regido por las mismas leyes que todos los átomos." D. S. I, 179.
+
+[^20]: Ver Sección VIII, D. S. II, 86
+
+    El Loto es tanto el símbolo del Macrocosmos como del Microcosmos.
+
+    1. Las semillas del Loto contienen en miniatura la planta perfecta
+    2. Es el producto del fuego y la materia.
+    3. Tiene sus raíces en el lodo, crece a través del agua, es fomentado por el calor del sol y florece en el aire.
+
+    MACROCOSMOS
+
+    |                       |                                    |
+    | --------------------- | ---------------------------------- |
+    | El lodo               | El sistema solar físico objetivo.  |
+    | El agua               | La naturaleza astral o emocional   |
+    | La flor sobre el agua | La fructificación de lo espiritual |
+    | El método             | El fuego cósmico o inteligencia.   |
+
+    MICROCOSMOS
+
+    |                       |                                              |
+    | --------------------- | -------------------------------------------- |
+    | El lodo               | El cuerpo físico                             |
+    | El agua               | La naturaleza emocional o astral             |
+    | La flor sobre el agua | La fructificación de lo espiritual o búdico. |
+    | El método             | El fuego de la mente                         |
+
+    "El significado de la tradición de que Brahma nace del loto o en el loto, es el mismo. El loto simboliza un sistema mundial y Brahma reside allí representado por la acción; se lo denomina por lo tanto el Kamal-asana, el Loto sentado. También se dice que el loto surge del ombligo o en el ombligo de Vishnu, porque el ombligo de Vishnu u omniconocimiento es "deseo necesario"; su forma primaria, como se representa en el texto Veda, es: Sea yo nacido (como progenie multitudinaria). De tal deseo central y esencial, la voluntad de vivir, surge todo el devenir, todas las actuaciones , todos los remolinos y vórtices de cambio y manifestación que configuran la vida. En tal devenir reside Brahma, y desde él y por él, es decir, por la incesante actividad, surge y se manifiesta el mundo organizado, el trib huvanam, el triple mundo. Por ser el primer manifestado, Brahma es llamado el primero de los dioses; por la acción viene la manifestación, y Él es el actor; porque es actor, se lo denomina a veces el preservador o protector del mundo; porque quien hace una cosa desea también el mantenimiento y la preservación de su obra y, más aún, haciéndolo, proporciona la base y la oportunidad para la acción de preservación, la que, por supuesto, pertenece exclusivamente a Vishnu." Pranava-Vada, páginas 84,311.
