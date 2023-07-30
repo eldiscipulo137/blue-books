@@ -119,6 +119,72 @@ No es posible definir los distintos tipos de escuela y enseñanza que existen y 
 
 ### Escuelas Planetarias
 
+1. URANO Escuela de Magia del décimo orden. Se le dice a veces "el planeta de la fuerza <pin lang="en">1178</pin> violeta", y sus egresados manejan el poder del prana etérico cósmico.
+2. TIERRA Escuela de Respuesta magnética. Otro nombre dado a sus discípulos es "los egresados del penoso esfuerzo" o "los adjudicadores que se encuentran entre los polos opuestos". <pin lang="es">921</pin>
+ 
+ Puede extraerse otro indicio de los dos nombres dados y es que sus egresados son examinados en el tercer subplano astral.
+
+3. VULCANO Escuela para las Piedras Ígneas. Existe una curiosa relación entre los entes humanos que pasan por sus aulas y el reino mineral. El ente humano, en el esquema terrestre, es denominado en lenguaje místico "las piedras vivientes"; en Vulcano se lo denomina "piedra ígnea".
+4. JUPITER Escuela de los Magos Benévolos. A este planeta se le dice a veces, en términos escolásticos, "El Colegio de las unidades de la Cuádruple Fuerza" porque sus miembros manejan cuatro tipos de fuerza cuando realizan el trabajo mágico constructivo. Otro nombre dado a sus aulas es "El Palacio de la Opulencia" porque sus graduados trabajan con la ley del Abastecimiento, y se los llama frecuentemente "Los Sembradores".
+5. MERCURIO A los discípulos de esta escuela planetaria se los denomina "Los Hijos de la Aspiración" o "Los Puntos de Vida Amarilla". Tienen un estrecho vínculo con nuestro esquema terrestre y el Antiguo Comentario se refiere a ello en las palabras:
+
+ > Los puntos de llama dorada se fusionan y mezclan con la planta de cuatro hojas de tierno verdor; cambia su color en un tinte amarillo otoñal. La planta de cuatro hojas mediante un nuevo y fresco <pin lang="en">1179</pin> influjo, se convierte en la planta de siete hojas y tres flores blancas.
+
+6. VENUS Escuelas con cinco Grados estrictos. También es un esquema planetario íntimamente relacionado con el nuestro, pero su Logos planetario pertenece a un grupo de estudiantes más avanzados, en sentido cósmico, que nuestro Logos planetario. La mayoría de sus instructores jerárquicos vienen del quinto plano cósmico, siendo un grupo peculiar de Manasadevas de categoría muy elevada. Se los describe en los archivos de nuestra Jerarquía empuñando cada uno un tridente de fuego, coronado por cinco esmeraldas verdes.
+7. MARTE Escuela de los Guerreros, o el estudio libre para los soldados. Cuatro de estas escuelas planetarias son las causantes de la energía que fluye a través de los máximos exponentes de las cuatro castas, no sólo de la India sino de todas partes del mundo. Se dice que sus instructores son los "graduados del Fuego rojizo", y frecuentemente se los representa vestidos con mantos rojos y llevando varas de ébano. Trabajan con el primer Aspecto logoico y entrenan a aquellos cuya tarea corresponde a la línea del destructor. <pin lang="es">922</pin>
+8. NEPTUNO Esta escuela se ocupa de desarrollar y fomentar el elemento deseo, y a sus egresados se los denomina "Los Hijos de Vishnu". Su símbolo es un manto, en el cual está representado un barco con las velas desplegadas sobre un corazón, cuyo significado será evidente para quienes tengan ojos para ver.
+
+No es permitido hablar de las otras escuelas planetarias ni sería conveniente hacerlo. Otros hechos podrán ser comprobados por el que practica meditación y está alineado con su Ego y en contacto con su grupo egoico.
+
+<p><pin lang="en">1180</pin> La enseñanza dada sobre nuestro esquema terrestre en el Aula de Sabiduría ha sido tratada en muchos libros ocultistas, incluyendo Iniciación Humana y Solar, y no es necesario ampliarla.</p>
+
+En este tratado se indican algunos aspectos de esta ley. El tema está lejos de haber sido agotado, pero lo dicho es suficiente como para indicar su magnitud y extensión. En conclusión, debe señalarse que la Ley del Karma, desde cierto punto de vista, constituye la totalidad de la Ley de Atracción pues rige la relación de todas las formas con aquello que utiliza la forma y todas las vidas entre sí.
+
+Quienes estudian la Ley de Atracción han de tener en cuenta ciertas cosas, las cuales deben ser cuidadosamente consideradas y comprendidas a medida que se estudia el tema.
+
+Primero, deben recordar que todas las leyes subsidiarias en realidad sólo son términos distintos aplicados para expresar un gran método de manifestación, la Ley Una.
+
+Segundo, que toda la energía manifestada en el sistema solar, no es más que energía del átomo físico permanente logoico que tiene su núcleo en el subplano atómico del físico cósmico. Este átomo físico permanente (como sucede con el átomo correspondiente del jiva encarnante) tiene su lugar dentro del cuerpo causal del Logos en Su propio plano, en consecuencia, está impresionado por la totalidad de la fuerza del loto egoico cósmico, o la cualidad atractiva del amor cósmico. Esta fuerza es transmitida al sistema solar de dos maneras: Por medio del Sol, que en sentido oculto constituye el átomo físico permanente, por lo tanto atrae y mantiene atraído a todo lo que se encuentra dentro de su esfera de influencia, produciendo así el cuerpo físico logoico, por medio de los planos que son las analogías de las siete espirillas del átomo físico permanente de un ser humano Tenemos así un doble tipo de fuerza de atracción; uno básico y fundamental, el otro muy diferente y secundario. <pin lang="en">1181</pin> <pin lang="en">1182</pin> Estas corrientes de energía, a juzgar por sus efectos, se denominan leyes en terminología humana, debido a que sus resultados son siempre inmutables e irresistibles y sus <pin lang="es">923</pin> efectos permanecen también invariables, variando solamente de acuerdo a la forma, objeto del impulso energético.
+
+Tercero, el estudiante debe tener presente que los siete planos, o las siete espirillas, del átomo logoico permanente, no todos son igualmente vitalizados por la fuerza atractiva que emana del loto egoico vía el corazón del Sol. Cinco de ellos son más "activos" que los otros dos; en los cinco no están incluidos lo superior y lo inferior. Debe comprenderse que las palabras "el corazón del Sol" significan algo más que un lugar situado en las cavidades internas del cuerpo solar y se refieren a la naturaleza de la esfera solar. Esta esfera es muy similar al átomo dibujado en el libro de Babbitt y también al de Química Ocultista de Annie Besant. El Sol tiene forma de corazón, y (visto desde ángulos cósmicos) tiene una depresión que podríamos llamar su polo norte, formada por el impacto de la energía logoica sobre la sustancia solar.
+
+Esta energía que hace impacto sobre la esfera solar y desde allí es distribuida a todas partes del sistema, emana de tres centros cósmicos y, por consiguiente, es triple durante el actual ciclo, surgiendo desde:
+
+1. La séptuple Osa Mayor.
+2. El Sol Sirio.
+3. Las Pléyades.
+
+Debe recordarse que las posibles corrientes cósmicas de energía disponibles para ser utilizadas en nuestro sistema solar constituyen siete, tres de ellas son mayores. Las tres varían durante ciclos vastos e incalculables.
+
+Los estudiantes hallarán de utilidad recordar que:
+
+1. La Ley de Economía se manifiesta como anhelo.
+2. La Ley de Atracción como atracción.
+3. La Ley de Síntesis como la tendencia a concentrarse en un centro o fusionarse.
+
+<p><pin lang="en">1183</pin> Las corrientes de energía que afluyen a través del Sol procedentes del Loto egoico, que son en realidad "energía del Alma logoica", atraen hacia si todo lo que tiene una vibración afín. Esto podrá parecer repetición de una trivialidad, sin embargo tiene un profundo significado para el estudiante, pues ello es responsable de todos los fenómenos del sistema. Dichas corrientes van en diferentes direcciones; sabiendo la dirección que llevan, se pueden conocer esotéricamente las distintas jerarquías del ser y el secreto de los símbolos esotéricos.</p>
+
+La principal corriente de energía penetra por la depresión superior de la esfera solar y atraviesa todo el "círculo no se pasa", dividiéndolo en dos mitades. <pin lang="es">924</pin>
+
+<div style={{textAlign: "center"}}>
+   <div style={{backgroundColor: "white", display:"inline-block"}}>
+      <img src={require("../assets/atomo.jpg").default}/>
+   </div>
+</div>
+
+<p><pin lang="es">925</pin> Con esta corriente entra ese grupo de vidas activas denominadas "Señores del Karma". Presiden las fuerzas de atracción y las distribuyen con exactitud. Penetran, pasan al centro de la esfera, se ubican allí (si podemos expresarlo así) y erigen el "sagrado Templo de la Justicia divina", enviando sus representantes los cuatro Maharajáes a los cuatro puntos del circulo. Así se forma la Cruz de brazos iguales -y se ponen en movimiento todas las ruedas de energía. Esto está condicionado por las simientes kármicas de un sistema anterior, y sólo su sustancia es utilizada por el Logos, entrando únicamente en manifestación esas vidas que han establecido una atracción mutua.</p>
+
+Estas cinco corrientes de energía viviente (una y cuatro) fundamentan el progreso de todas las cosas; esotéricamente se las denomina a veces "las Vidas que avanzan". Encarnan la Voluntad del Logos. La nota que emiten y la atracción que inician ponen en contacto, con la esfera solar, a un grupo de existencias cuya actividad no es progresiva sino en espiral.
+
+Dichos grupos son siete y pasan a la manifestación <pin lang="en">1184</pin> a través de lo que para ellos constituye un gran portal de Iniciación. En algunos de los libros ocultistas se mencionan estos siete grupos como los "siete Iniciados cósmicos que han penetrado en el Corazón y se mantienen allí hasta que hayan pasado la prueba." Son las siete Jerarquías de seres, los siete Dhyan Chohanes. Vienen a la manifestación en forma espiral, avanzando la cuádruple cruz, alcanzando la corriente cruciforme de energía en ciertos lugares. Allí donde las corrientes de energía del amor cruzan las corrientes de energía de la voluntad y kármicas, se las denomina místicamente "cavernas de la luz dual"; cuando el jiva reencarnante o liberado entra en una de esas cavernas, durante su peregrinaje, recibe la iniciación y pasa a una vuelta más alta de la espiral.
+
+Otra corriente de energía sigue una ruta diferente, siendo un poco difícil de explicar. Este conjunto particular de vidas activas entra en la depresión de forma de corazón, recorre el borde del circulo no se pasa hasta la parte inferior de la esfera solar, luego asciende en forma opuesta a la corriente descendente de energía. Esta corriente de fuerza se denomina fuerza "lunar" a falta de mejor término. Forma el cuerpo del Señor Raja de cada uno de los planos, estando regidos por la Ley de Economía.
+
+Todas estas corrientes de energía forman diseños geométricos de gran belleza para el vidente iniciado. Tenemos las líneas transversales y bisectrices, las siete líneas de fuerza que forman los planos y las siete líneas en espiral, formando así las líneas de latitud y longitud del sistema; su intercambio e interacción produce un conjunto de maravillosa belleza y diseño. Cuando esto es <pin lang="es">926</pin> visualizado en colores, y se ve en su verdadero fulgor, se comprenderá que el punto de realización de nuestro Logos solar es muy elevado, porque la belleza del Alma logoica se expresa por lo que se ve.
+
+## II. LOS EFECTOS DE LA LEY DE ATRACCIÓN
+
+
 
 [^1]: D. S. I, 89, 100-101.
 
