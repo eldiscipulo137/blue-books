@@ -184,6 +184,84 @@ Todas estas corrientes de energía forman diseños geométricos de gran belleza 
 
 ## II. LOS EFECTOS DE LA LEY DE ATRACCIÓN
 
+<p><pin lang="en">1185</pin> La Ley de Atracción produce ciertos efectos que sería de interés tratar aquí, haciendo la salvedad que constituyen algunos de los muchos efectos posibles:</p>
+
+### 1. Asociación.
+
+El primer efecto podría denominarse asociación. Por esta ley se le permite a los Señores del karma agrupar esas vidas (subhumanas, humanas y superhumanas) que han estado asociadas anteriormente y tienen, por lo tanto, algo que desarrollar. Los siete Hombres celestiales, por ejemplo, son algunos de los componentes de un gran grupo de Vidas asociadas que han elegido venir a la encarnación en este kalpa con el fin de ayudarse y corregirse mutuamente. Están realmente destinados a trabajar juntos, aunque en otros planos cósmicos tienen contactos desconocidos para nosotros.
+
+Por esta fuerza de atracción, las existencias que dan forma a los distintos reinos de la naturaleza están dedicadas a realizar una mutua interacción, impulsando a una actividad menor, aunque Similar, a todas las vidas de los distintos cuerpos de manifestación. Esas líneas de atracción están veladas por el misterio, y todo lo que se puede indicar es el karma que tiene el Señor del segundo reino o reino vegetal, con el Señor del quinto reino, y la línea de íntima energía vinculadora entre los Señores de los reinos mineral y humano. Estos sólo constituyen puntos de referencia para nuestro esquema planetario. El Señor de la cadena lunar y el Señor del actual reino animal son "hermanos de sangre", y en su relación y en la interferencia esotérica del "Hombre de los Hombres" (la familia humana personificada) se halla oculto el misterio del presente karma animal y la matanza de las formas animales, del terror de las bestias salvajes y del trabajo de vivisección.
+
+También "el Sendero" está regido por esta ley, donde los <pin lang="en">1186</pin> hombres ascienden del estado de conciencia humana al de conciencia divina, pero no es necesario extendernos sobre ello.
+
+### 2. Construcción de la Forma.
+
+El segundo efecto es la construcción de la forma. No nos extenderemos mucho sobre el particular, ya que todo lo que en este momento es posible impartir, referente al tema, se ha dado en este tratado y en otras obras de naturaleza análoga. El aspecto <pin lang="es">927</pin> medio o segundo, es siempre responsable de la construcción de una forma alrededor de un núcleo central. A los estudiantes les resultará útil estudiar y meditar sobre la clasificación anexa de las corrientes de energía y su objetivación a través de la mutua interacción.
+
+Con el tiempo, cuando la ciencia avance, será consciente de la naturaleza básica y de la exactitud fundamental del método por el cual toda forma puede ser dividida en sus tres aspectos y contemplada como una Entidad energetizada por tres tipos de fuerza, emanando desde varios puntos foráneos a la forma en consideración. También puede considerarse como expresando, de una u otra manera, en sus diversas partes, fuerza o energía que se origina en las tres fuerzas de manifestación, Brahma, Vishnu y Shiva. Cuando esto suceda y se acepte la premisa, se cambiará toda la perspectiva de la vida, la naturaleza, la medicina, la ciencia y los métodos de construcción o destrucción. Las cosas serán contempladas como triplicidades esenciales, los hombres serán considerados como un conjunto de unidades de energía y se revolucionará la manera de trabajar con las cosas y con los hombres. <pin lang="en">1187</pin>
+
+<p><pin lang="en">1188</pin> En la clasificación dada se imparte información sobre los métodos de construir la forma desarrollada por la energía y la Ley de Atracción a medida que se pone de manifiesto en la actualización de los diversos grupos de la Hueste de la Voz. Esta Hueste es responsable de la atracción, la cual es el medio para reunir el material requerido por los Espíritus libres para construir sus cuerpos de manifestación. La vibración iniciada por el Sonido, expresión de la Ley de Síntesis, es reemplazada por la Voz o Palabra, y esa Palabra, a medida que se propaga del centro a la periferia (porque, entendida esotéricamente, la Palabra es "pronunciada" desde el Corazón), se convierte en:</p>
+
+:::note Recuerda
+
+La Palabra es "pronunciada" desde el Corazón
+
+:::
+
+1. Una frase.
+2. Frases.
+3. Oraciones.
+4. Conversación.
+5. Millares de sonidos de la naturaleza.
+
+Cada uno de estos términos pueden ser explicados como energía de atracción, siendo a su vez la expresión de la vida de una Existencia de determinado grado.
+
+"Dios habla y las formas son echas." Esta clasificación debería ser la base para un estudio completo sobre esta línea, una de las más fundamentales dadas en este tratado. <pin lang="es">928</pin>
+
+#### VII CLASIFICACIÓN ENERGÍAS
+
+##### LOGOS SOLAR
+
+|     | Origen                  | Punto Focal           | Medio                  | Tipo de energía                      | Naturaleza del Fuego                          |
+| --- | ----------------------- | --------------------- | ---------------------- | ------------------------------------ | --------------------------------------------- |
+| 1.  | Cuerpo causal           | Joya                  | Sol central espiritual | Voluntad cósmica                     | Fuego eléctrico. <br/> Positivo               |
+| 2.  | Cuerpo causal           | Loto (de dos pétalos) | Corazón del Sol        | Amor cósmico <br/> (El Hijo)         | Fuego solar. <br/> Armonía. <br/> Equilibrio. |
+| 3   | Núcleo del plano físico | Átomo permanente      | Sol físico             | Actividad cósmica (Mente Universal). | Fuego por fricción. <br/>Negativo.            |
+
+##### LOGOS PLANETARIO
+
+|     | Origen                   | Punto Focal      | Medio                                 | Tipo de energía       | Naturaleza del Fuego                         |
+| --- | ------------------------ | ---------------- | ------------------------------------- | --------------------- | -------------------------------------------- |
+| 1.  | Cuerpo causal planetario | Joya             | Hombre celestial (en su propio plano) | Voluntad del sistema  | Fuego eléctrico. <br/> Positivo              |
+| 2.  | Cuerpo causal planetario | Loto             | Grupos egoicos                        | Amor del sistema      | Fuego solar. <br/> Armonía. <br/> Equilibrio |
+| 3.  | Núcleo del plano físico. | Átomo permanente | Planeta físico                        | Actividad del sistema | Fuego por fricción. <br/> Negativo.          |
+
+##### HOMBRE
+
+|     | Origen               | Punto Focal      | Medio                  | Tipo de energía        | Naturaleza del Fuego                     |
+| --- | -------------------- | ---------------- | ---------------------- | ---------------------- | ---------------------------------------- |
+| 1.  | Cuerpo causal humano | Joya             | Mónada. <br/> Espíritu | Atma-budi              | Fuego eléctrico. <br/> Fuerza positiva.  |
+| 2.  | Cuerpo causal humano | Loto             | Ángel solar            | Ego manásico           | Fuego solar. <br/> Fuerza equilibradora. |
+| 3.  | Núcleo del plano     | Átomo permanente | Ángeles lunares        | Triple hombre inferior | Fuego por fricción. <br/> Negativo       |
+
+##### PLANOS
+
+|     | Origen               | Punto Focal          | Medio               | Tipo de energía | Naturaleza del Fuego          |
+| --- | -------------------- | -------------------- | ------------------- | --------------- | ----------------------------- |
+| 1   | Plano del Señor Raja | Una Jerarquía dévica | Subplano atómico    | Fohática        | Fuego central Iniciático.     |
+| 2.  | Devas de los planos  | Centros              | Prana               | Energía solar   | Fuego constructor de la forma |
+| 3.  | Elementales          | Esencia elemental    | Sustancia molecular | Fuerza lunar    | Calor de la Madre             |
+
+##### ÁTOMOS
+
+|     | Origen                     | Punto Focal | Medio           | Tipo de energía | Naturaleza del Fuego                         |
+| --- | -------------------------- | ----------- | --------------- | --------------- | -------------------------------------------- |
+| 1.  | Átomo                      | Núcleo      | Deva del plano  | Positivo        | Eléctrico                                    |
+| 2.  | Unidad atómica de la forma | Esfera      | Devas del plano | Equilibrador    | Fuego solar                                  |
+| 3.  | Electrones                 | Núcleo      | Elementales     | Negativo        | Fuego por fricción. <pin lang="es">929</pin> |
+
+### 3. Adaptación de la Forma a la Vida.
+
 
 
 [^1]: D. S. I, 89, 100-101.
