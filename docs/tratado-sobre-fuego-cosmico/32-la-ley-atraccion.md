@@ -262,6 +262,65 @@ Cada uno de estos términos pueden ser explicados como energía de atracción, s
 
 ### 3. Adaptación de la Forma a la Vida.
 
+Este procedimiento consiste en proporcionar gradualmente formas que expresan adecuadamente la conciencia inmanente, el gran propósito de lo que llamamos "Madre Naturaleza"; lo hace trabajando de acuerdo a la Ley de Atracción que estamos considerando. Dicha ley rige, por lo tanto, dos aspectos del desarrollo, el que concierne al alma o aspecto conciencia, y el relacionado con el Espíritu en su propio plano. Causa la cíclica y continua adopción, utilización y rechazo de la forma que caracteriza las encarnaciones de toda clase y tipo de ser viviente. El estudiante debiera recordar que las Existencias, los Dhyan Chohanes, fuerza de atracción en manifestación, son siete; en consecuencia, la cualidad de los vehículos que forman Sus cuerpos tendrán la séptuple variación de acuerdo a la naturaleza específica de los Señores de la Vida.
+
+<p><pin lang="en">1189</pin> La única manera de llegar a una comprensión de las cualidades fundamentales de este Logos planetario es a través de una consideración de la energía que emana de Ellos, y esto lo revelará oportunamente la verdadera astrología esotérica. Aún no ha llegado el momento, vendrá cuando se estudien realmente la consideración científica del magnetismo humano, las características entre los siete tipos de hombres y la naturaleza del Ego. Entonces será revelada la naturaleza del magnetismo planetario y la cualidad de determinada alma planetaria a medida que se va haciendo conocer por medio de la naturaleza colectiva de los hombres que responden a un Rayo planetario particular y son exponentes del mismo. El misterio se acrecienta debido a que no sólo existen ciertas cualidades logoicas en manifestación que no están incluidas en el término "sagrado", sino que se generan y hacen sentir su presencia numerosos aspectos que podemos denominar "centros secundarios de fuego". Una analogía de esto reside en el hecho de que el hombre posee centros de energía que no son puramente etéricos, sino el producto de la interacción de los centros etéricos y algunas formas de energía negativa de tipo muy inferior, por ejemplo, el corazón. Tenemos el centro cardíaco, el principal centro de los planos etéricos, pero además existe el corazón físico, que es también un generador de energía; tenemos los órganos genitales inferiores que son igualmente el producto y el reflejo de la energía resultante de las vibraciones superiores, aunque posee cualidad propia. Esto tiene su analogía en el sistema solar. Muchos planetas menores y planetoides tienen una energía o cualidad propia de atracción y, desde el punto de vista del sistema, deben ser tenidas en cuenta al calcular la atracción que producen las formas de cualquier planeta o la que ejercen sobre el mismo.</p>
+
+Como sabemos, por el estudio de La Doctrina Secreta, algunos <pin lang="es">930</pin> Logos planetarios son puros y desapasionados, mientras que otros se hallan dominados por el deseo y <pin lang="en">1190</pin> la pasión. [^4] Tales cualidades atraen necesariamente hacia Ellos lo que necesitan para expresar adecuadamente Su vida en cualquier esquema y controlar la naturaleza de los grupos egoicos que son (para Ellos) centros que generan fuerza. De allí la naturaleza que poseen los hombres en la tierra. Todos los seres humanos están regidos preponderantemente por ciertas atracciones, impresiones o influencias planetarias que podrían enumerarse por orden de importancia.
+
+Existe, antes que nada, la fuerza de atracción de la Vida del Logos planetario de nuestro planeta. Esta necesariamente es la más fuerte, siendo uno de los factores fundamentales que ha establecido el aspecto que la forma humana tiene en este planeta. Existen en otros planetas seres humanos o exponentes de la autoconciencia? pero las formas que utilizan no son iguales a las nuestras.
+
+Luego tenemos la fuerza de atracción del Logos planetario, Vida complementaria de nuestro Logos. Esto implica un Logos planetario que responde a la vibración que armoniza con la de nuestro Logos, pero que al unirse a él forma lo que podría llamarse “el Tercero” o Su dominante, según sea el caso. No es posible revelar si la fusión de la nota hará que nuestro esquema absorba aquello que expresa la nota de otro esquema o. viceversa. Lo que significa es que en algún lugar del sistema solar existe un esquema planetario de determinado tipo (no necesariamente uno de los siete o los diez) que se interacciona con el nuestro y, por consiguiente, afecta inevitablemente a los grupos egoicos. También debemos observar el hecho de que -relacionado a la expresión de un Hombre celestial- los grupos egoicos son centros de energía y, oportunamente, hacen de Su cuerpo físico denso un hecho consumado.
+
+Finalmente, existe la fuerza de atracción de ese esquema planetario que es considerado esotéricamente como nuestro polo opuesto. <pin lang="en">1191</pin> (Lo que se dice puede aplicarse a los demás esquemas, ya que la ley tiene vigencia en todo el sistema solar.)
+
+Será evidente, por lo tanto, que la verdadera astrología esotérica se ocupará de cuatro tipos de fuerza, cuando defina la naturaleza de las energías que influencian a todo ser humano:
+
+1. La cualidad del sistema solar.
+2. La cualidad del Logos planetario a medida que va compenetrando las cadenas, globos y rondas, en séptuple diferenciación.
+3. La cualidad del planeta complementario de nuestra tierra. <pin lang="es">931</pin>
+4. La cualidad de atracción de los polos opuestos de nuestra tierra.
+
+Esto presupone una información aún velada por el misterio más profundo, pero que se develará a medida que se estudie la verdadera psicología, y formará parte finalmente de un cuarto fundamento de La Doctrina Secreta, a fin de que los futuros estudiantes tengan el cuarto [^5] además de los tres que ya están en el proemio de ese libro. Esto quizás acontezca en esta cuarta ronda. La verdadera astrología revelará la naturaleza de esta cuarta proposición en fecha posterior. Finalmente, se pondrá mayor atención a las influencias planetarias, no tanto a los signos del zodíaco, respecto a la naturaleza de un Ego. Los grandes signos del zodíaco conciernen al Hombre celestial y, por lo tanto, lógicamente, a la Mónada de todo ser humano. Las influencias planetarias deben estudiarse para conocer la cualidad del Rayo de un hombre, en la triple forma indicada anteriormente. El hombre es la Mónada, en consecuencia expresa una pequeña parte de su abarcante vida. En este sistema solar es esencialmente el Ego.
+
+:::note Recuerda
+
+Finalmente, se pondrá mayor atención a las influencias planetarias, no tanto a los signos del zodíaco, respecto a la naturaleza de un Ego. Los grandes signos del zodíaco conciernen al Hombre celestial y, por lo tanto, lógicamente, a la Mónada de todo ser humano. Las influencias planetarias deben estudiarse para conocer la cualidad del Rayo de un hombre, en la triple forma indicada anteriormente. El hombre es la Mónada, en consecuencia expresa una pequeña parte de su abarcante vida. En este sistema solar es esencialmente el Ego.
+
+:::
+
+Los astrólogos debieran estudiar los esquemas planetarios a la luz del Hombre celestial, contemplándolos como la encarnación <pin lang="en">1192</pin> de un Logos planetario y tratando de extender el horóscopo de Este. No lograrán hacerlo, pero en su intento aprenderán mucho y obtendrán una nueva luz sobre este tema tan difícil.
+
+Al considerar la adaptación de la forma a la vibración, o la construcción de un vehículo, para ser instrumento adecuado del espíritu, se deben tener presente los siguientes factores:
+
+1. Que la cualidad de la vida interna decide el tipo de forma.
+2. Que dichas cualidades son la suma total de los atributos de la divinidad, desarrollados por la vida interna.
+3. Que estas cualidades -como se presumirá- están comprendidas en el septenario común.
+4. Que también se dividen en dos grupos, el que concierne a los principios inferiores, siendo por lo tanto cuatro, y el que concierne a lo superior e intermedio, siendo por consiguiente tres.
+
+Esto es aplicable a los hombres, a los Hombres celestiales y al Logos solar, existiendo una misteriosa analogía relacionada con la manifestación de los tres principios superiores del hombre (que pueden considerarse en manifestación en el Adepto perfecto, el Bodhisattva) y los tres principios superiores del Logos solar a medida que se expresan a través de los tres aspectos principales. <pin lang="es">932</pin> Forman un sólo principio, el cual se manifiesta de tres maneras. Lo mismo ocurre con la mónada inmanifestada (inmanifestada desde el punto de vista del hombre inferior). En una etapa de evolución muy avanzada, mucho más allá de la del Adepto, la Mónada tiene su triple manifestación y aparece como un Maestro en los tres mundos, un Bodhisattva en Su propio plano y el emancipado Dhyan Buda, sin embargo los Tres serán Uno, <pin lang="en">1193</pin> resultado de una gran vibración espiritual, y desempeñarán una triple tarea que quizás (en los tres mundos) aparezca como la tarea de tres grandes Existencias separadas. Constituyen las formas de tres "vestiduras" monádicas, utilizadas por una sola Mónada, de la misma manera que el hombre utiliza sus tres cuerpos simultáneamente y funciona en ellos separadamente. [^6]
+
+Cada uno de los tres puede, si quiere, ocupar un cuerpo en el plano físico, que no será simplemente una creación de mayavirupa. Esto se hace de dos maneras: por medio de la ocupación de un cuerpo voluntariamente abandonado, como el caso de Cristo cuando ocupó el cuerpo de Jesús, o por la influencia divina ejercida sobre el discípulo, como ya ha sucedido y volverá a suceder. La cualidad de la forma ocupada o utilizada y la naturaleza de su trabajo depende de uno de los tres aspectos superiores del impulso <pin lang="es">933</pin> iniciático que se está manifestando. Raras veces tiene lugar un fenómeno tan misterioso, y los influyentes Buda, Bodhisattva o Adepto toman forma y hacen Su "aparición" <pin lang="en">1194</pin> en la tierra, expresando así los tres aspectos, conocimiento, amor y voluntad.
+
+Esto puede ser muy complejo, pero no es mucho más extraño, después de todo, que el fenómeno de la Mónada (en tiempo y espacio y durante la evolución) demostrándose como la Tríada, el Ego y la Personalidad. Este tipo de triple Avatar sólo hace su aparición durante una serie peculiar de ciclos relacionados con un grupo de Mónadas que eran las que más habían progresado y avanzado al iniciarse el mahamanvantara. Hasta ahora no han progresado suficientemente como para realizar este triple trabajo; el Buda y otros nueve más son los únicos Seres que mantienen contacto con nuestro planeta de esta manera particular. Muy pocos, como Cristo, tienen el poder de aparecer en forma dual. Este tipo de mónada se encuentra sólo en el segundo Rayo.
+
+Si el estudiante tiene presente que la naturaleza de la forma depende de la cualidad de la Vida encarnante, también tendrá que recordar la distinción que debe hacerse entre los diversos grupos de Jerarquías, porque las Vidas en esos grupos tienen distintas cualidades y las formas a través de las cuales se manifiestan son igualmente distintas y diversas. Por lo tanto, debemos distinguir entre:
+
+1. Los grupos involutivos.
+2. Los grupos evolutivos.
+3. Los siete grupos de vidas denominadas Padres lunares:
+   1. Tres incorpóreos, los reinos elementales.
+   2. Cuatro materiales, las formas de los cuatro reinos en el arco ascendente.
+4. Las siete Jerarquías de Vidas.
+5. Los siete grupos de Ángeles solares.
+
+No debe confundirse respecto a la diferencia existente entre las Jerarquías de Seres y los siete Rayos, porque <pin lang="en">1195</pin> aunque haya íntima relación no hay semejanza. Los "Rayos" son sólo las formas primordiales de ciertas Vidas que "llevan en sus Corazones" todas las Semillas de la Forma. Las Jerarquías son los múltiples grupos de vidas, en todas las etapas de desarrollo y crecimiento que usarán las formas. [^7] Los Rayos son vehículos y, por lo tanto, receptores <pin lang="es">934</pin> negativos. Las Jerarquías usan dichos vehículos, y la naturaleza de estas vidas y la cualidad de su vibración les procuran, de acuerdo a la gran Ley de Atracción, las formas necesarias. Estas son las dos diferencias principales, Vida y Forma, y ambas son el "Hijo de Dios", la segunda Persona de la Trinidad en Su aspecto constructor de formas; también son los Constructores y están igualmente divididos en tres grupos con sus diferenciaciones menores. No es necesario ubicar aquí estos grupos en ciertos planos del sistema solar.
+
+Estas Jerarquías de Seres que llegan mediante el Rayo de Luz proveniente del centro, son las simientes de todo lo que luego existe, y sólo cuando vienen a la manifestación y evolucionan gradualmente las formas que ocupan, se hace necesario considerar los planos. Los planos, para algunas de estas jerarquías, son lo que las envolturas para la Mónada, los velos para la Vida inmanente, medios de expresión y exponentes de fuerza o energía, de un tipo especializado. La cualidad de un <pin lang="en">1196</pin> Rayo depende de la cualidad de la Jerarquía de Seres que lo utiliza como medio de expresión. Estas siete Jerarquías están veladas por los Rayos, pero cada una se encuentra detrás del velo de cada rayo, porque en su totalidad son las vidas que dan forma a todo esquema planetario dentro del sistema; constituyen las vidas de todo el espacio interplanetario, las existencias que se expresan a través de los planetoides y todas las formas de vida independizada inferior a un planeta. Daré brevemente algunas indicaciones concernientes a estas jerarquías que pueden servir para elucidar lo que en La Doctrina Secreta se relaciona con ellas.
+
+Lo que se imparte aquí no es en sí nuevo, sino la síntesis de lo mucho que ya se conoce y su recopilación en breves enunciados.
+
+
 
 
 [^1]: D. S. I, 89, 100-101.
@@ -269,3 +328,19 @@ Cada uno de estos términos pueden ser explicados como energía de atracción, s
 [^2]: D. S. I, 250; IV, 156-157.
 
 [^3]: D. S. IV, 62-64.
+
+[^4]: D. S. I, 218; II, 121; III, 211.
+
+[^5]: D. S. I, 79-81.
+
+[^6]: Las Tres Vestiduras."La corriente es cruzada. Es verdad que tienes derecho a la vestidura de Dharmakaya; pero Sambhogakaya es más grande que un Nirvani, y es aún más grande que un Nirmanakaya - el Buda de Compasión." La Voz del Silencio, pág. 96.
+
+     "Los tres cuerpos o formas búdicas son denominadas: Nirmanakaya, Sambhogakaya, Dharmakaya.
+
+     La primera es esa forma etérea que uno adopta cuando abandona el cuerpo físico y aparece en su cuerpo astral -poseyendo por añadidura todo el conocimiento de un Adepto. El Bodhisattva la desarrolla en sí a medida que prosigue en el sendero. Habiendo alcanzado la meta y rehusado a sus frutos, continúa en la tierra como Adepto; cuando muere, en vez de ir al Nirvana permanece en ese cuerpo glorioso que ha tejido para sí, invisible para la humanidad no iniciada, velando por él y protegiéndolo.
+
+     Sambhogakaya es lo mismo, pero con el brillo adicional de tres perfecciones, una de las cuales es la completa abstención de toda preocupación terrena.
+
+     El cuerpo Dharmakaya es el Buda completo, es decir, ningún cuerpo, sino un aliento ideal; la conciencia fusionada en la conciencia universal, o el alma desprovista de todo atributo. Una vez un Dharmakaya, Adepto o Buda abandona todo posible vínculo o pensamiento de esta tierra. A fin de capacitarse para ayudar a la humanidad un Adepto que ha obtenido el derecho al Nirvana, "renuncia al cuerpo de Dharmakaya" en lenguaje místico; del Shambhogakaya sólo guarda el gran y total conocimiento, y permanece en su Nirmanakaya. La escuela esotérica enseña que Gautama Buda, con varios de sus Arhats, es tal Nirmakaya, desconociéndose algo superior a Él, debido a su gran renunciación y sacrificio por la humanidad." Voz del Silencio, pág. 97.
+
+[^7]: Las Doce Jerarquías Creadoras. Los estudiantes se desconciertan frecuentemente cuando tratan de explicar las "doce" que existen en el cosmos. Un corresponsal envía la siguiente sugerencia: En el Estudio sobre la Conciencia, los tres, mediante un ordenamiento de las agrupaciones internas, muestran siete grupos. Éstos pueden representarse como abc, acb, bca, bac, cab, cba, y un séptimo, una síntesis donde los tres son iguales. Un segundo seis sería representado por (AB)C, C(AB), A(BC), (BC)A, (CA)B, B(AC), siendo los dos entre paréntesis iguales y el tercero más fuerte o más débil. Los dos grupos de seis y el grupo en que los tres son iguales, forman trece. "Estos trece pueden ordenarse como un círculo de doce, con uno en el centro. El central será sintético y de ese tipo en que los tres son iguales. La analogía física de ellos son los doce signos del Zodiaco con el Sol en el centro, sintetizándolos a todos. La analogía espiritual serán las doce Órdenes creadoras con el Logos en el centro, sintetizándolo todo." El ordenamiento es completamente legítimo. The Theosophist. T. XXIX, pág. 100.
