@@ -320,6 +320,121 @@ Estas Jerarquías de Seres que llegan mediante el Rayo de Luz proveniente del ce
 
 Lo que se imparte aquí no es en sí nuevo, sino la síntesis de lo mucho que ya se conoce y su recopilación en breves enunciados.
 
+Cada una de estas siete Jerarquías de Seres, Constructores o Agentes de Atracción, son los agentes constructores (según su categoría) intermediarios; todos encarnan uno de los tipos de fuerza que emana de las siete constelaciones. Por lo tanto, su trabajo como intermediarios es dual, siendo: <pin lang="es">935</pin>
+
+1. Los mediadores entre el Espíritu y la materia.
+2. Los que trasmiten a las formas que están dentro del sistema solar la fuerza que proviene de fuentes foráneas al sistema solar.
+
+Cada grupo de estos Seres es de naturaleza septenaria, y los cuarenta y nueve fuegos de Brahma son la manifestación inferior de su naturaleza ígnea; cada grupo también puede considerárselo "caído" en sentido cósmico, porque están implicados en el proceso de construcción o son los ocupantes de formas de distintas densidades.
+
+#### 1ra. Jerarquía.
+
+1ra. Jerarquía. Emana del Corazón del Sol espiritual central. [^8] Es el Hijo de Dios, el Primogénito en sentido cósmico, como Cristo fue el "Hermano mayor de una vasta <pin lang="en">1197</pin> familia" y la "primera flor de la planta humana". El símbolo de esta Jerarquía es el Loto dorado con sus doce pétalos plegados.
+
+Ha de recordarse que esta Jerarquía es la sexta, pues ya han desaparecido cinco que fueron producto del sistema anterior, donde el objetivo era la Inteligencia o Manas. Las cinco jerarquías liberadas son la suma total de manas. En el orden es la quinta Jerarquía, y se dice que está en proceso de lograr la liberación final o recibir su cuarta Iniciación, causa de cierto fenómeno en nuestro planeta que ha merecido ser llamado la "Estrella del Sufrimiento". Existe un vínculo kármico entre el reino animal y la quinta Jerarquía creadora del sistema anterior, que se hace sentir en el hombre en la necesaria crucifixión de la naturaleza física animal, especialmente en la línea sexual. Debemos recordar que las jerarquías actúan bajo la Ley de Atracción, Ley de los Constructores.
+
+Esta primera (sexta) Jerarquía tiene como tipo de energía el primer aspecto del sexto tipo de electricidad cósmica, por lo tanto maneja un poder especial, conjuntamente con el fuego inferior o "fuego por fricción", a medida que se hace sentir en el sexto plano. Dichas vidas son llamadas "los ardientes Hijos del deseo" y fueron "los Hijos de la necesidad". Respecto a ellos el Antiguo Comentario dice:
+
+> Ardían por saber. Se lanzaron hacia las esferas. Constituyendo la ansiedad del Padre por la Madre. Sufren por ello, se consumen y anhelan, por medio de la sexta esfera de sensación.
+
+#### 2a. Jerarquía.
+
+2a. Jerarquía. Está estrechamente vinculada con la Osa Mayor. Se nos ha dicho que entró a través del segundo ventrículo del Sagrado Corazón y es (como se dice en La Doctrina Secreta) el prototipo de la Mónada. Es la fuente de la Vida monádica, pero no la Mónada; está muy por encima de ella.
+
+<p><pin lang="es">936</pin> <pin lang="en">1198</pin> Esta jerarquía, literalmente la séptima, permite la afluencia a nuestro sistema de esas Vidas que en el primer sistema solar permanecieron en su propio plano, siendo demasiado puros y santos para obtener una oportunidad en esa evolución tan material e intelectual. Aun en ésta, lo único que podrán hacer es influenciar a los Jivas encarnantes, impartiéndoles la capacidad para comprender la naturaleza de la conciencia grupal, la cualidad de los siete Hombres celestiales, pero no serán capaces de expresarse a sí mismos plenamente. Se obtendrá una clave de este misterio si el estudiante considera cuidadosamente que en nuestro sistema solar y en nuestros siete planos tenemos únicamente el cuerpo físico del Logos, y que ese cuerpo es una limitación para la expresión de Su triple naturaleza. La primera (sexta) Jerarquía trata de expresar la vibración mental del Logos solar, y la segunda su naturaleza emocional o astral cósmica.</p>
+
+La segunda (séptima) Jerarquía tiene como tipo de fuerza al segundo aspecto del séptimo tipo de fuerza de los muchos que ya existen. Se obtendrá una idea del grado relativo de evolución del Logos solar, mediante el estudio de los diversos aspectos de fuerza que está expresando en esta particular encarnación. Dicha energía impulsa a las Mónadas a la encarnación física, pues se hace sentir en el séptimo plano. Las energías que están funcionando son las que el Logos a desplegado, siendo el fruto de anteriores adquisiciones. Lógicamente existen brechas y faltan ciertos tipos de fuerza debido a que todavía ha de adquirir muchas cosas cósmicamente.
+
+La energía de esta Jerarquía (cuyos números son el dos y el siete) produce la manifestación del divino Andrógino y los siete centros de fuerza que constituyen las siete Energías espirituales.
+
+#### 3ra. Jerarquía.
+
+3ra. Jerarquía (la octava). Es particularmente interesante Se denomina "las Tríadas", porque contiene en sí las potencias <pin lang="en">1199</pin> de la triple evolución, mental, síquica y espiritual. Esta Tríada de Vidas constituye las tres Personas y, desde cierto punto, la flor del sistema anterior. Visto desde otro ángulo, cuando es estudiada como la "flor de las Ocho anteriores", constituye los óctuples puntos que esperan la oportunidad de surgir como llamas. Son los devas preparados para servir, lo cual consiste en dar a otra jerarquía ciertas cualidades que no tiene. Esta Jerarquía es considerada como que otorga la inmortalidad mientras ellos mismos se "mantienen fuera de encarnación". Son los Señores de Sacrificio y Amor, pero no pueden salir del cuerpo etérico logoico y entrar al vehículo físico denso.
+
+Dicha Jerarquía maneja el tercer aspecto de la fuerza eléctrica del primer tipo de energía cósmica. Representa el ciclo consecutivo de ese primer tipo simbolizado por el número 8. Las fórmulas de <pin lang="es">937</pin> estas energías eléctricas son demasiado complicadas para darse aquí, pero el estudiante debe tener presente que esta Jerarquía expresa:
+
+1. Energía cósmica septenaria.
+2. Prana cósmico.
+3. Energía solar o fuego eléctrico, fuego solar o fuego por fricción.
+
+Cada jerarquía manifiesta una triple energía o un aspecto de cada uno de los mencionados, los cuales tienen nueve diferenciaciones, porque las dos primeras son triples igual que la tercera. Al rechazar los entes de la cuarta Jerarquía o Mónadas humanas, a las triples Vidas, produce oportunamente la precipitación del hombre a la octava esfera. Se niega a convertirse en un Cristo, un Salvador, permaneciendo auto centrado.
+
+Hemos tratado ya las primeras tres jerarquías consideradas como que siempre "ven la Faz del Regente de la Profundidad" o que son tan puras y santas que Sus fuerzas están en contacto con Su fuente de emanación.
+
+Consideraremos ahora muy brevemente dos jerarquías, <pin lang="en">1200</pin> las cuales nos conciernen muy de cerca, los entes humanos autoconscientes. Estos dos grupos son literalmente tres, así como la quinta Jerarquía es dual, produciendo cierta confusión; su significado oculto subyace detrás del fatídico número trece. Son los "Buscadores de la satisfacción" y la causa de que tengan que "caer por segunda vez" a la generación, ésta es la razón por la cual el Ego adopta una naturaleza inferior. La cuarta y la quinta Jerarquías son la novena y la décima o los "Iniciados" y los "Seres Perfectos". Todos los seres humanos o "Jivas Imperecederos", son aquellos que evolucionan por medio de una serie graduada de iniciaciones auto-inducidas o producidas en nuestro planeta con ayuda extraña. Esto lo obtienen mediante el "matrimonio" realizado en el orden inmediato, el quinto. Ellos se complementan y perfeccionan, y debido a este hecho oculto la cuarta Jerarquía es considerada masculina y la quinta femenina.
+
+#### 4ta. Jerarquía.
+
+4ta. Jerarquía. En el grupo de la cuarta Jerarquía creadora se halla el aspecto más elevado del hombre, su "Padre en el Cielo". Estas vidas son los puntos de fuego que deben convertirse en la llama, realizándose por intermedio de la quinta Jerarquía y de los cuatro pabilos o las dos jerarquías duales inferiores. De esta manera podrá observarse que en lo concerniente al hombre, la cuarta, quinta, sexta y séptima jerarquías son, durante el ciclo de encarnación, su mismo ser. Constituyen los "Señores de Sacrificio" y los "Señores de Amor", la flor de Atma-budi.
+
+<p><pin lang="es">938</pin> Al estudiar estas jerarquías, una de las más valiosas lecciones que se ha de aprender es el lugar que ocupa el hombre y la importancia que tiene en el esquema. La jerarquía, por ejemplo, que es la esencia de la intangible Vida del Espíritu y principio budi, es la causa esotérica del matrimonio cósmico entre espíritu y materia basado en el amor y el deseo del Logos, pero cada jerarquía se expresa también por medio de esa manifestación particular que la mente finita del hombre considera como la jerarquía misma. Pero <pin lang="en">1201</pin> no es así, y debe tenerse cuidado para saber distinguir dichas jerarquías.</p>
+
+Constituyen gérmenes latentes de centros de fuerza y se manifiestan subjetivamente; dan calor y vitalizan a grupos de formas; florecen y se expresan por medio de una forma o de otra jerarquía. Están interrelacionadas y son negativas o positivas entre sí, según el caso.
+
+Como se afirma en La Doctrina Secreta, esta jerarquía constituye el plantel de los Jivas encarnantes, [^9] y lleva en silos gérmenes de las Vidas que alcanzaron la etapa humana en otro sistema solar, pero no estaban capacitadas para proseguir más allá debido a la llegada del pralaya, que los impulsó a un estado de latencia. a condición de la jerarquía, en escala cósmica, es similar a las simientes de la vida humana retenidas en estado de oscuración durante un período intercadenario. Las tres jerarquías que hemos tratado (primera, segunda y tercera) fueron las que (en anteriores kalpas de manifestación logoica) habían pasado más allá de la etapa humana. Por lo tanto son grupos amorfos, así como los restantes son grupos rupa, o aquellos que tienen forma.
+
+La cuarta Jerarquía creadora, la novena, ocupa en este sistema solar lo que podría considerarse el tercer lugar:
+
+1. Primero, las Vidas o las tres Personas de la Trinidad.
+2. Segundo, los Prototipos del hombre, los siete Espíritus.
+3. Tercero, el hombre o la manifestación inferior del aspecto Espíritu autoconsciente.
+
+Es necesario considerar cuidadosamente esto pues no se refiere al aspecto forma sino únicamente a la naturaleza de las vidas que se expresan a través de otras vidas, que también son autoconscientes o plenamente inteligentes, mientras ciertas jerarquías no lo son.
+
+<p><pin lang="en">1202</pin> Las cuatro jerarquías inferiores se ocupan de la manifestación en los tres mundos o del cuerpo físico denso del Logos solar. Son las que pueden descartar o bien atravesar el cuerpo etérico del Logos solar y tomar esas formas compuestas de sustancia gaseosa, <pin lang="es">939</pin> líquida o densa. Las otras no pueden hacerlo ni pertenecen a la generación física.</p>
+
+Los estudiantes deben tener en cuenta que, desde el punto el vista del Logos, los Ángeles solares en el plano mental (el quinto subplano del plano físico cósmico), están en encarnación física, y lo que se dice "caer por segunda vez" es aplicable aquí. La primera caída significa tomar una forma construida de materia etérica cósmica, tal como sucede con los Hombres celestiales, los prototipos de los jivas humanos. En este último caso los cuerpos utilizados se llaman "amorfos" desde nuestro punto de vista, siendo "cuerpos vitales" animados por el prana cósmico. En nuestro caso y en los grupos restantes, las formas están compuestas de sustancia de los tres planos inferiores (aquellos que el Logos no considera un principio) y, por lo tanto, es materia que todavía responde a la vibración del sistema anterior. Ello significa que las cuatro jerarquías inferiores son eslabones entre la vida pasada y futura. Constituyen el presente. Como no habían finalizado el contacto con el principio inteligencia activa del kalpa anterior, deben continuar su contacto en éste. Lo lograrán en el presente sistema; los cuatro se convertirán en los tres y constituirán entonces las tres jerarquías arupa superiores del próximo sistema.
+
+Antes de continuar considerándolas, es necesario señalar que a algunas se las denomina "jerarquías dominantes" y a otras "jerarquías subsidiarias". Significa que en este sistema solar unas se están expresando más plenamente que otras, lo cual entraña, como consecuencia, que su vibración será más sentida que la de los grupos subsidiarios. <pin lang="en">1203</pin> Los grupos dominantes son el segundo, el cuarto y el quinto, y ello se debe a que:
+
+1. El segundo es la gran expresión de la dualidad, el Hijo vitalizado por el Sol.
+2. El cuarto es la jerarquía de Mónadas humanas, la mediadora o sintetizadora, expresando el fruto del 1er. Sistema y la meta del 2do. Sistema.
+3. El quinto o décimo está estrechamente vinculado con las cinco jerarquías liberadas, siendo una expresión de su vida sintetizada. Podría decirse entonces que la quinta Jerarquía sirve como representante de los cinco grupos liberados, y el cuarto es el grupo representante del actual sistema, mientras que la segunda representa (para el hombre o ambos grupos unidos) aquello que es el aspecto Espíritu, el Padre, lo Desconocido.
+
+#### 5ta. Jerarquía.
+
+5ta. Jerarquía. Como sabemos por el estudio de La Doctrina Secreta, la quinta Jerarquía creadora es muy enigmática. Este <pin lang="es">940</pin> misterio incide sobre la relación de la quinta Jerarquía con los cinco grupos liberados. Dicha relación, en conexión con nuestro planeta particular, que no es un planeta sagrado, puede ser comprendida en parte si se observa la historia de Buda y su obra. En La Doctrina Secreta, T. VI, se habla sobre esto.
+
+La relación de la quinta Jerarquía con cierta constelación tiene también que ver con este misterio. Se halla oculto en el karma del Logos solar y concierne a Su relación con otro Logos solar y a la interacción de fuerza entre ambos en un maha-kalpa mayor. Encierra el verdadero "secreto del Dragón", y fue la influencia del dragón o la "energía serpentina" lo que causó el influjo de energía manásica o mental en el sistema solar. Mezclado estrechamente con el karma de estas dos Entidades <pin lang="en">1204</pin> cósmicas, estaba el de esa Entidad cósmica menor, la Vida de nuestro planeta, el Logos planetario. Este triple karma introdujo la "religión serpentina" y las "Serpientes o Dragones de Sabiduría" en los días lemurianos. Tenía que ver con el kundalini solar y planetario o fuego serpentino. Existe un indicio en el hecho de que la constelación del Dragón tiene la misma relación con el UNO, mayor que nuestro Logos, como el centro en la base de la columna vertebral con el ser humano. Concierne al estímulo y vitalización y la consecuente coordinación de los fuegos en manifestación.
+
+También tenemos una clave del misterio en la relación que existe entre dicho quinto grupo y los dos polos contrayentes. Son los quíntuples Vínculos, "los Unidores benignos" y "los Productores de la expiación". Esotéricamente son "los Salvadores de la Raza" y de Ellos emana ese principio que en conjunción con el aspecto más elevado- eleva al aspecto inferior hasta el Cielo.
+
+Cuando estos misterios sean cuidadosamente estudiados, incluyendo el estudio de la vida de los más grandes exponentes del principio de unificación, se evidenciará lo grande e importante que es su lugar en el esquema.
+
+Por esta razón las Entidades de la quinta Jerarquía son llamadas "los Corazones del Amor Ardiente"; salvan mediante el amor; a su vez dichas vidas están particularmente cerca del gran Corazón de Amor del Logos solar. Estos grandes Ángeles de redención, los Hijos de los Hombres en su plano verdadero, el mental, son por lo tanto descritos siempre como que tienen forma de loto de doce pétalos -esta simbología los vincula con "el Hijo del divino Amor", el sistema solar manifestado, del que se dice que es un loto cósmico de doce pétalos; el loto causal logoico tiene igualmente doce pétalos.
+
+Tenemos entonces una afluencia directa de energía que viene a través de: <pin lang="es">941</pin> <pin lang="en">1205</pin>
+
+1. El Loto egoico de doce pétalos logoicos. El plano mental cósmico.
+2. El Loto solar de doce pétalos.
+3. El Corazón logoico planetario, también un Loto de doce pétalos.
+4. El loto egoico humano de doce pétalos en el plano mental.
+5. El centro cardíaco de doce pétalos de un ser humano.
+
+Expresado de otra manera, la energía fluye directamente de:
+
+1. El Logos solar por medio de tres grandes centros cósmicos:
+   1. El Sol espiritual central.
+   2. El corazón del Sol.
+   3. El Sol físico.
+2. El centro cardíaco del Logos planetario, situado en el cuarto plano etérico cósmico o plano búdico.
+3. El loto egoico de un ser humano en el plano mental, lo cual es literalmente una analogía del "corazón del sol". El punto monádico es un reflejo en el sistema humano del "sol central espiritual".
+4. El centro cardíaco de un hombre en el plano etérico del plano físico, el cual es a su vez una analogía del sol físico.
+
+De esta manera el minúsculo átomo humano se conecta con la gran Vida central del sistema solar.
+
+Esta quinta Jerarquía constituye igualmente, de acuerdo a la ley, un distribuidor de energía para el quinto subplano de cada plano en el sistema; sólo debe tenerse en cuenta que en los tres mundos es el quinto subplano, considerado desde arriba hacia abajo, mientras que en los mundos de la evolución superhumana es el quinto desde abajo hacia arriba. Esta jerarquía maneja, como sabemos, los aspectos duales de manas, uno en los tres mundos y otro se hace sentir en esferas superiores.
+
+<p><pin lang="en">1206</pin> Ha de recordarse que estos grupos son (aunque se los denomine "amorfos") las verdaderas formas de todo lo que perdura, pues todos se hallan en el cuerpo etérico del Logos solar y planetario. Este es un punto que requiere cuidadoso énfasis; el estudiante ha considerado durante mucho tiempo que la forma es el cuerpo físico denso, mientras que para el ocultista el cuerpo físico no constituye la forma sino maya o una burda ilusión, y considera al cuerpo vital la verdadera forma. Por lo tanto, estas jerarquías son la suma total de la vidas vitales y el sustrato, o la sustancia, de todo lo que existe. Podemos considerar el tema de la manera siguiente: <pin lang="es">942</pin></p>
+
+1. Los cuatro grupos superiores son la expresión de las jerarquías a través de los tres éteres cósmicos, el segundo, el tercero y el cuarto.
+2. Los dos grupos inferiores constituyen las vidas que actúan como materia involutiva (orgánicas o inorgánica) del cuerpo físico denso logoico, del líquido y del gaseoso, con la sustancia viviente de los cuatro subplanos superiores del cuerpo físico denso del sistema.
+3. La quinta Jerarquía tiene una posición interesante como cuerpo mediador entre los cuatro grupos superiores y los que se encuentran en los tres subplanos inferiores. Existe una analogía vital y significativa entre los siete centros de la cabeza y los siete grupos de Egos en el plano mental, y una analogía oculta entre los tres centros de la cabeza (glándula pineal, cuerpo pituitario y centro alta mayor) y la expresión de estos siete grupos de Egos en los tres mundos. Este es un hecho esotérico muy importante y todos los que practican la meditación sobre las leyes de unificación deben tener en cuenta esta analogía.
+
+Es útil recordar el lugar de estas jerarquías en el esquema y comprender que alrededor de la totalidad de estos cuerpos vitales se reúne gradualmente la manifestación densa, a la cual consideramos materia evolutiva. Las formas (desde la forma de cada átomo hasta el <pin lang="en">1207</pin> cuerpo del Ego, desde la forma de una flor hasta el inmenso loto planetario o solar) son construidas porque las jerarquías existen como conjunto de vidas germinales, que dan impulso, proporcionan el modelo y constituyen, por su misma existencia, la razón de ser de todo lo visible en cada plano.
+
+#### 6ta. y 7ma. Jerarquías.
+
 
 
 
@@ -344,3 +459,7 @@ Lo que se imparte aquí no es en sí nuevo, sino la síntesis de lo mucho que ya
      El cuerpo Dharmakaya es el Buda completo, es decir, ningún cuerpo, sino un aliento ideal; la conciencia fusionada en la conciencia universal, o el alma desprovista de todo atributo. Una vez un Dharmakaya, Adepto o Buda abandona todo posible vínculo o pensamiento de esta tierra. A fin de capacitarse para ayudar a la humanidad un Adepto que ha obtenido el derecho al Nirvana, "renuncia al cuerpo de Dharmakaya" en lenguaje místico; del Shambhogakaya sólo guarda el gran y total conocimiento, y permanece en su Nirmanakaya. La escuela esotérica enseña que Gautama Buda, con varios de sus Arhats, es tal Nirmakaya, desconociéndose algo superior a Él, debido a su gran renunciación y sacrificio por la humanidad." Voz del Silencio, pág. 97.
 
 [^7]: Las Doce Jerarquías Creadoras. Los estudiantes se desconciertan frecuentemente cuando tratan de explicar las "doce" que existen en el cosmos. Un corresponsal envía la siguiente sugerencia: En el Estudio sobre la Conciencia, los tres, mediante un ordenamiento de las agrupaciones internas, muestran siete grupos. Éstos pueden representarse como abc, acb, bca, bac, cab, cba, y un séptimo, una síntesis donde los tres son iguales. Un segundo seis sería representado por (AB)C, C(AB), A(BC), (BC)A, (CA)B, B(AC), siendo los dos entre paréntesis iguales y el tercero más fuerte o más débil. Los dos grupos de seis y el grupo en que los tres son iguales, forman trece. "Estos trece pueden ordenarse como un círculo de doce, con uno en el centro. El central será sintético y de ese tipo en que los tres son iguales. La analogía física de ellos son los doce signos del Zodiaco con el Sol en el centro, sintetizándolos a todos. La analogía espiritual serán las doce Órdenes creadoras con el Logos en el centro, sintetizándolo todo." El ordenamiento es completamente legítimo. The Theosophist. T. XXIX, pág. 100.
+
+[^8]: D. S. I, 235-250; VI, 199-200.
+
+[^9]: D. S. I, 239.
