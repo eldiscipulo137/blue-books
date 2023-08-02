@@ -484,6 +484,81 @@ Es conveniente observar aquí que el problema de establecer un nexo entre el ani
 
 ## III. RELACIONES GRUPALES
 
+El hombre no se ha equivocado al establecer relaciones grupales con los reinos superhumanos, aunque ha hecho sólo un progreso relativamente pequeño, y pocos son los entes humanos que han fusionado su conciencia con la de las Inteligencias mayores rectoras permaneciendo sin embargo en la familia humana. Éste es el verdadero Raja Yoga.
+
+Será evidente entonces que en el cuarto reino o reino humano, donde la cuarta jerarquía trata de adquirir experiencia, se ha iniciado un esfuerzo para lograr la fusión o centralización de las fuerzas de los tres grupos:
+
+1. La energía que representa al reino animal.
+2. La energía estrictamente humana. <pin lang="en">1214</pin>
+3. La energía espiritual del grupo exponente de la fuerza búdica, introduciendo así durante la tercera gran realización, la fuerza misma de atma de la cual budi es sólo el vehículo.
+
+Estas tres corrientes de fuerza deben mantener la siguiente posición:
+
+|                |              |
+| -------------- | ------------ |
+| Fuerza búdica  | positiva.    |
+| Energía humana | equilibrada. |
+| Energía animal | negativa.    |
+
+Expresándolo de otro modo, el factor controlador positivo en el grupo humano debería ser la energía espiritual, y la naturaleza animal debería ser totalmente receptiva a dicha energía, manteniéndose entre ambas la posición relativa de Padre-Madre. La energía puramente humana sirve como factor equilibrador, y origina un reajuste entre los aspectos Espíritu y materia. Esta triple relación grupal convierte al microcosmos en un reflejo exacto del Hombre superior y al cuarto reino en un verdadero exponente de los procesos cósmicos.
+
+Las mismas leyes rigen las relaciones en los tres factores y la interrelación grupal de los aspectos Brahma-Vishnu-Shiva; tiempo y espacio o "divina oportunidad" desempeñan su parte en el <pin lang="es">948</pin> trabajo grupal tanto micro como macrocósmico, y la evolución cíclica prosigue su tarea de reajuste grupal para ambas unidades, a fin de traer la eventual armonía grupal en ambos casos. Constituye la armonía del individuo consigo mismo y con los entes circundantes y su comprensión de la unidad esencial de todas las vidas que producen las grandes expansiones de conciencia y conducen a la identificación del individuo con algún todo mayor.
+
+La tarea de un átomo humano es, por lo tanto, una réplica de lo que ocurre en el átomo solar o planetario, y sirve de incentivo para esas minúsculas vidas individuales que tienen su lugar en los seis reinos subhumanos (<pin lang="en">1215</pin> tres elementales y tres materiales). En un caso tenemos una analogía de naturaleza tan íntima que es casi una réplica en pequeña escala, en el otro las analogías producidas por lo que puede considerarse un reflejo del todo; en ambos casos tenemos relaciones grupales básicas, leyes grupales fundamentales que producen interrelaciones grupales y la unión esencial entre todas las formas de vida. No tengo la intención de decir mucho acerca de las formas y trabajos grupales, le corresponde a cada uno estudiarse a sí mismo y a todo lo que lo circunda y así llegar a sus propias conclusiones.
+
+Concluiremos esta parte del tratado con una breve enumeración de:
+
+1. Las tres relaciones atómicas.
+2. Las siete leyes del trabajo grupal.
+3. Los veintidós métodos de interacción.
+
+Estos treinta y dos aspectos e ideas deben aplicarse gradualmente a cada átomo, a las pequeñas vidas, suma total de todos los mundos materiales, al átomo planetario, al macrocosmos para todo lo que existe en los cinco planos, y al átomo solar, síntesis de todo lo que existe en los siete planos y en las siete evoluciones.
+
+### 1. Tres Relaciones Atómicas.
+
+|            |                                                                                                                                               |
+| ---------- | --------------------------------------------------------------------------------------------------------------------------------------------- |
+| Individual | Se refiere al fuego central de todos los átomos y afecta la relación de ese centro positivo con todo lo que encierra su esfera de influencia. |
+| Sistema.   | Se refiere a la relación de todos los átomos con otros átomos que entran en su campo de influencia, o su escala de contactos.                 |
+| Universal. | Trata de la identificación de todos los átomos con estos grupos particulares, y su consiguiente subordinación al bien del todo mayor.         |
+
+Puede observarse aquí que el objetivo inmediato del reino humano es establecer conscientemente relaciones en el sistema, <pin lang="en">1216</pin> y ser parte <pin lang="es">949</pin> activa y consciente del trabajo grupal. La conciencia individual de relación se establece en alguna medida debido a la existencia de la autoconciencia. El trabajo de los reinos subhumanos consiste en establecer la autorrealización consciente, o el logro de un individualismo distinto en cada forma de vida atómica, mientras que el objetivo de las vidas superhumanas es establecer una conciencia universal que capacite a cada planeta y vida solar a ser consciente y parte inteligente de un todo cósmico.
+
+### 2. Las Siete Leyes del Trabajo Grupal.
+
+Esto sólo puede explicarse en gran medida empleando términos místicos, dejando que el estudiante intuitivamente los aplique a formas de vida más materiales.
+
+1. 1ra. Ley. **La Ley del Sacrificio**. Implica la inmolación y sacrificio de aquello que ha sido realizado. Es la crucifixión o ley fundamental de todo trabajo grupal, principio regente que hace que cada ente humano oportunamente se convierta en un Salvador.
+2. 2da. Ley. **La Ley del Impulso Magnético**. Rige la primera percepción que tiene el átomo de sus contactos ambientales y su exteriorización o la búsqueda que realiza ese átomo, hasta que oportunamente establece la relación entre lo que percibe como parte del grupo y el ente. Esto no es lo mismo que establecer contactos sensibles, pues la relación se establece entre todos los Yoes y no entre los aspectos del no-yo. Esta ley se denomina a veces "el primer paso hacia el matrimonio", porque da como resultado la unión final entre el hombre o átomo y el grupo que produce relaciones grupales armoniosas.
+3. 3ra. Ley. **La Ley del Servicio**. Denominada así a falta de mejor término. Concierne a la identificación de un átomo con los asuntos grupales y a la constante indiferencia del átomo hacia sus propios intereses materiales; trata en realidad con el proceso o <pin lang="en">1217</pin> método por el cual un átomo (positivo en su propia vida centralizada) responde gradualmente y es receptor de la vida positiva del grupo.
+4. 4ta. Ley. **La Ley de Repulsión**. Se refiere a la capacidad de un átomo para arrojar de sí o negarse a hacer contacto con cualquier energía que se considere hostil a la actividad grupal. Se considera literalmente una ley de servicio, pero sólo entra en actividad consciente cuando el átomo ha establecido ciertas discriminaciones fundamentales y orienta sus actividades a través del conocimiento de las leyes de su propio ser. No es la misma Ley que la Ley de Repulsión aplicada, en conexión con la Ley de Atracción, a las formas que tienen relación con lo material. Las leyes que estamos <pin lang="es">950</pin> considerando tienen relación Con la psiquis o aspecto Vishnu. Un grupo de leyes concierne a las energías que emanan del sol físico; las que consideramos ahora emanan del corazón del Sol. La "repulsión" que aquí tratamos produce (cuando se aplica conscientemente, por ejemplo a través de la energía desarrollada por el corazón de un átomo humano) el acrecentamiento de los intereses del ente rechazado, impeliendo a éste a acercarse a su propio centro. En un párrafo esotérico extraído de cierto antiguo libro, podrá obtenerse alguna idea de la gran belleza de esta ley:
+
+ > Esta fuerza de repulsión impele hacia siete direcciones, obligando a todo, con lo que entra en contacto, a regresar al seno de los siete padres espirituales.
+
+ Por medio de la repulsión, las unidades vuelven al hogar y los seres inconscientes y extraviados son forzados a ir a su propio centro. La Ley de Repulsión o la corriente de energía que recibe este nombre, puede actuar desde cualquier centro, pero tal como se la considera aquí, debe emanar del corazón para llevar a cabo el necesario trabajo grupal.
+
+5. 5ta. Ley. **La Ley del Progreso Grupal**. A veces se la denomina "la Ley de Elevación" porque concierne a los misterios de la comprensión grupal, a las expansiones de conciencia <pin lang="en">1218</pin> y al papel que cada ente representa en el progreso general de un grupo. En relación con la familia humana, siempre debe recordarse por ejemplo, que ningún átomo humano llega a la "plenitud de vida" sin haber aportado mucho a la naturaleza general de su propio grupo. La elevación de un ente produce la elevación del grupo; la comprensión del ente produce finalmente el reconocimiento grupal; la iniciación del ente conduce finalmente a la iniciación planetaria; el logro de la meta por el átomo humano y la consecución de su objetivo produce firme e incesante realización grupal. Ningún hombre vive para sí mismo; la crucifixión de los entes durante eones y la comprensión de su naturaleza esencial a fin de ofrendar, para los intereses del grupo, lo mejor que tiene y comprende, son los métodos por los cuales se lleva adelante el trabajo de liberación.
+
+Sacrificio, Servicio, Magnetismo ("si yo fuera ascendido, atraeré"), Progreso grupal, Repulsión divina, son términos inadecuados por los cuales tratamos de expresar la verdad divina de que toda vida y manifestación del Logos solar serán únicamente posibles y se revelará Su propósito, sólo cuando haya llevado a cada unidad atómica a la etapa de autorrealización. Entonces Él la conducirá hasta el sacrificio de ese yo realizado, a fin de que el propósito y la voluntad divinos sean consumados y la vida y la gloria divinas brillen con perfecto fulgor.
+
+Esto podría expresarse en términos más materiales diciendo que cuando se dominen las leyes del Alma, el cuerpo físico logoico llegará a convertirse en una activa expresión de Su propósito <pin lang="es">951</pin> realizado.
+
+Las dos últimas leyes, concernientes a la actividad grupal pueden sólo tratarse en forma breve pues su verdadero significado es únicamente comprensible para los discípulos juramentados. Tratan principalmente de los planos astral y mental y, por lo tanto, de los correspondientes vehículos de los entes grupales. Debe recordarse <pin lang="en">1219</pin> que un grupo que actúa en el plano físico se encuentra también, en forma más amplia, en el astral y mental. De la misma manera que el cuerpo astral de un hombre es más grande que su cuerpo físico y, por consiguiente, ha empleado en su estructura un número mayor de unidades atómicas, un grupo (considerado astralmente) contiene más unidades que en el plano físico. Las leyes que estamos considerando se refieren a la relación de los entes del plano físico con los que constituyen una parte del grupo, pero funcionando sin los cuerpos o envolturas del plano físico. La misma idea debe ser aplicada a las unidades exentas del vehículo físico, que forman parte componente del cuerpo mental del grupo.
+
+Estas dos leyes se denominan:
+
+6. 6ta. Ley. **La Ley de la Respuesta Expansiva**.
+7. 7ma. Ley. **La Ley de los Cuatro Inferiores**.
+
+Dichas leyes sólo rigen para los entes del plano físico que responden conscientemente a esos grupos de trabajadores que han desencarnado.
+
+Ha de considerarse que todas estas leyes, desde el punto de vista del discípulo, sólo rigen en los tres mundos, aunque no es necesario señalar que la analogía se encuentra en todos los planos. Estas siete leyes son conocidas y estudiadas conscientemente en todos los grupos que trabajan bajo la dirección de los Maestros. <pin lang="en">1220</pin>
+
+Para cada una de ellas existe una fórmula definida y un símbolo; en esta etapa de la enseñanza o en este tratado, no es posible revelar o impartir las fórmulas. El símbolo puede ser descrito, y si el estudiante reflexiona detenidamente sobre la nomenclatura de la Ley, su nombre oculto y su símbolo, se puede reunir mucho material referente a las interrelaciones grupales. Estas leyes serán enunciadas en el próximo ciclo de regeneración; el gran Señor las demostrará cuando. aparezca; gradualmente serán aplicadas a los métodos de trabajo de todas las organizaciones, hermandades, fraternidades y círculos masónicos. Los símbolos son los siguientes: <pin lang="es">952</pin>
+
+#### LAS LEYES Y SIMBOLOS
+
+
 
 [^1]: D. S. I, 89, 100-101.
 
