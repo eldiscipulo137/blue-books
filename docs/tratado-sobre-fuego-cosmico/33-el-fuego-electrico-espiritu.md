@@ -179,3 +179,35 @@ Aquí reside la clave de la búsqueda que el Adepto u Hombre perfecto emprende c
 <br/>
 
 ## B. LA NATURALEZA DE LOS SIETE SENDEROS CÓSMICOS
+
+<p><pin lang="es">970</pin> <pin lang="en">1241</pin> Debe tenerse muy en cuenta que el término SENDERO se emplea sólo para significar energía e indicar corrientes de energía -siete corrientes que se mezclan y fusionan para formar un Sendero. Además se ha de notar que el Adepto que practica la disciplina y pasa por los ritos iniciáticos, que le permitirán recorrer los siete Senderos, ha trascendido el color, ha pasado más allá del velo y ha expandido Su conciencia de manera que se ha unificado con la vida consciente de Su Logos planetario. Ha llegado a una etapa incomprensible para el hombre en la actualidad; está saliendo del ámbito de las formas sustanciales y entrando en el reino de la energía. Conoce los dos aspectos de la vida, el alma y el cuerpo, y se está retirando totalmente del reino de la percepción. Esto para el lector común parecerá un malabarismo de palabras y que se ha hecho un detalle minucioso, pero quien razona por medio de la Ley de Analogía y capta la relatividad básica esencial que existe entre los tres aspectos, llega al conocimiento de que detrás de toda forma existe una vida subjetiva conocida por su cualidad, color y atributos; ha expandido su conciencia hasta conocer gradualmente esos atributos y cualidades, procurando que formen parte de su propio equipo consciente. La palpitante vibración dinámica, causa productora tanto de la vida subjetiva como de su forma cualitativa, es todavía -para él- el misterio de los misterios y el secreto inefable. Se convierte en la meta de su esfuerzo a medida que asienta su pie en uno de los siete Senderos que lo enfrentan después de la quinta Iniciación. Si un Maestro de Sabiduría o quien ha unificado manas (intelecto) y sabiduría (budi) no conoce lo que le será revelado cuando recorra el Sendero cósmico elegido, lógicamente es innecesario que nosotros tratemos de comprender (en nuestra etapa relativamente inferior de evolución) cuál es el verdadero <pin lang="en">1242</pin> significado de la palabra "Espíritu". Reflexionar sobre estos temas es (para el hombre común) no sólo inútil sino peligroso. No posee todavía el mecanismo mental necesario para hacerlo sin peligro. Es como si se obligara a un niño de primer grado a comprender el cálculo diferencial y las leyes de trigonometría.</p>
+
+Estos siete Senderos preparan al hombre para recibir ciertas iniciaciones cósmicas, incluyendo las del Sol Sirio. Aquí sólo puede hacerse una insinuación. Cada uno de dichos Senderos conduce finalmente a una de las seis constelaciones que (con la nuestra) forman los siete centros del cuerpo de AQUEL SOBRE QUIEN NADA PUEDE DECIRSE. Por lo tanto, esos adeptos, que permanecen en nuestro planeta durante un periodo prescrito, son una analogía de aquellos iniciados mayores que se quedan durante muchos kalpas en <pin lang="es">971</pin> el sistema solar, reabriendo ciertas iniciaciones misteriosas relacionadas totalmente con la evolución solar. Su trabajo concierne al sistema como centro del cuerpo de esa Existencia que vitaliza al Logos de nuestro sistema.
+
+Puede ser de valor enumerar aquí los siete Senderos cósmicos. [^1]
+
+1. I El Sendero del Servicio en la Tierra.
+2. II El Sendero del Trabajo Magnético.
+3. III El Sendero del Logos Planetario.
+4. IV El Sendero que conduce a Sirio.
+5. V El Sendero de Rayo.
+6. VI El Sendero del Logos Solar.
+7. VII El Sendero de la Absoluta Filiación.
+
+<p><pin lang="en">1243</pin> Debe tenerse en cuenta, para que no haya confusión, que estos términos son los nombres genéricos dados, en el léxico místico de la Logia de Maestros, a los siete métodos de trabajo, de esfuerzo y de aspiración por los cuales los perfeccionados hijos de la humanidad terrestre pasan a Senderos cósmicos específicos o corrientes de energía, formando en su totalidad un gran CAMINO cósmico.</p>
+
+Los siete senderos, en cierta etapa que no puede definirse, se convierten en los cuatro senderos debido a que nuestro sistema solar es de cuarto orden. Esta fusión se efectúa de la manera siguiente:
+
+1. Los iniciados del primer Sendero "abren su camino luchando" hacia el sexto Sendero.
+2. Los iniciados del segundo Sendero "se alquimizan a sí mismos" para llegar al séptimo Sendero.
+3. Los iniciados del tercer Sendero "rasgando el velo" se encuentran en el quinto Sendero.
+
+<p><pin lang="es">972</pin> Nos queda ahora el cuarto Sendero. Por éste pasan todos aquellos que, en devoción y actividad conjunta, alcanzan la meta, pero todavía no han desarrollado plenamente el principio manásico. Siendo éste el sistema solar de amor-sabiduría o de desarrollo búdico astral, el cuarto Sendero incluye al mayor número de los hijos de los hombres. En la jerarquía de nuestro planeta los "Señores de Compasión" son más numerosos que los "Maestros de Sabiduría". Por lo tanto los anteriores deben pasar todos al Sol Sirio para ser sometidos a un tremendo estímulo manásico, pues Sirio es la fuente de donde surge manas. Allí deben ir los místicos y convertirse en lo que se llama "una chispa de electricidad mahática".</p>
+
+Estos siete Senderos no se ocupan de la naturaleza ni del equilibrio de los pares de opuestos, sino únicamente de la unidad, aquello que utiliza los pares de opuestos como factores para producir LUZ. Tratan <pin lang="en">1244</pin> de esa cuantidad desconocida, responsable de los pares de opuestos; por lo tanto se ocupan principalmente de aquello que está fuera de las formas manifestadas, de la verdadera abstracción o el Absoluto. El Espíritu y la materia nunca están disociados durante la manifestación; constituyen la dualidad que se halla detrás de todo lo objetivo. Sin embargo, algún factor es responsable de ello -aquello que no es ni Espíritu ni materia, considerado como inexistente por todos, excepto por el iniciado. En la tercera iniciación, el iniciado percibe un destello de luz respecto a esta abstracción y cuando recibe la quinta Iniciación ha captado bastante como para permitirle dedicarse con ahínco a desentrañar su secreto.
+
+### I Sendero. El Sendero del Servicio en la Tierra.
+
+
+
+[^1]: Los estudiantes deben saber distinguir cuidadosamente entre los siete Senderos cósmicos y los siete senderos de rayo en los cuales se encuentra toda la humanidad, considerados en este tratado. Como ya hemos visto los siete senderos de rayo se convierten en tres en cuanto las unidades de los cuatro rayos menores se fusionan en uno de los rayos mayores. Estos tres formarán el rayo sintético de Amor-Sabiduría una vez que los hijos de los hombres hayan recibido las Iniciaciones finales del sistema. Cuando se alcance esta etapa, y el hombre comprenda la unidad del sistema solar, no sólo teóricamente sino también como una realidad práctica con la cual se ha identificado, entonces surgirá algo en su conciencia que trascenderá totalmente la conciencia y que sólo puede expresarse mediante la palabra limitadora identificación. Esta identificación es un proceso cósmico, a falta de mejor término, lo denominaremos el séptuple Sendero cósmico.
