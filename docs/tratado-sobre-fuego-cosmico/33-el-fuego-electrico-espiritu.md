@@ -421,4 +421,227 @@ Estos dos senderos conducen a estados de conciencia cósmicos tan inconcebibles 
 
 ## <pin lang="es">989</pin> <pin lang="en">1267</pin> C. SIETE ESTANZAS ESOTRICAS
 
+### ESTANZA I
+
+(Extraída de las Fórmulas Arcaicas. N 49)
+
+#### I SENDERO. El Sendero de Servicio en la Tierra.
+
+El Dragón que se oculta en el más inferior de los Sagrados Tres surge con todo Su poderío. En Su boca sostiene la balanza, y en ella pesa a los hijos de los hombres que -en el campo de batalla- son ensartados en Su lanza.
+
+En la gran balanza, sobre la que están clavados Sus ojos, un platillo está oculto por un fuego color verde vívido; el otro se oculta detrás de una pantalla roja.
+
+Los hijos de los hombres, cuya nota no responde a la nota de color rojo, se introducen en el platillo de la derecha. Desde allí pasan a un sendero que vagamente puede percibirse detrás de la forma del dragón.
+
+A este sendero se entra por una cuádruple puerta. Las sagradas frases de los Hijos de la Luz lo definen así: "El portal de luminosa luz que conduce del color verde al corazón del color índigo, por medio de ese raro fuego y <pin lang="en">1268</pin> esa llama vívidamente coloreada, para la cual aún no se ha encontrado en la tierra un nombre que lo describa." Su tono se mantiene oculto.
+
+Nota: Estas siete estanzas constituyen la verdadera estanza del libro más Antiguo del mundo, el cual nunca ha visto el hombre común. Aquí sólo se da el sentido, y no una traducción literal; en ellas se eliminan ciertas frases por las siguientes razones: Porque del manuscrito donde fueron extraídas faltan ciertas palabras o símbolos, debido a la extrema antigüedad del material en que se ha redactado el texto, y porque su inserción transmitiría demasiado conocimiento al hombre cuya percepción está suficientemente despierta. En tercer lugar, la inserción de las palabras omitidas serviría sólo para provocar confusión y aún el ridículo, debido a la imposibilidad de traducirías correctamente; se refieren a realizaciones muy avanzadas para la comprensión actual del hombre.
+
+Los hijos de los hombres (muy pocos) atraviesan esa puerta de fuego luminoso cuando superan la cresta de oro, que se levanta en la cabeza del dragón sobre el lugar donde fulgura "el ojo de fuego".
+
+Este ojo de fuego trasmite una fuerte vibración desde el triple Lhas hasta un centro en la cabeza del Adepto. Aquél, cuando <pin lang="es">990</pin> es excitado, revela la vida que es, la forma que será y el trabajo unido del dos y del cuatro.
+
+Ambos se atraen. Su esencia se fusiona. El hombre que busca este sendero es ensartado por la lanza y arrojado dentro de la luz ígnea que oculta a la balanza. Entonces continúa el proceso místico y... Así se ve el trabajo de SATURNO y así es realizada su consumación.
+
+Por la fuerza fatal de SATURNO el vencedor es entonces proyectado rápidamente hacia la cima de la cresta, y de allí hacia ese disco vibrante que guarda la cuádruple puerta de luminosidad.
+
+Tres Palabras son confiadas entonces al Uno liberado. Se yergue triunfante en el veloz disco, y cuando su pronunciación ha... se ve la puerta abierta de par en par y del otro lado se oye una voz que dice: “Hijo de Compasión, Maestro de Amor y Vida, la “rueda gira siempre para aquellos que luchan en la tierra ardiente debajo de los pies del dragón.”
+
+Cuando la primera Palabra inició su misión, el vencedor levanta Su cabeza y trata de pronunciar la segunda Palabra. Pero al hacerlo detiene su dilatada vibración, atrayendo nuevamente su poder hacia Su corazón.
+
+<p><pin lang="en">1269</pin> El movimiento del disco aminora. El portal de la luz ígnea se abre aún más. Se ve una forma. Esta forma presenta tres preciosas joyas al Maestro del Corazón Ardiente. Sus nombres están ocultos para esos hijos de los hombres que aún no han alcanzado la cresta del dragón.</p>
+
+Estas tres joyas dan al Maestro del Corazón Ardiente una parte de la triple fuerza que circula dentro de la esfera planetaria.
+
+Con el ojo fijo y el corazón ardiendo de amor, el Maestro no pronuncia la Palabra final. Abandona el disco y dirige Sus Pies de Loto, retornando a ese Sendero que antes dejó atrás, y desde el otro lado vuelve a ascender a la cresta del Dragón. Siendo Él un dragón, Se identifica ahora con aquellos que buscan a la bestia. Así sirve, volviendo Su espalda a la puerta de la luz. Él es la progenie del dragón y sirve a Su tiempo...
+
+Desconocido e invisible para Él aparece un disco mayor, girando incesantemente. No ve sus movimientos porque Sus ojos están en el mundo al cual ha retornado para servir. El disco gira; descubre -delante de su ojo todavía ciego- una puerta grande y amplia... Su ojo de visión se abre... Recorre el primer gran Sendero, pero aún no lo sabe.
+
+La nota que emite ese primer gran CAMINO aún no la oye. Su sonido se pierde en el grito que elevan los hijos del dragón menor.
+
+### ESTANZA XVII
+
+(Extraída de las Fórmulas Arcaicas. N: 49)
+
+#### II SENDERO. El Sendero del Trabajo Magnético.
+
+<p><pin lang="es">991</pin> <pin lang="en">1270</pin> La ardiente tierra cósmica de fuego viviente está situada en la parte más baja de los cielos occidentales. Su humo se eleva hasta ese elevado lugar donde moran los Sagrados Lhas a quienes la triple Unidad, dentro de nuestro espacio solar, rinde su ofrenda y lealtad. Su esencia de especias dulces y lánguido aroma, de incandescente.., alcanzan los más remotos confines de la bóveda estelar.</p>
+
+Ambos se yerguen y pasan la Llama esencial a través de su tierra ardiente, mezclando Su humo menor con el mayor.
+
+Este humo forma un Sendero que se extiende a esas esferas que se hallan dentro de la radiante forma de esa Vida atractiva, para quienes los hijos de los seres y de los hombres en sus diversos tipos ofrecen sus oraciones, vida y adoración.
+
+El Maestro de esta esfera, conocida como la cuarta esfera, no sagrada, ve el CAMINO ardiente; responde a su calor y trata de calentarse en sus oleadas de radiante fuego eléctrico.
+
+Un centro en el punto medio dentro del gran Cuerpo kumárico, forma la pira. Palpita y fulgura. Se convierte en un mar de fuego viviente y atrae hacia si lo propio. El humo que sale de esta rueda ardiente forma un CAMINO viviente que vela las etapas que hay por delante.
+
+<p><pin lang="en">1271</pin> El Maestro -con la rueda intermedia encendida- penetra en el humo, y lo hace ciegamente. No ve nada. No oye nada. No siente la mano guiadora. Únicamente el quinto y último conocimiento lo ayuda a seguir a tientas hacia adelante y atravesar las nubes que velan; solo el despertar de Su rueda puede indicar Su progreso a través del nuevo campo magnético.</p>
+
+Sólo los hijos de... (GÉMINIS) conocen el camino de entrada; sólo los hijos que poseen fuego ardiente, que surgen del punto medio, pueden entrar. Arrojan sus haces de luz hacia adelante para iluminar el CAMINO. El Adepto de la pira funeraria, el Maestro de la ardiente esfera, se consume a Sí mismo. Él, el Uno, se ofrenda a Sí mismo; es Él la triple nueva Palabra, el sagrado OM, el fuego de Dios; Él huella la tierra ardiente y refulge como un radiante sol en llamas ante aquellos que lo observan.
+
+Él... y lleva al pueblo hacia su meta, calentando sus corazones, produciendo fuego dual y conduciendo a todos hacia el portal del sol y desde allí a... (Géminis).
+
+La Palabra mística está velada por cuatro letras -E, M, y A y O-. En el significado de sus números y en la utilización de sus colores se dibuja el humo.
+
+### ESTANZA XXXIX
+
+(Extraída de las Fórmulas Arcaicas. N: 49)
+
+#### III SENDERO. El Entrenamiento de los Logos Planetarios.
+
+<p><pin lang="es">992</pin> <pin lang="en">1272</pin> El ojo de Shiva se abre ampliamente y los que están dentro del alcance de su visual despiertan y hallan otra forma de dormir. Duermen, pero ven y oyen; sus ojos están cerrados, pero nada pierden de lo que sucede en el Siete Cósmico mayor. Ven, pero no tienen visión; oyen, aunque sus oídos son sordos.</p>
+
+Tres veces se cierra el ojo de Shiva y tres veces se abre ampliamente. De esta manera tres grandes grupos de Señores del Loto son impelidos en Su camino.
+
+Un grupo es denominado los "Señores de los lotos del profundo y ciego sueño". Sueñan y a medida que Sus sueños toman forma los mundos continúan. El maya grande y cruel de los planos de la dulce ilusión viene a la existencia; atrae y atrapa a los puntos inconexos de luz y empaña su brillo.
+
+Así prosigue el trabajo...
+
+El ojo por el cual estos Señores del Loto hacen contacto con los planos de visión cósmica, está dirigido internamente. No ven lo que se halla en su borde externo.
+
+El segundo grupo se denomina "los Señores del Loto interno”. Son los que duermen, aunque no muy profundamente. Están suficientemente despiertos como para no extraviarse y sobrepasar el “círculo no se pasa" secreto que circunda la gran Ilusión. Permanecen rígidos, y por Su misma firmeza las formas se mantienen unidas.
+
+El ojo por el cual los Señores del Loto observan <pin lang="en">1273</pin> la gran Ilusión se dirige hacia arriba. Sólo ven aquello que está justamente encima de Ellos, miran hacia la enorme cima de la montaña que orada la rueda que la circunscribe. La cima de la montaña brilla con la luz radiante, reflejando el rostro de Aquel a Quien los Señores de los mundos, dentro de nuestra esfera solar, jamás han visto.
+
+<hr/>
+
+El tercer grupo constituye el extraño y misterioso triple grupo cuyo nombre no debe ser oído dentro de esas esferas planetarias cuyos colores no se fusionan con el azul en la exacta proporción.
+
+El ojo por el cual los Señores del Loto contemplan el Sendero cósmico se dirige hacia afuera. Su matiz es el índigo. El ojo por <pin lang="es">993</pin> el cual, el grupo medio de los Señores del Loto miran, es de color azul turquesa, mientras que las Señores del profundo e inmóvil dormitar contemplan a través del color azul zafiro. Así el CAMINO de triple color azul se transforma en uno.
+
+Este último aspecto del ojo de Shiva dirige a los otros dos, y reúne toda su energía desde una esfera cósmica muy distante. Ambos responden, y al hollar el CAMINO cósmico tejen la triple fuerza construyendo ese sendero que satisface la necesidad de aquellos que más adelante tratan de hollarlo.
+
+Ven, oyen y sueñan, y soñando construyen; Sus ojos están ciegos; Sus oídos están sordos, pero no son mudos. Pronuncian las distintas Palabras cósmicas y tejen los siete con los doce y multiplican los cinco.
+
+<hr/>
+
+Así se construyen los planetas; así son guiados, regidos y conocidos.
+
+### ESTANZA LXXVII
+
+(Extraída del Archivo. N 49)
+
+#### IV SENDERO. El Sendero que conduce a Sirio.
+
+<p><pin lang="es">994</pin> <pin lang="en">1274</pin> Los misteriosos Lhas de los sagrados fuegos ocultos apartan Su pensamiento, surgen de la meditación, y todo lo que existe -entre el primero y el tercero- se pierde de vista. Nada existe. El sonido se extingue. Las Palabras se pierden, porque nadie oye. El color se desvanece, y todo punto se hace difuso.</p>
+
+El océano entra en la quietud. La Madre dormita y olvida a su Hijo. El Padre también se retira al lugar desconocido donde el fuego se halla oculto.
+
+La serpiente se tiende inerte. Sus anillos sofocan el fuego inferior y ahogan las chispas... Reina el silencio. El Lhas ausente olvida los mundos y se dedica a otros juegos... Todo ingresa en la nada. Aunque los Lhas permanecen.
+
+<hr/>
+
+Los misteriosos Lhas de la quíntuple fuerza unen Su pensamiento, se hunden en meditación profunda y vinculan al primero y al tercero. Los mundos emergen, y -precipitándose en formas preparadas- prosiguen sus ciclos.
+
+<hr />
+
+Los que poseen doce puntos desempeñan Su parte, siendo el resultado de la comunión del Uno superior al Sol con una de las siete esposas.
+
+<hr/>
+
+El Maestro del Sagrado Corazón construye el Sendero situado entre la esfera que le ha deparado el destino <pin lang="en">1275</pin> y la gran orbe manásica. Construye a sabiendas, pidiendo ayuda a los puntos azules. Estos emergen desde el corazón de una de las siete. (Las PLÉYADES.)
+
+Sopla sobre ellos, los cuales se ubican como piedras en el Camino que Él construye para ser hollado por los muchos, en su andar de una mente a otra, y de allí a la comprensión. (De manas a mahat y de allí a budi.)
+
+### ESTANZA CXLVII
+
+(Extraída del Archivo. N 49)
+
+#### V SENDERO. El Sendero de Rayo.
+
+<p><pin lang="es">995</pin> <pin lang="en">1276</pin> El Ajustador sostiene las balanzas, y los platillos están debidamente equilibrados. Las energías convergen, y se sacuden desequilibrándose. Descienden unas veces al de la derecha y otras al de la izquierda.</p>
+
+Las energías son cinco, y su matiz principal es el áureo.
+
+<hr/>
+
+El Ajustador pronuncia tres grandes Palabras; cada Palabra es oída por aquellos cuyos oídos han estado sordos durante siete ciclos y cuyos labios han permanecido sellados durante casi catorce períodos completos.
+
+La primera Palabra contiene el valor numérico del color índigo sintético. Reverbera. Los platillos descienden. Aquel que tiene oídos para oírla sube a los platillos y añade a esa Palabra otro sonido. Nadie la ha oído, excepto aquel que se ha presentado ante el Príncipe del Destino y ha visto a la oscuridad descender sobre los quíntuples hijos de la carne.
+
+Esta doble Palabra erige un muro que circunda al Hijo del Hombre cuyos labios enmudecieron. Lo mantiene resguardado hasta que se pronuncia la Palabra que develará el origen en de la palabra.
+
+Este silencio dura siete veces cuarenta y nueve años, y cada año dura un día.
+
+Cuando el Ser Silente dentro del muro ve la proximidad del <pin lang="en">1277</pin> Rayo, cuando cambia la clave de La Palabra pronunciada anteriormente, se ve la desintegración del muro y una puerta se abre delante de Él.
+
+<hr/>
+
+La segunda Palabra oculta el número del sagrado color azul. Cuando reverbera, los platillos ascienden, y el hombre que trata de ascender a ellos ve pasar el momento y no sabe qué hacer.
+
+Lucha por hablar y levanta Su mano derecha suplicante hacia el gran Ajustador. Desde las sagradas aulas de la Ciudad de la Isla Blanca surge un mensajero que Le dice las siguientes palabras místicas:
+
+> A medida que el poder penetra a través de aquello que es superior y surge del loto que se halla en la cabeza de Aquel que se ha mantenido en paz, emite esta PALABRA... y mira hacia adentro.
+
+<p><pin lang="es">996</pin> El que se ha abstenido de hablar rompe entonces el silencio. Emite los cuatro profundos sonidos que hacen descender nuevamente el platillo para que esté a Su alcance. Se ve otra puerta; se abre ampliamente; así es hollado el CAMINO.</p>
+
+<hr/>
+
+La tercera Palabra sella la clave de color azul externo. Contiene la orden de realizar la inversión; sólo pueden oír esa Palabra aquellos cuyos oídos han estado sordos durante once eones. Nunca se oye en el reino del dolor. Por lo tanto pocos la oyen, y esos pocos eluden la balanza, escapan al ojo ardiente del gran Ajustador, y en Su misma ceguera encuentran el Sendero ubicado en la parte más lejana de la balanza.
+
+Estas Palabras de elevadas directivas surgen de aquello que está sobre el... de la Vida rectora, que mantiene a nuestro Señor de Vida en Su Sendero.
+
+### ESTANZA VI
+
+(Extraído del Archivo. N 49)
+
+#### VI SENDERO. El Sendero el Logos solar.
+
+<p><pin lang="es">997</pin> <pin lang="en">1278</pin> El Tercero mayor lleva en sí la vibración de aquello que ya ha existido. El Señor cósmico proveniente de los siete mayores (cuyo sagrado Nombre está oculto) busca el centro de Su vida fuera de los sagrados siete. Este es el misterio oculto, el secreto interno que reside en el corazón del espacio cósmico, Centro de los divinos grupos.</p>
+
+Los sagrados siete conjuntamente con los siete mayores se aproximan a su primario; el Uno se halla sobre ellos y en su cíclica órbita externa algún día se encontrarán. Los dos se convierten en el Uno y se pierden en su primario.
+
+Busca tú lo mismo, en menor escala, dentro de la ronda interna, y en el plano de la densidad verás la manifestación del primario menor. La Ley rige; el misterio se disuelve en el TIEMPO.
+
+El Tercero mayor, tanto en lo menor como en lo mayor, el Señor cósmico -con su tenue reflejo solar- completa Su ciclo, se reúne con Su hermano, se convierte en el Hijo, hace contacto con la Madre, siendo él Mismo el Padre. Todo es Uno, y nada separa excepto la transición y el factor tiempo.
+
+<hr/>
+
+El quinto mayor dentro del Eterno Ahora lleva en sí la vibración de aquello que existe. Señala el grado de conocimiento cósmico que se extiende muy hondamente <pin lang="en">1279</pin> en la prolongación del presente. El Señor cósmico, cuyo sagrado Nombre contiene para nosotros la sabiduría de las esferas, busca una forma para ocultar en ella la Esencia, y en el transcurso de los eones llegar a perfeccionar la gran triplicidad.
+
+El misterio se halla oculto y velado por aquello que existe. Honda es la esencia, envuelta por aquello que se mueve. Profunda es la oscuridad, perdida en el corazón del ser; densas son las formas que ocultan la luz interna; burda es la envoltura que actúa como barrera; crudo el material que vela la vida latente.
+
+El quinto mayor incluye el tercero menor; el doble mayor indica el punto alcanzado. Cuando el quinto mayor sincroniza al Tercero mayor y se emite la nota cósmica -adjudicada al Señor de Amor Cósmico, cuya esencia es el fuego- se oye el Nombre sagrado.
+
+<p><pin lang="es">998</pin> El Segundo cósmico se aproxima al más denso y más grande. Se mezcla y fusiona, y todo se pierde en la disonancia ajustada. Las esferas responden; el Ahora se convierte en el pasado y se fusiona dentro del tiempo que será. La esencia y la vida, el punto dentro del círculo y el eterno "círculo no se pasa" se convierten en uno; todo es paz durante eones. El tiempo termina, el espacio se disuelve; nada existe. La oscuridad y el silencio reinan sobre las aguas. La calma central persiste.</p>
+
+<hr/>
+
+Cuando se ha completado el acorde, la tercera, la quinta y la séptima, dentro del Eterno Ahora, llevan la vibración de aquello que será. Llegará el Día que Será con Nosotros en el plano cósmico mayor. Luego la vida, el amor y el poder se manifestarán como uno.
+
+El Señor cósmico, cuyo sagrado Nombre está oculto <pin lang="en">1280</pin> aún para el Chohan más elevado, mantiene dentro de Sí el origen de la actividad cósmica y el fruto del amor cósmico. Penetra el triple Todo, entra -proveniente del tiempo y el espacio en el centro de la paz praláyica.
+
+Todo es, aunque todo no es. Las ruedas no giran. Los fuegos no arden. Los velos de colores se disipan. Los Tres se retiran dentro del punto de paz. El triple "círculo no se pasa" ya no actúa como barrera.
+
+### ESTANZA IV
+
+(Extraída del Archivo. N 63)
+
+#### VII SENDERO. El Sendero de la Absoluta Filiación.
+
+<p><pin lang="es">999</pin> <pin lang="en">1281</pin> Ese que no tiene principio ni fin; Ese que se ve y sin embargo permanece desconocido; Ese que tocamos y sin embargo hallamos inalcanzable, Ése es el Uno que sigue Su CAMINO.</p>
+
+Ese que llamamos el Padre y el Hijo; Ese que estimamos demasiado elevado para que lo capten las palabras; Ese que la madre considera su Señor y Dios, Ése es el Uno que asciende la escala cósmica.
+
+Ese que se ve cuando cada punto de luz celestial envía su haz de luz en el azul de medianoche; Ese que oímos en cada nota cósmica y sentimos detrás del sonido de toda forma, Ése es el Uno que canta lo celestial y presta Su luz para agrandar el fuego cósmico.
+
+Ese que es conocido por cada Hijo de Dios que domina etapa tras etapa el Sendero Áurico; Ese que es escuchado por todos los señores devas que oyen la Palabra y surge a medida que transcurren eones; Ese que entona el triple cíclico A U M, reservando otro sonido para los planos cósmicos superiores, Ése es el Uno desconocido, el No revelado, el Uno que entona una nota dentro de un acorde cósmico
+
+Ese que en cada eón aparece y desaparece durante Su ciclo en un Sendero cósmico; Ese que en kalpas mayores ha de hacer un juego similar al de Dios; Ese <pin lang="en">1282</pin> que en todas las esferas cósmicas es llamado "el Uno por encima del Hijo de matiz violeta", Ése es el Uno que fulgura en la galaxia de estrellas.
+
+Tal es el Uno a quien los hijos de la gloria rinden perdurable homenaje cuando sigue Su CAMINO. De Él será la gloria como Madre, Padre e Hijo, como el Uno que ha existido en el pasado, en el presente y en Aquello que vendrá.
+
+### FINAL
+
+<p><pin lang="es">1000</pin> <pin lang="en">1283</pin> Las estrellas matutinas cantaron en sus órbitas.</p>
+
+El gran himno de la creación todavía resuena, y despierta la vibración.
+
+El canto cesa cuando la perfección es alcanzada. Cuando todo se ha fusionado en un pleno acorde, se ha terminado el trabajo.
+
+La disonancia aún resuena en el espacio. La discordancia surge en numerosos sistemas. Cuando todo se resuelva en armonía, cuando todo sea fusionado en sinfonía, el gran coro reverberará hasta los remotos confines del conocido universo.
+
+Luego ocurrirá aquello que está más allá de la comprensión del más elevado Chohan -el canto nupcial del Hombre celestial.
+
+
 [^1]: Los estudiantes deben saber distinguir cuidadosamente entre los siete Senderos cósmicos y los siete senderos de rayo en los cuales se encuentra toda la humanidad, considerados en este tratado. Como ya hemos visto los siete senderos de rayo se convierten en tres en cuanto las unidades de los cuatro rayos menores se fusionan en uno de los rayos mayores. Estos tres formarán el rayo sintético de Amor-Sabiduría una vez que los hijos de los hombres hayan recibido las Iniciaciones finales del sistema. Cuando se alcance esta etapa, y el hombre comprenda la unidad del sistema solar, no sólo teóricamente sino también como una realidad práctica con la cual se ha identificado, entonces surgirá algo en su conciencia que trascenderá totalmente la conciencia y que sólo puede expresarse mediante la palabra limitadora identificación. Esta identificación es un proceso cósmico, a falta de mejor término, lo denominaremos el séptuple Sendero cósmico.
