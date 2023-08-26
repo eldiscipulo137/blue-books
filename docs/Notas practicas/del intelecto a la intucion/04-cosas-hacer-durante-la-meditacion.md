@@ -1,0 +1,15 @@
+---
+title: Procura hacer estas dos cosas durante la meditación
+---
+
+# Procura hacer estas dos cosas durante la meditación
+
+> [Del intelecto a la intuición](/del-intelecto-a-la-intuicion/precaucion-en-la-meditacion#en242)
+
+Es evidente, en consecuencia, que el hombre que aprende a meditar debe procurar realizar dos cosas:
+
+**Primero**: traer a la [i242] mente y luego interpretar correctamente aquello que ha visto y con lo cual se ha puesto en contacto, y luego trasmitirlo con exactitud y precisión al atento e impresionable cerebro. Así el hombre, en su despierta conciencia física, percibe las cosas del reino de Dios.
+
+**Segundo**: conocer la naturaleza de las energías con las que hace contacto y entrenarse para utilizarlas correctamente. Podría darse un ejemplo práctico universalmente reconocido. Cuando nos sentimos arrastrados por la ira o la irritabilidad, instintivamente empezamos a gritar. ¿Por qué? Porque la energía emocional nos domina. Aprendiendo a controlar la energía de la palabra hablada, empezamos a dominar este tipo particular de energía emocional.
+
+Ambas ideas, correctas interpretación y trasmisión y correcto empleo de la energía, resumen toda la práctica de la meditación. Evidencian también el problema que enfrenta el estudiante y por qué todos los instructores inteligentes de la técnica de la meditación recomiendan a sus discípulos la necesidad de que procedan despacio y con cuidado.
