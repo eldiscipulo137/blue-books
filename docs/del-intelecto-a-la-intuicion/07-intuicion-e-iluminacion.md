@@ -77,4 +77,132 @@ El sentimiento personal es desechado. El aspirante domina la mente y la mantiene
 
 En el hombre verdaderamente iluminado tenemos la rara combinación del místico y del conocedor, el efecto resultante de métodos místicos de Oriente y Occidente y la unión de la cabeza y del corazón, del amor y del intelecto. Esto produce lo que en Oriente se denomina un yogui (el conocedor de la unión) y en Occidente, un místico práctico —modo poco satisfactorio de designar <pin lang="en">159</pin> al místico que ha combinado el intelecto con la naturaleza sensoria, por lo tanto, es un ser humano coordinado, en quien el cerebro, la mente y el alma, actúan en la más perfecta unidad y síntesis.
 
+La iluminación de la mente por el alma, y la proyección del conocimiento y la sabiduría, prerrogativa del alma, sobre la sustancia mental expectante y atenta, produce en el hombre realmente unificado y coordinado, resultados que difieren según la parte de su instrumento con la que se efectúa el contacto. Dejando el tema de la unión y el desarrollo de poderes trascendentales para ser considerados más adelante, nos limitaremos a los efectos directos de la iluminación. Podemos, para mayor claridad, compendiar estos resultados de la manera siguiente:
 
+Un efecto sobre la mente es la captación directa de la verdad y la comprensión directa de un conocimiento tan vasto y sintético que lo abarcamos en el nebuloso término de Mente Universal. A este tipo de conocimiento se lo llama a veces intuición, y es una de las características principales de la iluminación. Otro efecto sobre la mente es que responde a la comunicación telepática y es sensible a otras mentes que alcanzaron la capacidad de actuar en niveles del alma. No me refiero a la llamada comunicación telepática en niveles síquicos, o a la que se establece entre cerebros, en el intercambio común cotidiano tan conocido, sino a la interacción que es posible establecer entre almas divinamente sintonizadas, que en <pin lang="en">160</pin> el pasado dio por resultado la trasmisión de verdades, inspiradas en las sagradas escrituras del mundo y en esos pronunciamientos divinos emanados de ciertos grandes Hijos de Dios, como Cristo y <pin lang="es">99</pin> Buda. La intuición y la telepatía en su forma más pura son, por lo tanto, dos consecuencias de la iluminación de la mente.
+
+En la naturaleza emocional o, según el lenguaje esotérico, en el cuerpo de deseos o de emociones, el efecto constituye la manifestación de gozo, felicidad y experiencia del éxtasis. Se alcanza un sentimiento de plenitud, satisfacción y de expectativa gozosa, de tal manera que el mundo se ve bajo una nueva luz y las circunstancias toman un colorido más feliz.
+
+> Arriba, el cielo, es azul más brillante,
+> abajo, la tierra, es de un verdor más delicioso,
+> algo vive en cada matiz,
+> que los ojos sin Cristo jamás han visto
+
+En el cuerpo físico se producen ciertas reacciones muy interesantes, constituyendo dos grupos principales: Primero, un estímulo que inicia una intensa actividad, con un efecto bien marcado sobre el sistema nervioso y, segundo, la frecuente aparición de una luz visible dentro de la cabeza, aunque los ojos estén cerrados o en la oscuridad.
+
+El Dr. W. Winslow Hall [^14], en su libro sobre la iluminación, trata este aspecto de la luz, y dice que desea probar que "la iluminación es un hecho, no solamente psicológico sino también fisiológico".
+
+<p><pin lang="en">161</pin> Los resultados que se producen en el triple mecanismo, mental, sensorio y físico, denominado ser humano, no son más que manifestaciones de la misma energía básica, al ser trasferida de un vehículo a otro. Es la misma divina conciencia haciendo sentir su presencia en las diferentes esferas de percepción y conducta humanas.</p>
+
+Primero veremos la reacción mental. ¿Qué es esa cosa misteriosa denominada intuición? Resulta interesante observar que este término ha sido totalmente ignorado en algunos libros de psicología, e ignorado frecuentemente por los más grandes hombres en este campo. La intuición no ha sido reconocida. Podemos definirla como captación directa de la verdad, aparte de la facultad razonadora o de cualquier otro proceso del intelecto. Es el surgimiento en la conciencia de alguna verdad o belleza nunca sentida. No procede de la subconciencia o de la memoria racial o individual acumulada, sino que desciende directamente a la mente desde la super conciencia o alma omnisciente. Se la reconoce inmediatamente como verdad infalible, y no despierta duda alguna.
+
+<p><pin lang="es">100</pin> Todas las soluciones repentinas de problemas aparentemente insolubles o abstrusos, y un gran número de las invenciones revolucionarias, caen dentro de esta categoría. Evelyn Underhill [^15] se refiere a esto en los siguientes términos:</p>
+
+> ... esta iluminada captación de las cosas, esta purificación de las puertas de la percepción, es, seguramente, lo que podemos esperar que ocurra a medida que el hombre avanza hacia centros más elevados de la conciencia. Su inteligencia superficial purificada de la        dominación de los sentidos, es invadida cada vez más por <pin lang="en">162</pin> la personalidad trascendente. Constituye el 'Hombre nuevo', que por naturaleza es un habitante del mundo espiritual, cuyo destino, en lenguaje místico, consiste en 'retornar a su origen'. De allí la afluencia de nueva vitalidad, la ampliación de los poderes de la visión y una enorme exaltación de sus poderes intuitivos
+
+Este acceso inmediato a la verdad es el destino final de todos los seres humanos, y probablemente algún día la mente misma quede bajo el umbral de la conciencia, así como se encuentran hoy los instintos. Entonces actuaremos en la esfera de la intuición y hablaremos en términos de intuición, con tanta facilidad como ahora hablamos en términos de la mente y tratamos de actuar como seres mentales.
+
+El Padre Maréchal [^16] define la percepción intuitiva en los siguientes términos:
+
+> La intuición —definida en forma general— es la asimilación directa del objeto por la facultad conocedora. Todo conocimiento es en cierto modo una asimilación; la intuición es una información inmediata, sin un intermediario interpuesto objetivamente; es el único acto por el cual la facultad conocedora se modela a sí misma, no en una semejanza abstracta del objeto, sino el objeto mismo; es, si se quiere, la estricta coincidencia, la línea común de contacto entre el sujeto conocedor y el objeto
+
+Uno de los libros más notables y sugestivos sobre el tópico de la intuición y que engrana maravillosamente tanto como la teoría oriental como con la occidental, es el del Dr. Dibblee [^17], <pin lang="en">163</pin> del Instituto Oriol de Oxford, donde da varias definiciones interesantes de la intuición, cuando dice: "lo que la sensación es al sentimiento, la intuición es al pensamiento, al ofrecerle material". Cita las palabras del Dr. Jung cuando expresa que es un proceso mental extraconsciente, del que de vez en cuando nos damos cuenta vagamente. Nos da también la definición del Profesor H. Wildon Carr [^18]: "La <pin lang="es">101</pin> intuición es la captación, por parte de la mente, de la realidad directamente tal cual es, y no bajo la forma de una percepción o concepto (ni como una idea u objeto de la razón), todo lo cual, por contraste, es captación intelectual". "La intuición", dice el Dr. Dibblee en la misma obra [^19], "se interesa puramente en resultados intangibles y si prescinde del tiempo, es también independiente del sentimiento". En el siguiente párrafo, con meridiana claridad define [^20] (quizás sin intención, porque su tema es de otra índole) al místico práctico coordinado o conocedor, y dice:
+
+> ...la inspiración Intuitiva y la energía instintiva son finalmente subyugadas y unificadas en el yo, que por último forman una sola personalidad
+
+Aquí tenemos las relaciones y reacciones físicas del mecanismo, guiadas y dirigidas por los instintos, actuando por medio de los sentidos y del cerebro, y el alma guiando y dirigiendo a su vez a la mente mediante la intuición, teniendo su punto de contacto físico en el cerebro superior. <pin lang="en">164</pin> Esta idea la resume el Dr. Dibblee [^21] en estas palabras: "He llegado a la etapa de aceptar definidamente la existencia de dos órganos distintos de la inteligencia en los seres humanos, el tálamo, asiento del instinto, y la corteza cerebral, asiento de las facultades afines, el intelecto y la intuición". Esta posición va paralela con la de la enseñanza oriental, la cual afirma que el activo centro coordinador de toda la naturaleza inferior se halla en la región del cuerpo pituitario y que el punto de contacto del yo superior y la intuición, se encuentra en la región de la glándula pineal.
+
+La situación es por lo tanto, la siguiente: la mente recibe la iluminación del alma en forma de ideas proyectadas o intuiciones, que imparten conocimiento exacto y directo, porque la intuición es siempre infalible. Este proceso es, a su vez, repetido por la mente activa, que inculca en el cerebro receptivo las intuiciones y el conocimiento trasmitido por el alma. Cuando esto se efectúa automáticamente y con exactitud, tenemos al hombre iluminado, al sabio.
+
+La segunda actividad a que la mente responde, debido a la iluminación alcanzada, es la telepatía. Se ha dicho que "la iluminación puede considerarse como el ejemplo más elevado conocido de la telepatía, porque durante todo el resplandor de esta suprema iluminación, el alma humana es el perceptor, y el Padre de las Luces <pin lang="es">102</pin> el agente". El agente puede actuar por medio de muchas mentes, porque el mundo del alma es el mundo <pin lang="en">165</pin> de la conciencia grupal, y por esto abre un campo de contactos ciertamente amplio. El alma del hombre se ha sintonizado no sólo con la Mente Universal, sino con todas las mentes, por cuyo intermedio el Propósito Divino, llamado Dios, puede estar actuando. Esto explica la ininterrumpida corriente de escritos iluminados y de mensajes que, a través de las edades, han guiado los pensamientos y el destino de los hombres y los han llevado por el sendero de la realización, desde la etapa del animismo y fetichismo, hasta nuestro concepto actual de una Deidad inmanente. Desde el punto de vista del hombre y de la naturaleza, progresamos hacia el Todo divino, en el cual vivimos, nos movemos y tenemos nuestro ser, y con el cual estamos conscientemente identificados. Sabemos que somos divinos. Unos tras otros, los Hijos de Dios han tomado posesión de Su herencia y han descubierto que son sensibles al plan mundial. Gracias a la perseverancia en la contemplación, se han dotado a sí mismos para actuar como intérpretes de la Mente Universal, e intermediarios entre las multitudes no telepáticas y la fuente eterna de la sabiduría. A los iluminados del mundo, a los pensadores intuitivos en todos los campos del conocimiento y a los comunicadores telepáticos e inspirados, se debe lo mejor que el hombre sabe ahora, el origen de las grandes religiones mundiales y los triunfos de la ciencia.
+
+Esta comunicación telepática no se ha de confundir con la mediumnidad, o con la masa de escritos llamados inspirados que inunda actualmente el <pin lang="en">166</pin> mundo. La mayoría de estas comunicaciones son de carácter mediocre y no traen nada nuevo, ni tienen mensaje alguno que conduzca al hombre a dar un paso adelante hacia la nueva era, o guíe sus pasos a medida que asciende la escala hacia los lugares celestiales. En contacto con el subconsciente, las enunciaciones de una mentalidad digna y de elevada calidad, darán la explicación del noventa y ocho por ciento del material. Indican que el hombre ha realizado mucho y que está coordinándose, pero no que haya actuado la intuición ni haya estado activo el don de la telepatía espiritual. Es necesario tener mucho cuidado para distinguir entre instinto e intuición, entre intelecto y sus aspectos inferiores y entre mente superior y abstracta. Debe mantenerse la línea divisoria entre las expresiones inspiradas por un alma en contacto con la Realidad y con otras almas, y la trivialidad de una mentalidad brillante y culta.
+
+El efecto del proceso iluminador sobre la naturaleza emocional <pin lang="es">103</pin> asume dos formas y, aunque parezca paradójico, son exactamente opuestas. En algunos produce el aquietamiento de la naturaleza, de manera que todas las ansiedades y preocupaciones mundanas cesan y el místico entra en la paz que trasciende toda comprensión. Entonces puede decir:
+
+> Una llama ha permanecido dentro de mí.
+> Inmóvil y despreocupado al paso de los años,
+> ajeno al amor, la risa, la esperanza y los temores,
+> a la torpe palpitación del mal y al vino del bien;
+> <pin lang="en">167</pin> no siento la sombra de los vientos que acarician,
+> ni oigo el murmullo de la marca del vivir,
+> ni albergo pensamientos de pasión ni lágrimas,
+> libre del tiempo, de las costumbres.
+> No conozco el nacimiento ni la muerte que hiela;
+> no temo al destino, moda, causa ni credo.
+> Superaré el sueño de los montes,
+> soy el capullo, la flor y la semilla;
+> pues sé que en lo que veo,
+> yo soy la parte y ella es mi alma. [^22]
+
+En sentido opuesto puede producir el éxtasis místico —esa elevación y afluencia del corazón hacia la divinidad, que atestigua constantemente nuestra literatura mística. Es una condición de exaltación y de gozosa certidumbre respecto a las realidades sentidas. Lleva a su poseedor en alas del arrobamiento, de manera que, temporariamente, nada puede tocarlo o dañarlo. En sentido figurado, los pies vuelan en pos del Bienamado, y la interacción entre el que ama y el Amado es muy grande; pero siempre existe el sentido de la dualidad o un algo que está más allá de lo alcanzado. Esto debe mantenerse en la conciencia el mayor tiempo posible, si no desaparecerá la visión extática; las nubes velarán el sol, y el mundo, con todas sus preocupaciones, oscurecerá los cielos. Se dice que el éxtasis, físicamente considerado, es trance. Es un estado de arrobamiento y puede ser bueno o malo, dice Evelyn Underhill [^23], citando al Padre Malaval:
+
+> <pin lang="en">168</pin> Los grandes doctores de la vida mística enseñan que hay dos tipos de arrobamiento, que deben diferenciarse cuidadosamente. Uno saturado de egocentrismo, sea por la fuerza de su febril imaginación, que capta vívidamente un objeto sensorio, o por el artificio del demonio... El otro tipo de arrobamiento es, contrariamente, efecto de la visión intelectual pura de quienes poseen un grande y generoso amor a Dios. A las almas generosas, que renunciaron totalmente <pin lang="es">104</pin> a sí mismas, Dios nunca deja de comunicarles cosas elevadas en estos arrobamientos
+
+El mismo escritor continúa diciendo que psicológicamente es éxtasis [^24] "La absorción del yo en la idea y el deseo únicos, es tan profunda —y en el caso de los grandes místicos—, tan apasionada, que todo lo demás se borra". Se observará que la idea del deseo, del sentimiento y de la dualidad, caracteriza la condición de éxtasis. Están siempre presentes la pasión, la devoción y una arrobadora exteriorización hacia la fuente de comprensión; por lo que es necesario que el experimentador haga una cuidadosa diferencia de tales estados, o degenerará en una condición morbosa. En esta condición de percepción sensoria nada tenemos básicamente que hacer. Nuestra elevada meta es la constante intelectualización y el firme control mental, y sólo en las primeras etapas de la iluminación se descubrirá esta condición. Más adelante se verá que la verdadera iluminación excluye automáticamente tales reacciones. El alma se sabe a sí misma libre de los pares de opuestos —del placer lo mismo que del dolor— y permanece firme en el ser <pin lang="en">169</pin> espiritual. El canal o línea de comunicación, es eventualmente directo y eliminador desde el alma a la mente y desde la mente al cerebro.
+
+Cuando alcanzamos el nivel físico de la conciencia y la reacción a la iluminación, que descienden al cerebro, generalmente tenemos dos objetos dominantes. Existe el sentimiento o la conciencia de una luz en la cabeza y con frecuencia también el estímulo de una actividad anormal. El hombre parece impulsado por la energía que fluye a través de él, y los días le parecen demasiado cortos para lo que quiere realizar. Se siente tan ansioso de colaborar en el Plan, con el cual se ha puesto en contacto, que su razonamiento momentáneamente se entorpece, y trabaja, habla, lee y escribe, con incansable vigor, no obstante desgastar su sistema nervioso y afectar su vitalidad. Todos los que trabajaron en el campo de la meditación, y trataron de enseñar este tema, observaron tal condición. El aspirante entra en el reino de la energía divina, descubre que responde intensamente a ella y presiente sus relaciones y responsabilidades grupales, y que debe hacer lo máximo posible para estar a la altura del grupo. Este registro de la constante afluencia de la fuerza vital es inminentemente característico, porque la coordinación entre el alma y su instrumento, y la consiguiente reacción del sistema nervioso a la energía del alma es tan <pin lang="es">105</pin> íntima y precisa, que lleva al hombre bastante tiempo efectuar los ajustes necesarios.
+
+Un segundo efecto, como hemos visto, es el reconocimiento <pin lang="en">170</pin> de la luz en la cabeza. Este hecho está tan bien corroborado que no necesita mayor explicación. El Dr. Jung [^25] se refiere a esto de la siguiente manera:
+
+> ... la visión-luz es una experiencia común para muchos místicos, e indudablemente de gran significación, porque en todo tiempo y lugar aparece como algo incondicional que reúne en sí misma el poder más grande y el significado más profundo. Hildegarde von Bingen, una destacada personalidad, aparte de su misticismo, explica su visión, en forma bastante similar dice: 'desde mi niñez veo siempre una luz en mi alma, pero no con los ojos externos ni por medio de los pensamientos en mi corazón; tampoco toman parte en esta visión los cinco sentidos externos'... La luz que percibo no es de naturaleza local sino mucho más brillante que la nube que refleja el sol. No puedo distinguir en ella altura, anchura ni longitud... Lo que veo o aprendo en tal visión lo conservo por mucho tiempo en mi memoria. Veo, oigo y sé al mismo tiempo y lo aprendo en el mismo momento. No puedo reconocer forma alguna en esta luz aunque a veces veo en ella otra luz que conozco como luz viviente... Mientras gozo del espectáculo de esta luz, toda tristeza y dolor desaparecen de mi memoria...
+>
+> Conozco individuos que están familiarizados con este fenómeno por experiencia personal. Hasta donde he podido comprenderlo, el fenómeno parece que se relaciona con un estado de conciencia tan intenso como abstracto, una conciencia desapegada... de lo que, como Hildegarde observa oportunamente, trae a las zonas de la conciencia acontecimientos síquicos, comúnmente envueltos en la oscuridad. El hecho de que, en relación con esto, desaparezcan las sensaciones corporales generales, índica que su energía específica ha sido retirada y aparentemente ha pasado a aumentar la claridad de la conciencia. Por regla general, <pin lang="en">171</pin> el fenómeno es espontáneo, viniendo y desapareciendo por propia iniciativa. Su efecto es asombroso porque trae casi siempre la solución de complicaciones síquicas, con lo cual libera a la personalidad interna de complicaciones emocionales e imaginarias, creando así la unidad del ser, que se siente universalmente como 'liberación'
+
+Todo instructor de meditación experimentado puede, sin vacilación alguna, apoyar las anteriores palabras. El fenómeno es muy familiar y viene ciertamente a probar que existe una íntima correspondencia física con la iluminación mental. Cientos de casos se podrían presentar si la gente relatara sus experiencias, pero muchos se abstienen de hacerlo para no exponerse a las burlas o al escepticismo del ignorante. Esta luz en la cabeza asume diversas <pin lang="es">106</pin> formas y, con frecuencia, es correlativa en su desenvolvimiento. Primero se ve una luz difusa; a veces fuera de la cabeza y posteriormente dentro del cerebro, mientras se piensa o medita profundamente; luego se centra más, y aparece, según lo expresan algunos, como un sol radiante y muy brillante. Después en el centro de esa radiación aparece un punto azul eléctrico vívido (quizás la "luz" viviente ya mencionada) y de allí arranca una dorada senda de luz hacia fuera, denominada Sendero, y posiblemente el profeta no habló en mero simbolismo, cuando dijo que "el sendero del justo es como brillante luz que aumenta hasta que el día sea con nosotros".
+
+En esta luz en la cabeza, que se parece al acompañamiento universal del estado de iluminación, tenemos <pin lang="en">172</pin> probablemente el origen del nimbo representado alrededor de la cabeza de los iluminados del mundo.
+
+Debe investigarse aún mucho en esta dirección y contrarrestar la gran reticencia y los prejuicios. Muchos comienzan a registrar sus experiencias, pero no son los sicópatas de la raza, sino trabajadores serios y acreditados en los diversos campos del esfuerzo humano. Quizá no pase mucho tiempo antes de que el hecho de la iluminación sea reconocido como un proceso natural, y la luz en la cabeza considerada como indicios de cierta y definida etapa de coordinación e interacción entre el alma, el hombre espiritual y el hombre en el plano físico. Cuando esto suceda, nuestra evolución humana habrá llegado al punto en que el instinto, el intelecto y la intuición, podrán ser empleados a voluntad por el hombre entrenado y cabalmente educado, y proyectarse "la luz del alma" sobre cualquier problema. Así se manifestará en la Tierra la omnisciencia del alma.
+
+Permítanme cerrar este capítulo con unas palabras escritas por un místico hinduista y otras por un místico cristiano moderno, como ejemplos típicos de los dos puntos de vista, el del místico y el del conocedor.
+
+El hinduista dice:
+
+> Se llaman Brahmines, sólo aquellos cuya luz interna actúa en ellos...; el alma humana es una lámpara que no puede ocultarse. La lámpara no emite los rayos de la carne, sino los rayos de la luz mental, para iluminar a toda la humanidad y es, por lo tanto, el canal para el alma del mundo. Los rayos de la luz mental ayudan a la humanidad durante su crecimiento y expansión mentales y, por lo tanto, la lámpara es uno de lo Eternos Brahmines del <pin lang="en">173</pin> Mundo. <pin lang="es">107</pin> Proyecta su luz en el mundo, pero no toma nada de lo que el mundo puede dar
+
+El cristiano escribe:
+
+> ¡He visto una vida ardiendo en Dios!
+> Padre mío, imparte
+> Tu bendición a una vida consumida por Dios,
+> para que pueda vivir para Ti.
+>
+> ¡Una vida de fuego! una vida que arde en Dios,
+> ¡iluminada por los fuegos del amor de Pentecostés!
+> ¡Una vida ardiendo!, ardiendo por amor a los hombres,
+> encendida desde arriba por la divina compasión.
+>
+> ¡Una vida ardiente!, que Dios pueda tomar y abandonarla
+> en la casa, en la calle o donde sea Su voluntad,
+> a fin de incendiar otra vida para Él
+> y así propagar aún más el fuego
+
+ Así se pondrá en evidencia la etapa final del proceso de la meditación, que llamamos inspiración. Los grandes Seres de las edades, testimonian la posibilidad de esa vida. Se reconocieron a sí mismos como 
+ Hijos de Dios y llevaron ese conocimiento a su plena realización en la encarnación física. Son los inspirados exponentes de la realidad de la verdad, de la inmortalidad del alma y de la existencia del reino de Dios. Son las luces que en los lugares oscuros, alumbran el camino de retorno al Hogar del Padre.
+
+[^1]: El Secreto de la Flor Dorada.
+[^2]: The Endurjng Quest, págs. 238-40.
+[^3]: Psychology and God, págs. 203-04.
+[^4]: La Luz del Alma. Libro iv, Af. 18, 22, 23, 26, 27 y 28, Libro ii, Af. 27-28.
+[^5]: La Luz del Alma. Libro iii, Af. 43.
+[^6]: Iluminanda, pág. 93.
+[^7]: The Idea of the Holy.
+[^8]: Iluminanda, pág. 94.
+[^9]: Ídem, pág. 21.
+[^10]: Mysticism, pág. 206.
+[^11]: Meister Eckhart, pág. 114, 83, 28.
+[^12]: Mysteries of the Soul, pág. 336.
+[^13]: Meister Eckhart, pág. 286
+[^14]: Iluminanda, pág. 19.
+[^15]: Mysticism, pág. 311
+[^16]: Studies in the Psychology of de Mystics, pág. 98.
+[^17]: Instinct and Intuition, pág. 85
+[^18]: Philosophy of Change, pág. 21.
+[^19]: Instinct and Intuition, pág. 132.
+[^20]: Ídem, pág. 130.
+[^21]: Intention, pág. 165.
+[^22]: Quiet, pág. 629, por John Spencer Muirhead.
+[^23]: Mysticism, pág. 431.
+[^24]: Ídem, pág. 434
+[^25]: El Secreto de la Flor Dorada.
