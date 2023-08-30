@@ -157,3 +157,108 @@ La personalidad oculta en sí misma, como un estuche <pin lang="en">41</pin> la 
 El alma oculta dentro de sí, como la "joya en el loto" ese don de energía dinámica atributo manifestado de la mónada, la voluntad. Cuando el alma haya desarrollado todos sus poderes y aprendido a incluir dentro de su conciencia todo lo comprendido en "las miríadas de formas que adopta el Ser" entonces es posible a su vez un estado superior o más incluyente, y la vida del alma será reemplazada por la vida monádica. Esto implica la capacidad de conocer, de amar y de participar en los planes de una vida que tiene el poder de incluir en su radio de conciencia, no sólo la suma total de las vidas y conciencia de la vida del Logos de nuestro planeta, sino todas las vidas y conciencias dentro de nuestro sistema solar. La naturaleza de esta percepción sólo la puede comprender el hombre que ha llegado al conocimiento del alma. En esta época hay gran necesidad de expertos en la vida del alma y de grupos de hombres y mujeres que, al emprender el gran experimento y la gran transición, agreguen su testimonio a la verdad de las afirmaciones de los místicos y ocultistas de todos los tiempos.
 
 ## c. El Cuerpo, la Apariencia fenoménica.
+
+No es necesario extendernos mucho sobre esto, pues la naturaleza corporal y aspecto forma han sido el objeto de investigación y el tema de reflexión y discusión de los pensadores durante muchos siglos. Gran parte de sus conclusiones son básicamente correctas. El investigador moderno admitirá la Ley de Analogía como base de sus premisas y reconocerá a veces que la teoría hermética "como arriba, es abajo" puede arrojar mucha luz a los <pin lang="en">42</pin> problemas actuales. Los siguientes postulados podrán servir para aclarar esto: <pin lang="es">43</pin>
+
+1. El hombre, en su naturaleza corporal, es una suma total, una unidad.
+2. Esta suma total se subdivide en muchas partes y organismos.
+3. Sin embargo, estas múltiples subdivisiones funcionan de modo unificado y el cuerpo es una totalidad correlacionada.
+4. Cada una de sus partes difiere en forma y función, pero todas son interdependientes.
+5. Cada parte y organismo están a su vez compuestos de moléculas, células y átomos, manteniéndose unidos en forma de un organismo, por la vida de la totalidad.
+6. La suma total llamada hombre se divide aproximadamente en cinco partes, unas de mayor importancia que otras, pero todas completando ese organismo viviente denominado ser humano.
+   1. La cabeza.
+   2. El torso superior, la parte arriba del diafragma.
+   3. El torso inferior, la parte abajo del diafragma.
+   4. Los brazos.
+   5. Las piernas.
+7. Estos organismos sirven distintos propósitos; de su correcto funcionamiento y debido ajuste, depende el bienestar de la totalidad.
+8. Cada uno tiene vida propia, la suma total de la vida de su estructura atómica, y está también animada por la vida unificada del todo, dirigida desde la cabeza por la voluntad inteligente, o energía del hombre espiritual.
+9. La parte importante del cuerpo es esa triple división, la cabeza y el torso superior e inferior. El hombre puede funcionar y vivir sin brazos ni piernas.
+10. Cada una de estas tres partes es también triple en el <pin lang="en">43</pin> aspecto físico, formando así la analogía de las tres partes de la naturaleza del hombre y el nueve de la vida monádica perfecta. Hay otros órganos, pero los enumerados tienen significación esotérica de mayor valor que las otras partes.
+    1. Dentro de la cabeza tenemos:
+       1. Los cinco ventrículos del cerebro, o lo que podríamos denominar el cerebro como organismo unificado.
+       2. Las tres glándulas: carótida, pineal y pituitaria. <pin lang="es">44</pin>
+       3. Los dos ojos.
+    2. En la parte superior del cuerpo tenemos:
+       1. La garganta.
+       2. Los pulmones
+       3. El corazón.
+    3. En la parte inferior del cuerpo tenemos:
+       1. El bazo.
+       2. El estómago.
+       3. Los órganos sexuales.
+11. La suma total del cuerpo también es triple:
+    1. La piel y la estructura ósea.
+    2. El sistema vascular o sanguíneo.
+    3. El triple sistema nervioso.
+12. Cada una de estas triplicidades corresponde a las tres partes de la naturaleza del hombre:
+    1. La naturaleza física: La piel y la estructura ósea son analogía del cuerpo denso y etérico del hombre.
+    2. La naturaleza del alma: Los vasos sanguíneos y el sistema circulatorio son analogías de esa alma que penetra y compenetra todas las partes del sistema solar, así como la sangre llega a todas las partes del cuerpo.
+    3. La naturaleza del espíritu: El sistema nervioso, cuando energetiza y actúa a través de todo el hombre físico, es la correspondencia de la energía del espíritu.
+13. En la cabeza tenemos la analogía del aspecto espíritu, la voluntad directriz, la mónada, el Uno: <pin lang="en">44</pin>
+    1. El cerebro, con sus cinco ventrículos, es la analogía de la forma física que el espíritu anima en conexión con el hombre, esa quíntuple suma total por la cual el espíritu se expresa en el plano físico.
+    2. Las tres glándulas en la cabeza están estrechamente relacionadas con el alma, o la naturaleza síquica (superior e inferior).
+    3. Los dos ojos equivalen a la mónada en el plano físico, la cual es voluntad y amor-sabiduría, o atma-budi, según la terminología ocultista.
+14. La parte superior del cuerpo es la analogía de la triple naturaleza del alma:
+    1. La garganta, corresponde al tercer aspecto creador o naturaleza corporal, la inteligencia activa del alma. <pin lang="es">45</pin>
+    2. El corazón, amor-sabiduría del alma, el principio búdico o crístico.
+    3. Los pulmones, analogía del aliento de la vida, son la analogía del espíritu.
+15. En el torso inferior tenemos este triple sistema:
+    1. Los órganos sexuales, el aspecto creador, modelador del cuerpo.
+    2. El estómago, como la manifestación física del plexo solar, es la analogía de la naturaleza del alma.
+    3. El bazo, el receptor de energía, y por lo tanto la expresión en el plano físico del centro que recibe esta energía, es la analogía del espíritu que energetiza.
+
+El cuerpo vital es la expresión de la energía del alma y tiene la siguiente función:
+
+1. Unificar y vincular la suma total de las formas. <pin lang="en">45</pin>
+2. Dar a toda forma su cualidad específica, y ello por:
+   1. El tipo de materia atraída a esa Parte particular de la trama de la vida.
+   2. La posición en el cuerpo del Logos planetario, por ejemplo, de cualquier forma específica.
+   3. El particular reino de la naturaleza que está siendo vitalizado.
+3. Es el principio de integración y la fuerza cohesiva de la manifestación, en sentido estrictamente físico.
+4. Esta trama de vida es la analogía subjetiva del sistema nervioso, y quienes se inician en las ciencias esotéricas pueden, si recuerdan esto, visualizar una red de nervios y de plexos que se extiende por todo el cuerpo, o la suma total de las formas, que coordinan, conectan y producen la unidad esencial.
+5. Dentro de esa unidad hay diversidad. Así como los diferentes órganos del cuerpo humano están interrelacionados por la ramificación del sistema nervioso, así dentro del cuerpo del Logos planetario están los distintos reinos de la naturaleza y la multiplicidad de formas. Tras el universo objetivo existe el cuerpo sensible más sutil - un solo organismo, no muchos, una sola forma sensitiva, que se conecta y responde.
+6. Esta forma sensitiva no sólo responde al medio ambiente, sino que trasmite (desde fuentes internas) ciertos tipos de energía, y podría afirmarse que el objeto de este tratado es considerar los diversos tipos de energía trasmitida a la forma en el reino humano, la respuesta de la <pin lang="es">46</pin> forma a los tipos de fuerza, los efectos de esa fuerza en el hombre y su gradual respuesta a la fuerza que emana de: <pin lang="en">46</pin>
+   1. Su medio ambiente, más la de su propio cuerpo físico externo.
+   2. El plano emocional o fuerza astral.
+   3. El plano mental o corrientes de pensamiento.
+   4. La fuerza egoica, sólo registrada por el hombre, de la cual el cuarto reino de la naturaleza es el custodio y tiene efectos misteriosos y peculiares.
+   5. El tipo de energía que produce la concreción de ideas en el plano físico.
+   6. La energía estrictamente espiritual o fuerza proveniente del plano monádico.
+
+ En el reino humano estos diferentes tipos de fuerzas pueden ser registrados. Algunos de ellos pueden ser registrados en los reinos subhumanos, y el mecanismo del cuerpo vital del hombre está construido de tal modo que mediante sus tres manifestaciones objetivas, el triple sistema nervioso, a través de los siete plexos mayores, los ganglios nerviosos menores y los miles de nervios el entero hombre objetivo puede responder a:
+   1. Los tipos de fuerza ya mencionados.
+   2. Las energías generadas en cualquier parte de la trama etérica planetaria de la vida y emanando de ella.
+   3. La trama solar de la vida.
+   4. Las constelaciones del zodíaco que parecen tener un efecto real sobre nuestro planeta, acerca de las cuales la astrología constituye un estudio aún inmaduro.
+   5. Ciertas fuerzas cósmicas que, como se comprenderá más adelante, actúan sobre nuestro sistema solar y producen cambios en él y, por consiguiente, en nuestro planeta y en todas las formas de esa vida planetaria y dentro de ella. Esto ha sido mencionado en Tratado sobre Fuego Cósmico.
+
+A todas ellas responde la trama planetaria de la vida y, cuando los astrólogos trabajen en forma esotérica y <pin lang="en">47</pin> tengan en cuenta el horóscopo planetario, llegarán más rápidamente a una comprensión de las influencias zodiacales y cósmicas.
+
+El ánima mundi es lo que está detrás de la trama de la vida. Esta última es sólo el símbolo físico de esa alma universal, el signo externo y visible de la realidad interna, la concreción de esa entidad sensible que responde y vincula espíritu y materia. A esta entidad se la denomina Alma Universal, principio medio <pin lang="es">47</pin> desde el punto de vista de la vida planetaria. Cuando se limita el concepto a la familia humana y el hombre es considerado individualmente, se lo llama principio mediador, porque el alma del género humano no sólo es una entidad que vincula espíritu y materia, mediadora entre la mónada y la personalidad, sino que tiene que desempeñar una función singular como mediadora entre los tres reinos superiores de la naturaleza y los tres inferiores. Los superiores son:
+
+1. La Jerarquía espiritual de nuestro planeta, espíritus de la naturaleza o ángeles y espíritus humanos, que se hallan en un punto especial en la escala de evolución. De éstos, Sanat Kumara, que encarna un principio del Logos planetario, es el superior, y un iniciado de primer grado es el inferior, con sus correspondientes entidades, dentro de lo denominado el reino angélico o dévico.
+2. La Jerarquía de Rayos - ciertas agrupaciones de los siete rayos en relación con nuestro planeta.
+3. La Jerarquía de Vidas, extraídas de nuestra evolución planetaria y de otros cuatro planetas, por un proceso evolutivo, encarnan en sí mismas el propósito y el Plan del Logos solar, en relación con los cinco planetas involucrados.
+
+Al limitar el concepto al microcosmos, el ego o alma actúa en realidad como el principio medio que une a <pin lang="en">48</pin> la Jerarquía de Mónadas con las formas externas diversificadas, que ellas usan sucesivamente en el proceso de:
+
+1. Alcanzar ciertas experiencias, por las cuales se adquieren atributos.
+2. Llevar a cabo ciertos efectos, iniciados en un sistema anterior.
+3. Cooperar en el plan del Logos solar, en relación con Su (si es permitido emplear un pronombre al hablar de una vida que constituye una existencia, no obstante ser un concepto divulgado) karma - algo que a menudo se pasa por alto. Este Su karma, debe ser consumado por el método de la encarnación y el consiguiente resultado que produce la energía encarnada sobre la sustancia de la forma. Está simbolizado para nosotros, si pudiéramos comprenderlo, en la relación del sol y la luna. "El Señor solar, con su calor y su luz, energetiza a los moribundos Señores lunares para una vida espúrea. Ésta es la gran desilusión, y el Maya de Su Presencia". Así reza El Antiguo Comentario citado a menudo en mis obras <pin lang="es">48</pin> anteriores. El concepto antedicho encierra en sí una verdad para el alma individual.
+
+Este principio medio se halla en proceso de revelarse ahora. El aspecto inferior está activo. El superior permanece desconocido, pero aquello que los vincula (y al mismo tiempo revela la naturaleza del superior) está en vísperas de ser descubierto. La estructura o mecanismo, ya está preparada y desarrollada, hasta donde es de utilidad; la vida vital que puede guiar y movilizar la máquina también está presente, y el hombre puede ahora usar y controlar inteligentemente no sólo la máquina, sino también el principio activo.
+
+El gran símbolo del alma en el hombre es su cuerpo etérico o vital, por las siguientes razones:
+
+1. Constituye la analogía física del cuerpo interno de luz, llamado el cuerpo del alma, el cuerpo espiritual. <pin lang="en">49</pin> Se lo denomina el "cuenco dorado", en la Biblia, y se caracteriza por:
+   1. Su cualidad de luz.
+   2. Su grado de vibración, que se sincroniza siempre con el desarrollo del alma.
+   3. Su fuerza coherente, vinculando y conectando cada parte de la estructura corpórea.
+2. Es la microcósmica "trama de vida", pues subyace en cada parte de la estructura física, y tiene tres propósitos:
+   1. Llevar por todo el cuerpo el principio vital, la energía que produce actividad, efectuándolo por medio de la sangre, siendo el punto focal de esta distribución el corazón. Es el portador de la vitalidad física.
+   2. Permitir al alma humana u hombre espiritual, ponerse en armonía con su medio ambiente. Esto se lleva a cabo por intermedio del entero sistema nervioso, y el punto focal de esta actividad es el cerebro, asiento de la receptividad consciente.
+   3. Producir oportunamente, por medio de la vida y la conciencia, una radiante actividad o manifestación de gloria, que hará de cada ser humano un centro activo para distribuir luz y energía atractiva a otros, en el reino humano, y a través de éste, a los reinos subhumanos. Esto constituye parte del plan del Logos planetario, cuya finalidad es vitalizar y renovar la vibración de esas formas que designamos humanas.
+3. Este símbolo microcósmico del alma no sólo es la base de toda la estructura física, símbolo del ánima mundi o <pin lang="es">49</pin> alma del mundo, sino que es indivisible, coherente y una entidad unificada, y simboliza así la unidad y homogeneidad <pin lang="en">50</pin> de Dios. No existen organismos separados en él, sino simplemente un cuerpo de fuerza que fluye libremente, siendo ella una mezcla o unificación de dos tipos de energía en variadas cantidades, energía dinámica y energía atractiva o magnética. Ambos tipos caracterizan análogamente al alma universal, la fuerza de la voluntad y del amor o de atma y budi, y la actuación de ambas fuerzas sobre la materia atrae al cuerpo etérico de todas las formas, los átomos físicos necesarios, y - habiéndolos atraído - por la fuerza de voluntad, los impele a iniciar ciertas actividades.
+4. Este coherente y unificado cuerpo de luz y energía es el símbolo del alma porque contiene dentro de sí siete puntos focales, en los cuales la condensación, si puede denominársela así, de las dos energías mezcladas, se intensifica. Estos corresponden a los siete puntos focales en el sistema solar, donde el Logos solar enfoca Sus energías a través de los siete Logos planetarios. Esto se ampliará más adelante. El punto que debe observarse aquí es sencillamente la naturaleza simbólica del cuerpo etérico o vital, pues mediante la comprensión de la naturaleza de las energías desplegadas y la naturaleza unificada de la forma y de la tarea, podrá captarse una idea del trabajo del alma, principio medio de la naturaleza.
+5. Si recordamos que el cuerpo etérico vincula al cuerpo estrictamente físico o denso, con el cuerpo puramente sutil, el astral o emocional, entonces el símbolo también se aplica aquí. En esto vemos el reflejo del alma en el hombre, que vincula a los tres mundos (correspondientes a los aspectos sólido, líquido y gaseoso, del cuerpo estrictamente físico del hombre) con los planos superiores del sistema solar, vinculando así el plano mental con el búdico y la mente con los estados de conciencia intuitivos. <pin lang="en">51</pin>
