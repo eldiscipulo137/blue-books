@@ -27,12 +27,20 @@ Este tipo de ondas se pueden mover en el espacio.
    1. La temperatura afecta la velocidad de propagación de las ondas. Un aumento en la temperatura aumenta la velocidad de propagación de las ondas.
 2. Crestas: son los puntos más altos de la onda.
 3. Valles: son los puntos más bajos de la onda.
-4. Amplitud de onda: es la distancia entre la cresta y el valle.
-5. Ciclo: es el conjunto de una cresta y un valle.
-6. Periodo: es el tiempo que tarda la onda en completar un ciclo.
-7. Longitud de onda: es la distancia entre dos crestas o dos valles.
-8. Frecuencia: es el número de ciclos que se completan en un segundo.
+4. Amplitud de onda: es la distancia entre el punto más elevado de la onda y el punto de equilibrio o medio
+5. Amplitud de pico a pico: es la distancia entre el punto más elevado de la onda y el punto más bajo de la onda.
+6. Intensidad: es la energía que transporta la onda. 
+7. Ciclo: es el conjunto de una cresta y un valle.
+8. Periodo: es el tiempo que tarda la onda en completar un ciclo.
+9. Longitud de onda: es la distancia entre dos crestas o dos valles.
+10. Frecuencia: es el número de ciclos que se completan en un segundo.
 
 ## Cómo se genera las ondas mecánicas
 
 Las vibraciones de la materia genera perturbaciones repetitivas a intervalos de tiempos regulares, estas perturbaciones son conocidas como ondas
+
+## Propiedades de las ondas sonoras
+
+1. Dispersión: es la separación de las ondas sonoras en sus componentes al atravesar un material.
+2. Tono: es la cualidad de un sonido que permite distinguir si es grave, medio o agudo.
+   1. depende de la frecuencia de la onda y de la amplitud de la onda.
