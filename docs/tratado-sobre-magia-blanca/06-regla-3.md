@@ -83,4 +83,131 @@ Estos tres acercamientos al tema deben ser estudiados a través del efecto que p
 
 Quisiera intercalar aquí la observación de que hago sugerencias basadas en las experiencias del trabajo esotérico. No es obligatorio obedecer. Tratamos de entrenar a servidores inteligentes de la raza, que se desarrollan mediante el esfuerzo <pin lang="en">104</pin> autoiniciado, la libertad de acción y el discernimiento en el método, y no por ciega obediencia, pasividad negativa y adhesión incondicional. Recuérdenlo. Si alguna vez el mandato surgido del grupo subjetivo de instructores, del cual soy un humilde miembro, imparte una orden que sea para seguir los dictados de la propia alma y las inspiraciones del yo superior.
 
+Antes de analizar esta regla y la anterior, pues las Reglas Dos y Tres son mitades de un entero, quisiera recordarles que en esta serie de meditaciones sobre fórmulas antiguas, nos ocuparemos del trabajo mágico del aspirante como colaborador en las empresas de la Gran Logia Blanca. Me referiré a los métodos de magia blanca. También les recordaré que el trabajo mágico de nuestra Jerarquía planetaria consiste en cuidar la psiquis en el mundo de las formas, para que la flor del alma, a medida que se vaya abriendo, pueda ser nutrida y preservada en tal forma, que la gloria radiante, la fuerza magnética y, finalmente, la energía espiritual, puedan expresarse mediante la forma. Así se podrá percibir el poder de los tres Rayos de Manifestación divina.
+
+:::note Recuerda
+
+También les recordaré que el trabajo mágico de nuestra Jerarquía planetaria consiste en cuidar la psiquis en el mundo de las formas, para que la flor del alma, a medida que se vaya abriendo, pueda ser nutrida y preservada en tal forma, que la gloria radiante, la fuerza magnética y, finalmente, la energía espiritual, puedan expresarse mediante la forma.
+
+:::
+
+|              |                    |
+| ------------ | ------------------ |
+| Primer rayo  | energía espiritual |
+| Segundo rayo | fuerza magnética   |
+| Tercer rayo  | gloria radiante    |
+
+Estos rayos tienen también sus reflejos microcósmicos en el aura del hombre perfecto.
+
+|              |              |                    |                   |
+| ------------ | ------------ | ------------------ | ----------------- |
+| Primer rayo  | monádico     | energía espiritual | centro coronario. |
+| Segundo rayo | egoico       | fuerza magnética   | centro cardíaco.  |
+| Tercer rayo  | personalidad | gloria radiante    | plexo solar.      |
+
+Quizá se pregunten, ¿por qué no menciono el centro laríngeo? Porque los centros abajo del diafragma simbolizan <pin lang="es">87</pin> principalmente el yo inferior personal, y su centro sintetizador, el plexo solar, expresa la fuerza magnética del aspecto materia en el hombre. A medida que la personalidad vibra para el alma, el centro laríngeo es impelido <pin lang="en">105</pin> a una creciente actividad creadora.
+
+Consideraremos ahora las palabras finales de la regla anterior: "La luz inferior es proyectada hacia arriba; la luz superior ilumina a los tres, y el trabajo de los cuatro prosigue".
+
+¿Qué sucede con esta luz inferior? El estudiante debería recordar que para los actuales propósitos debe considerar tres cuerpos de luz:
+
+1. El cuerpo radiante del alma, en su propio plano, denominado frecuentemente Karana Sarira o cuerpo causal.
+2. El cuerpo vital o etérico, el vehículo de prana, el cuerpo de luz dorada o, mejor dicho, el vehículo de color flamígero.
+3. El cuerpo de "luz oscura" modo esotérico de referirse a la luz oculta del cuerpo físico y a la luz latente en el átomo mismo.
+
+El Antiguo Comentario se refiere a estos tres tipos de energía con los términos simbólicos siguientes:
+
+> Cuando, la radiante luz del Ángel solar se fusiona con la luz dorada del intermediario cósmico, despierta de la oscuridad a la ínfima llama de anu, la partícula.
+
+"El intermediario cósmico" es el término aplicado al cuerpo etérico, parte integrante del éter universal. A través del cuerpo etérico fluyen todas las energías, ya emanen del alma, del sol o de un planeta. Por estas líneas vivientes de esencia ígnea pasan todos los contactos que no emanan específicamente del mundo tangible.
+
+La oscura luz de los diminutos átomos de que está construido el vehículo físico, responde al estímulo que desde el alma desciende a su vehículo y, cuando el hombre está bajo el control del alma, resplandece la luz en todo el cuerpo. Ésta <pin lang="en">106</pin> se manifiesta como la irradiación que emana de los cuerpos de los adeptos y santos, produciendo el efecto de brillante y reluciente luz.
+
+Cuando la radiante luz del alma se fusiona con la luz magnética del cuerpo vital, estimula los átomos del cuerpo físico a tal extremo, que cada uno de ellos a su vez se convierte en un pequeño centro radiante. Esto es sólo posible cuando los centros coronario, cardíaco, plexo solar y el de la base de la columna vertebral, están conectados en forma peculiar, siendo éstos uno de los secretos de la primera iniciación. Cuando los cuatro colaboran estrechamente, la "base del triángulo", según se la denomina simbólicamente, está preparada para el trabajo mágico. En otras palabras, se los puede enumerar de la manera siguiente: <pin lang="es">88</pin>
+
+1. La forma física material, con su centro en la base de la columna vertebral.
+2. El cuerpo vital, actuando por medio del centro cardíaco, donde radica el principio vida. Las actividades del cuerpo, debido a este estímulo se realizan por medio de la circulación de la sangre.
+3. El cuerpo emocional, actuando mediante el centro plexo solar.
+4. El centro coronario, agente directo del alma, y su intérprete, la mente. Los cuatro se hallan en completo acuerdo y alineamiento.
+
+Cuando tal es el caso, es posible el trabajo de iniciación y sus períodos de discipulado activo. El trabajo no puede proseguir hasta lograrse esto, lo cual está previsto en el aspirante al efectuarse el acontecimiento simbólico de la luz en la cabeza, precursor de un estado posterior de la iniciación.
+
+En esta etapa, la luz del alma penetra en la región de la glándula pineal, irradiando allí los éteres en la cabeza, los aires vitales, lo cual estimula los átomos del cerebro, de manera que su luz <pin lang="en">107</pin> se fusiona y mezcla con las otras dos, la etérica y la del alma; entonces se produce ese radiante sol interno del cual el aspirante es consciente en su cerebro físico. Frecuentemente los estudiantes hablan de una luz difusa o resplandor, luz de los átomos del plano físico de los cuales está compuesto el cerebro; posteriormente quizá digan que han visto en la cabeza algo parecido a un sol, lo cual significa hacer contacto con la luz etérica y la luz física atómica. Luego, perciben una luz eléctrica intensamente brillante; es la luz del alma, unida a la etérica y a la atómica. Cuando llegan a ver esto, son a menudo conscientes de un centro oscuro dentro del sol radiante. Ésta es la entrada en el sendero, revelada por "la luz enfocada en la puerta".
+
+Los estudiantes deben recordar que puede alcanzarse una elevada etapa de conciencia espiritual sin haber visto esta irradiación del cerebro. Ello corresponde a la categoría de los fenómenos, y en gran parte lo determina la calidad del cuerpo físico, el karma pasado, lo que se ha realizado y la capacidad del aspirante para hacer descender el "poder de lo alto" y mantener esa energía firmemente en el centro cerebral, mientras que en su meditación se separa del aspecto forma, y puede contemplarla serenamente.
+
+Logrado esto (que no es un objetivo a alcanzarse, sino simplemente la indicación de que debe ser registrado en la conciencia y luego olvidado), el consiguiente estímulo produce una <pin lang="es">89</pin> reacción en el cuerpo físico. El poder magnético de la luz en la cabeza y la fuerza radiante del alma provocan estímulo. Los centros comienzan a vibrar, y su vibración despierta los átomos del cuerpo material, hasta que, eventualmente, los poderes del vibrante cuerpo etérico han impelido al centro más bajo alinearse con el más elevado. Así los fuegos del cuerpo (suma total de la energía de átomos) son arrastrados a una acrecentada actividad, hasta el momento <pin lang="en">108</pin> de producirse un ascenso en la columna vertebral de esa energía ígnea. Se origina por el control magnético del alma, situada "en el trono entre las cejas".
+
+Aquí interviene el trabajo de uno de los métodos de yoga, la abstracción o retraimiento. Cuando las tres luces se mezclan, los centros se activan y los átomos vibran, el hombre puede centrar a voluntad los tres en la cabeza. Entonces, mediante un acto de la voluntad y el conocimiento de ciertas palabras de Poder, podrá entrar en samadhi y retirarse de su cuerpo, llevando consigo la luz. La luz mayor (las tres fusionadas y mezcladas) ilumina así los tres mundos del esfuerzo humano, y "la luz es proyectada hacia arriba", e ilumina todas las esferas de la experiencia consciente e inconsciente del hombre. Sobre esto se habla en los escritos ocultos de los Maestros:
+
+> Entonces el Toro de Dios lleva la luz en la frente y su ojo transmite la irradiación; la fuerza magnética de Su cabeza se asemeja al fulgurante sol y del loto de la cabeza sale el sendero de luz. Penetra en el Ser mayor, produciendo un fuego viviente. El Toro de Dios percibe al Ángel solar, y sabe que ese Ángel es la luz en la cual camina
+
+Luego prosigue el trabajo de los cuatro. Los cuatro se unifican. El Ángel solar se identifica con su instrumento; la vida de los vehículos se subordina a la de la divinidad interna; la luz de los vehículos se fusiona con la luz del alma. La cabeza, el corazón y la base de la columna vertebral, se alinean geométricamente, entonces son posibles ciertos desarrollos.
+
+En estas dos reglas se han sentado las bases del trabajo mágico del alma. Para mayor claridad enumeremos los pasos delineados:
+
+1. El Ángel solar comienza el trabajo de iniciar a la Personalidad. <pin lang="en">109</pin>
+2. Retira sus fuerzas de las empresas del alma en el reino espiritual, y centra su atención en el trabajo que debe realizarse.
+3. Entra en profunda meditación.
+4. Establece relación magnética con el instrumento en los tres mundos. <pin lang="es">90</pin>
+5. El instrumento, el hombre, responde, y también entra en meditación.
+6. El trabajo prosigue en etapas ordenadas y en cíclica actividad.
+7. La luz del alma es proyectada hacia abajo.
+8. La luz del cuerpo vital y de la forma física se sincroniza con la de la cabeza.
+9. Los centros entran en actividad.
+10. La luz del alma y los otros dos aspectos de la luz son tan intensos ahora que toda la vida de los tres mundos se ilumina.
+11. El alineamiento tiene lugar y es posible el trabajo del discipulado y de la iniciación, prosiguiendo de acuerdo con la Ley del Ser.
+
+### Principios y Personalidades
+
+Ahora bien, existe un punto que merece ser considerado y puede encararse con un interrogante. El estudiante podría muy bien investigar la cuestión de la manera siguiente:
+
+Algunas personas encaran el problema del Ser por la apreciación mental y otros por la comprensión del corazón; algunos están motivados por la cabeza y otros por el corazón; hay quienes hacen cosas o evitan hacerlas, no porque las sienten sino porque las saben, reaccionando a su medio ambiente en forma mental, en lugar de hacerlo emocionalmente.
+
+Hay que buscar iluminación para saber si para algunos el sendero consiste en no prestar servicio, porque más bien conocen que aman a Dios, que después de todo no es más que su propio yo interno. <pin lang="en">110</pin> ¿No es éste el sendero del ocultista y del sabio más bien que el del místico y del santo? Después de lo dicho y hecho, ¿no es principalmente cuestión de saber el rayo a que uno pertenece y bajo qué Maestro se recibe el aprendizaje? ¿No es el verdadero conocimiento una especie de amor intelectual? Si un poeta puede escribir una oda a la belleza intelectual, ¿por qué no podemos expresar nuestro aprecio por una entidad concebida por la cabeza más que por el corazón. El corazón tiene su valor, pero no es adecuado para la rudeza del mundo.
+
+¿Qué otra cosa puede hacerse sino aceptar las actuales limitaciones mientras se buscan las cosas trascendentales que le corresponde, según la Ley Divina de evolución? ¿No existe acaso aquello que (comparativamente) es como un complejo espiritual de inferioridad, de parte de quienes son sensibles (y quizás super sensibles), al hecho de que, si bien sus vidas están intelectualmente colmadas de interés, el desierto de sus corazones no han llegado a florecer como la rosa?
+
+"En otras palabras, siempre que uno acuda a servir en el lugar designado, aceptando la Hermandad en Presencia de la Paternidad, ¿qué importa que el postulado fundamental sea para él una cosa de la cabeza, en vez de serlo del corazón?"
+
+<p><pin lang="es">91</pin> Responderé a estas preguntas de la manera siguiente:</p>
+
+No es cuestión de rayo ni de una diferencia básica entre el ocultista y el místico. En el individuo íntegro deben actuar con igual poder la cabeza y el corazón. No obstante, en tiempo y espacio y durante el proceso de evolución, los individuos se caracterizan por la tendencia que predomina en cualquier vida; hacemos estas diferencias transitorias porque no percibimos el conjunto. En determinada vida el hombre puede ser predominantemente mental, pues para él, el sendero del Amor de Dios no sería apropiado. El Amor de Dios afluye a su corazón y en considerable medida su acercamiento esotérico se basa en la percepción mística de sus vidas anteriores. Su problema es conocer a Dios, con la finalidad de interpretar ese conocimiento como amor a todo. Por lo tanto, <pin lang="en">111</pin> el amor responsable, expresado como deber hacia el grupo y la familia, es para él la línea de menor resistencia. El amor universal irradiado a toda la naturaleza y a todas las formas de vida, vendrá después de un mayor conocimiento de Dios, y será parte de su desarrollo en otra vida.
+
+Quienes estudian la naturaleza humana (y esto deberían hacerlo todos los aspirantes) harían bien en tener presente que existen diferencias transitorias. Las personas difieren en:
+
+1. El rayo (que afecta predominantemente al magnetismo de la vida).
+2. El acercamiento a la verdad, teniendo mayor poder de atracción el sendero ocultista o el místico.
+3. La polarización, que decide la intención emocional, mental o física, de una vida.
+4. La etapa de evolución, que produce las diferencias observadas entre los hombres.
+5. El signo astrológico, que determina la tendencia de determinada vida.
+6. La raza, que pone a la personalidad bajo la peculiar forma mental racial.
+
+El subrayo al que pertenece el hombre, ese rayo menor que varía de una encarnación a otra, colora mayormente su vida. Es su matiz secundario. Recuerden que el rayo primario de la mónada continúa durante el eón. No varía. Es uno de los tres rayos primarios que oportunamente los hijos de los hombres sintetizarán. El rayo egoico varía de ronda en ronda, y en las almas más evolucionadas de raza en raza, y comprende uno de los cinco rayos de nuestra actual evolución. Es el rayo predominante por el cual vibra el cuerpo causal del hombre. Puede corresponder al rayo de la mónada, o ser uno de los colores complementarios del primario. El rayo de la personalidad varía <pin lang="en">112</pin> vida tras vida, hasta <pin lang="es">92</pin> haber pasado por toda la gama de los siete subrayos del rayo monádico.
+
+Por consiguiente, al tratar con personas cuyas mónadas están en un rayo similar o complementario, se hallará que se aproximan por simpatía. Sin embargo, conviene recordar que la evolución debe ser muy avanzada para que el rayo de la mónada influya ampliamente. De este modo la mayoría de los casos no pertenecen a esa categoría.
+
+Referente al hombre común evolucionado, que lucha por aproximarse al ideal, la similitud del rayo egoico producirá una mutua comprensión, que lo llevará a la amistad. Es fácil para dos personas del mismo rayo egoico comprender sus puntos de vista y llegar a ser grandes amigos, con una mutua fe inquebrantable, pues cada uno reconoce en el otro el mismo modo de actuar.
+
+Pero cuando (agregado a la similitud egoica de rayo) la personalidad pertenece al mismo rayo, entonces tenemos una de esas cosas poco frecuentes, una perfecta amistad, un casamiento feliz, un vínculo inquebrantable entre dos. Esto, en realidad, es sumamente raro.
+
+Cuando se trata de dos personas cuya personalidad pertenece al mismo rayo, y a distinto rayo egoico, puede existir una de esas amistades y afinidades breves y repentinas, pero tan efímeras como una mariposa. Es menester tenerlo presente, pues reconociéndolo se obtiene la capacidad de adaptación. La claridad de visión da por resultado una actitud prudente.
+
+Otra causa de disidencias puede deberse a la polarización de los cuerpos. A no ser que esto sea reconocido, al tratarse las personas, se producirá incomprensión. El empleo de los términos, "un hombre polarizado en su cuerpo astral", en realidad, significa el hombre cuyo ego actúa principalmente a través de dicho vehículo. La polaridad indica la claridad del canal. Permítaseme ilustrarlo. El ego del hombre <pin lang="en">113</pin> común tiene su morada en el tercer subplano del plano mental. Cuando el hombre posee un vehículo astral compuesto en su mayor parte de materia del tercer subplano astral, y el mental se encuentra mayormente en el quinto subplano, el ego centrará sus esfuerzos en el cuerpo astral. Si tiene un cuerpo mental de materia del cuarto subplano y un cuerpo astral del quinto subplano, la polarización será mental.
+
+Cuando se habla que el ego controla más o menos al hombre, en realidad se quiere decir que ha incorporado en sus cuerpos materia de los subplanos superiores.
+
+El ego controla con interés sólo cuando el hombre ha eliminado de sus vehículos casi toda la materia del séptimo, sexto y quinto subplanos. Cuando ha incorporado cierta cantidad de <pin lang="es">93</pin> materia del cuarto subplano, el ego amplía su control; cuando existe cierta cantidad del tercer subplano, entonces el hombre está en el sendero; cuando predomina materia del segundo subplano entonces recibe la iniciación, y cuando tiene solamente materia de sustancia atómica se convierte en Maestro. Por lo tanto, el subplano en el que se encuentra el hombre es importante, y el reconocimiento de su polarización dilucida la vida.
+
+La tercera cosa a recordarse es que aunque se aceptan ambos puntos, la edad y la experiencia del alma con frecuencia originan incomprensión. Los dos puntos anteriores no nos llevan muy lejos, porque la capacidad de percibir el rayo del hombre no es aún para esta raza. Una aproximada suposición y el uso de la intuición, es todo lo que se puede hacer. Los pocos evolucionados no pueden comprender perfectamente a los muy evolucionados, y en menor grado el alma avanzada no comprende al iniciado. Lo mayor puede comprender lo menor, pero no lo contrario.
+
+Respecto a la actividad de aquellos cuyo punto de realización trasciende el propio, sólo les pediré hacer tres cosas: <pin lang="en">114</pin>
+
+1. No juzgar. Ellos tienen mayor visión. Recuerden que una de las mayores cualidades que han alcanzado los miembros de la Logia es su habilidad para considerar la destrucción de la forma como algo sin importancia. Les preocupa la vida en evolución.
+2. Comprender que todos los acontecimientos son producidos por los Hermanos, teniendo en vista un sabio propósito. Los iniciados de grado inferior, aunque agentes absolutamente libres, encuadran en los planes de sus superiores, del mismo modo que lo hacen ustedes en escala menor. Tienen lecciones que aprender, y la regla del aprendizaje dice que la experiencia debe ser pagada. La captación viene a través del castigo que sigue a la acción irrazonable. Sus superiores permanecen preparados para sacar provecho de las situaciones producidas por los errores de quienes están en una etapa inferior de desarrollo.
+3. Tener presente que la Ley de Renacimiento oculta en sí el secreto de la crisis actual. Los egos se reúnen en grupos para agotar cierto karma acumulado en el pasado, en el cual pecaron lastimosamente los hombres. El castigo y la transmutación son consecuencias naturales. La violencia y la crueldad anteriores traerán un pesado karma, pero ustedes tienen en sus manos la trasmutación de los antiguos errores.
+
+Recuerden además que los principios son eternos y las personalidades transitorias. Los principios se verán a la luz de la eternidad, las personalidades desde el punto de vista del tiempo. <pin lang="es">94</pin> Lo malo es que, en muchas situaciones, están involucrados dos principios, uno de ellos secundario. La dificultad estriba en que (siendo ambos principios) los dos son correctos. Una buena regla para una guía segura, consiste en recordar siempre que generalmente los principios básicos (para una sabia comprensión y desarrollo fructífero) exigen el empleo de la intuición, mientras que los secundarios son más puramente mentales. Por eso los métodos difieren necesariamente. Al aferrarse a los principios básicos, los métodos más inteligentes son <pin lang="en">115</pin> el silencio y una alegre confianza en que la Ley actúa, evitando todas las insinuaciones personales, excepto los comentarios inteligentes y amorosos, tratando de ver todo a la luz de la eternidad y no del tiempo, conjuntamente con un constante afán de seguir la ley del amor y sólo ver lo divino en el hermano, aunque tenga ideas contrarias.
+
+
 
