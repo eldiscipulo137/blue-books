@@ -4,7 +4,7 @@ title: Sobre los ideales
 
 # Sobre los ideales
 
-> [Tratado sobre magia blanca](/tratado-sobre-magia-blanca/regla-4#es104)
+> [Tratado sobre magia blanca](/tratado-sobre-magia-blanca/regla-4#es111)
 
 Que el idealismo y la percepción del plan en bien de la humanidad están íntimamente relacionados. El idealismo es análogo al pensamiento que precede a la creación. La capacidad de pensar en forma abstracta y de concentrarse en el ideal, sólo está en proceso de desarrollo en la actualidad, porque esta capacidad implica la utilización de ciertos átomos, el empleo de materia de los subplanos superiores y la capacidad de sincronizar las propias vibraciones con las de los Grandes Seres. Muy pocas personas son verdaderos idealistas (aunque va aumentando su número); únicamente una pequeña minoría emplea la mente concreta, mientras que las masas son arrastradas totalmente por las emociones. Llegará el momento en que el cuerpo intuitivo (el vehículo búdico) se organizará, utilizando la mente espiritual superior como medio de expresión. Cuando dicha organización se haya completado, la mente concreta inferior no será más que un trasmisor o intérprete. Hasta el pensamiento abstracto o el concreto, será reemplazado, y tendremos simplemente la afluencia de la intuición adquiriendo forma por intermedio de la materia mental. En consecuencia comprenderemos muchas cosas, que ahora son incomprensibles para nuestra visión en el plano inferior.
 
