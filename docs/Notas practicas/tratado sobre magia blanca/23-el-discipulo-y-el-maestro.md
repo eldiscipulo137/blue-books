@@ -6,7 +6,6 @@ title: El discípulo y el maestro
 
 > [Tratado sobre magia blanca](/tratado-sobre-magia-blanca/regla-5#en167)
 
-
 Segundo, cuando el hombre utiliza voluntariamente el instrumento subjetivo y sabe cómo utilizarlo, cuándo lo debe utilizar, y puede dejar de hacerlo y volver a emplearlo a voluntad, entonces cambia totalmente su estado y aumenta su utilidad. Por el empleo de la mente, la humanidad ha llegado a percibir los propósitos y la utilización del mecanismo físico. Ahora, mediante el empleo de una facultad más elevada, característica del alma, obtiene un control voluntario e inteligente de su instrumento, y aprende a comprender los propósitos para los cuales dicho instrumento existe. Esta facultad superior es la intuición.
 
 Quisiera agregar en forma destacada, que únicamente cuando el hombre llega a ser intuitivo es de utilidad en el grupo de un Maestro, y recomiendo a todos los aspirantes que estudien muy detenidamente el significado y significación de la intuición. Cuando ésta comienza a actuar, entonces el discípulo puede pasar de la etapa de probación a la de aceptación, en el grupo de un Maestro.
