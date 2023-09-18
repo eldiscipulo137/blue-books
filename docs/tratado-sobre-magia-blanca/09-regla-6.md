@@ -1,0 +1,62 @@
+---
+title: Regla 6
+---
+
+# <pin lang="en">209</pin> REGLA SEIS
+
+> Cuando el ojo se abre, los devas de los cuatro inferiores sienten la fuerza, son expulsados y pierden a su amo.
+
+## EL TRABAJO DEL OJO
+
+<p><pin lang="es">159</pin> <pin lang="en">211</pin> Consideraremos ahora una de las más simples Reglas de la Magia, aunque al mismo tiempo la más práctica y de la cual depende todo el éxito del trabajo mágico.</p>
+
+Quisiera indicar al aspirante investigador que la clave de la situación descrita en esta regla reside en la palabra contemplación, incluida en la regla anterior. Por lo tanto, estudiemos cuidadosamente esta palabra y busquemos su exacta definición.
+
+La contemplación implica visión constante, dirigida concentradamente hacia un objetivo específico. Puede decirse que el alma o ángel solar, mira en tres direcciones:
+
+1. Hacia la Luz Suprema, esa Vida central o energía, que tiene ocultos en Sí el propósito y el plan hacia los cuales tiende todo Ser. No sé cómo expresar esto con mayor claridad. Qué podrá ser esa fuerza directriz y cuál es el secreto del Ser Mismo, sólo es revelado durante las iniciaciones más avanzadas, y captado cuando el cuerpo causal, el karana sarira, se desintegra y desaparece la última limitación. No consideraremos esta dirección hacia la cual mira el ángel solar.
+2. Hacia el reino donde el ángel solar impera supremo sobre el mundo de las almas o impulsos egoicos, el trabajo jerárquico y el pensamiento puro. Éste es el Reino de Dios, el mundo del Ser celestial. Es el estado en que los discípulos llegan a ser cada vez más conscientes, en el que trabajan los iniciados y desde el cual los Maestros, en Sus distintos rangos, dirigen el proceso evolutivo del <pin lang="en">212</pin> planeta. Estas dos direcciones en que mira el alma constituyen el mundo de su experiencia espiritual y el objeto de su aspiración. Recordemos que el hombre espiritual, el ángel solar, también tiene su meta de esfuerzo, y que ésta se convierte en el impulso predominante cuando es subyugado el vehículo en los tres <pin lang="es">160</pin> mundos. Del mismo modo en que el ser humano inteligente sólo puede empezar a actuar conscientemente como alma y a ponerse en contacto con el reino del alma, también el alma completamente activa y dominante, donde el principio búdico controla potencialmente, puede empezar a hacer contacto con ese estado del Ser puro, en el que la mónada o espíritu, descansa eternamente.
+
+ El desarrollo del intelecto en el hombre marca su aptitud para el trabajo de hollar el sendero, a fin de retornar a la plena conciencia egoica. El desarrollo del aspecto búdico o amor-sabiduría en el ángel solar, demuestra su capacidad para continuar su progreso en el estado de conciencia del Ser puro.
+
+3. La tercera dirección en que mira el alma y ejercita la facultad de visión contemplativa, es hacia su reflejo en los tres mundos. La prolongada lucha entre el hombre superior y el inferior ha tenido por objetivo hacer que lo inferior responda y sea sensiblemente consciente a las fuerzas que emanan del alma a medida que ella "contempla" su triple instrumento.
+
+Existe una interesante relación entre estas tres "direcciones de la contemplación" y el despertar de los tres centros mayores. Como este tema es muy abstracto sólo se puede dar un indicio. Son tantos los factores que rigen este despertar, que cada aspirante debe determinar por sí mismo el orden y método de su despertar.
+
+El centro entre las cejas, comúnmente llamado el tercer ojo, tiene una función poco común y peculiar. Como he señalado en otra parte, los estudiantes no deben confundir la glándula pineal con el tercer ojo, y aunque están relacionados, no son lo mismo. En La Doctrina Secreta aparentemente <pin lang="en">213</pin> se los considera como una y la misma cosa, y el lector casual puede fácilmente confundirlos, pero de ninguna manera son idénticos. H.P.B. sabía esto, pero se permitió la evidente confusión hasta que se conociera algo más sobre la naturaleza etérica de las formas. El tercer ojo se manifiesta como resultado de la interacción vibratoria entre las fuerzas del alma que trabajan por medio de la glándula pineal, y las fuerzas de la personalidad que actúan por medio del cuerpo pituitario. Estas fuerzas negativas y positivas interaccionan, y cuando son suficientemente potentes producen la luz en la cabeza. Así como el ojo físico vino a la existencia en respuesta a la luz del sol, también el ojo espiritual vino, análogamente, en respuesta a la luz del sol espiritual. A medida que el aspirante se desarrolla se hace consciente de la luz. No sólo me refiero a la luz dentro del aspirante mismo, sino a la luz en todas las formas, velada por todas las envolturas y expresiones de la vida <pin lang="es">161</pin> divina. A medida que se acrecienta su percepción de esta luz, así se desarrolla el mecanismo de la visión y viene a la existencia, en el cuerpo etérico, el mecanismo mediante el cual él ve las cosas a la luz espiritual.
+
+Éste es el ojo de Shiva, porque sólo se utiliza plenamente en el trabajo mágico cuando el aspecto monádico, el de la voluntad, controla.
+
+Por medio del tercer ojo, el alma lleva a cabo tres actividades, y son:
+
+1. **El ojo de la visión**. A través de él el hombre espiritual ve más allá de las formas de todos los aspectos de la expresión divina. Se hace consciente de la luz del mundo y toma contacto con el alma dentro de todas las formas. Así como el ojo físico registra las formas, también el ojo espiritual registra la iluminación dentro de esas formas, "iluminación" que indica un estado específico del ser. Abre el mundo de la radiación.
+2. **El factor controlador en el trabajo mágico**. Todo el trabajo de magia blanca se lleva a cabo con un propósito definidamente constructivo, que se hace posible mediante la voluntad inteligente. En otras palabras, el alma conoce el <pin lang="en">214</pin> plan, y cuando el alineamiento y la actitud son correctos, el aspecto voluntad del hombre divino puede actuar y producir resultados en los tres mundos. El órgano empleado es el tercer ojo. Su analogía puede comprobarse en el poder observado frecuentemente en el ojo humano, cuando domina a otros seres humanos y animales con una mirada, y con la mirada fija puede actuar magnéticamente. La fuerza fluye a través del enfocado ojo humano y también a través del tercer ojo enfocado.
+3. **Su aspecto destructor** y la energía que fluye a través del tercer ojo puede tener un efecto desintegrador y destructivo. Mediante su enfocada atención, dirigida por la voluntad inteligente, puede expulsar la materia física. Es el agente del alma en el trabajo purificador.
+
+ Debería observarse aquí que cada uno de los cuerpos sutiles de los tres mundos, posee un punto correspondiente de enfoque, y el centro entre las cejas es sólo la contraparte física (puesto que la materia etérica es física) de las correspondencias internas. A través de este punto de enfoque el alma mira o contempla el plano mental, incluso el mecanismo mental. En el plano emocional, el alma es similarmente llevada a un estado de percepción o visión, de su envoltura emocional y del mundo de los fenómenos astrales, y tenemos aquí el paralelo físico para el cuerpo etérico.
+
+ <p><pin lang="es">162</pin> Esto se refiere al tercer trabajo del alma, el destructivo, a fin de eliminar las antiguas formas, expeler los cuerpos de materia de naturaleza indeseable y destruir las barreras y limitaciones para la verdadera actividad del alma.</p>
+
+Estas tres actividades del alma, mediante el tercer ojo, son analogías de los tres aspectos, siendo de interés para los estudiantes investigarlas.
+
+Ver la luz dentro de todas las formas, mediante el tercer ojo (traído a la existencia por la adquisición de la luz en la cabeza, la luz espiritual), es <pin lang="en">215</pin> sólo la analogía del ojo físico, que revela las formas a la luz del sol físico. Esto corresponde a la personalidad.
+
+El aspecto controlador, mediante la energía magnética y la fuerza atractiva del ojo espiritual, constituye el factor dominante en el trabajo de magia, analogía del alma. En forma misteriosa, el alma es el ojo de la mónada, que le permite a la mónada, el Ser puro, actuar, hacer contacto, conocer y ver.
+
+El aspecto destructivo es la analogía de la mónada o aspecto voluntad; en último análisis, la mónada provoca la abstracción final, destruye todas las formas, se retira de la manifestación y termina el ciclo de trabajo creador.
+
+Llevando estos conceptos a una expresión práctica respecto a esta regla, se observará que en ella se tratan estas tres actividades. El tercer ojo se abre como resultado del desarrollo consciente, del debido alineamiento y de la afluencia de vida del alma. Entonces se hace sentir su fuerza magnética controladora, dominando las vidas de los cuerpos inferiores, expulsando los cuatro elementales inferiores (tierra, agua, fuego, aire), obligando a los señores lunares a abdicar. La personalidad, que hasta ahora ha sido el amo, ya no puede ejercer control, y el alma domina plenamente en los tres mundos.
+
+El elemental tierra, la suma total de las numerosas vidas que forman el cuerpo físico, está bajo control y siente sobre él el ojo del Maestro - el Maestro en la cabeza. Los elementos groseros que constituyen ese cuerpo, son "expulsados" y reemplazados por átomos o vidas mejores y más adecuadas.
+
+El elemental astral o cuerpo de agua, pasa por una actividad similar, más un efecto estabilizador que pone término a la inquietud y tempestuosa fluidez que hasta entonces lo había caracterizado. Por el poder controlador magnético del ojo espiritual, el alma <pin lang="en">216</pin> reconstruye el cuerpo astral y lo mantiene firme y coherente mediante su enfocada atención.
+
+Por otra parte, un proceso similar se produce en el cuerpo mental. Las antiguas formas desaparecen ante la clara luz con <pin lang="es">163</pin> que trabaja el hombre espiritual, como lo expresa El Antiguo Comentario:
+
+> El alma dirige una mirada sobre las formas de la mente. Un rayo de luz surge y la oscuridad desaparece; las deformaciones y las formas malignas se disipan y los pequeños fuegos se apagan; las luces menores ya no se ven.
+>
+> El ojo, a través de la luz, despierta a la vida los necesarios estados del Ser. Esto proporcionará conocimiento al discípulo. Para el ignorante no tiene sentido, porque carece de un sentido.
+
+El elemental aire, simbólicamente comprendido, es ese sustrato de energía que actúa a través de las formas del cuerpo etérico; éste es manejado por el aliento y por la ciencia de pranayama. Esta forma elemental está constituida por la intrincada estructura etérica, los nadis y los centros, y todos los estudiantes avanzados saben bien cómo se controlan mediante la enfocada atención del alma en contemplación, actuando a través del centro coronario, enfocado en la región del tercer ojo e impulsado a una actividad correcta y específica por un acto de la voluntad. En la frase anterior he concentrado la fórmula para todo el trabajo mágico que debe realizarse en el plano físico. Mediante el cuerpo etérico y la fuerza dirigida, a través de uno de los centros, el alma desempeña el trabajo mágico.
+
+Mediante el intenso enfoque del propósito en la cabeza y la atención dirigida a través del tercer ojo hacia el centro a utilizarse, la fuerza encuentra su correcta salida. Esa fuerza se hace potente por la inteligente y energetizadora voluntad dirigida. Estudien estos puntos porque hallarán la clave del trabajo mágico en la reconstrucción de sus propias vidas, del trabajo mágico de la reconstrucción humana, que ciertos adeptos están llevando a cabo, y para el trabajo mágico de la evolución del plan divino, que es el poder motivador de la Jerarquía oculta.
