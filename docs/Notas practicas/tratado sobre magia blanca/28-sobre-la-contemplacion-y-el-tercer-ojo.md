@@ -4,7 +4,7 @@ title: Sobre la contemplación y el tercer ojo
 
 # Sobre la contemplación y el tercer ojo
 
-> [Tratado sobre magia blanca](/tratado-sobre-magia-blanca/regla-6)
+> [Tratado sobre magia blanca](/tratado-sobre-magia-blanca/regla-6#es157)
 
 La contemplación implica visión constante, dirigida concentradamente hacia un objetivo específico. Puede decirse que el alma o ángel solar, mira en tres direcciones:
 
