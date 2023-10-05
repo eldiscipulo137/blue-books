@@ -123,3 +123,80 @@ El octavo punto corresponde a la vida vital, que actúa a través de los siete c
 Debería observarse que la clasificación anterior representa un desenvolvimiento de segundo rayo, y que al referirse a la autorrealización corresponde al yo del hombre espiritual. El aspecto inferior de la vida vital de Dios es la perpetuación de la especie, resultado de la vivencia de la Vida encarnada. El siguiente aspecto expresa simplemente la etapa en que domina la conciencia del "yo" y ha alcanzado su consumación al integrarse la personalidad. Entonces sobreviene la expresión del yo interno, oculto por la personalidad mediante una actividad creadora de carácter intangible. Tenemos, finalmente, la afirmación o plena manifestación, de la naturaleza divina. Esto sólo puede ocurrir cuando se ha despertado el centro inferior de la columna vertebral, cuando la energía de la naturaleza material es elevada al cielo por un acto de voluntad, y cuando la naturaleza material, sensible o psíquica, y el aspecto existencia, se han unificado y comprendido. Reflexionen sobre estas palabras porque significan la consumación en lo que a la humanidad concierne.
 
 <p><pin lang="es">209</pin><pin lang="en">287</pin> El aforismo oculto: querer, saber, osar y callar, tiene un significado especial aún no revelado y sólo me es posible dar una simple indicación. Las personas que poseen conocimiento interno lo comprenderán de inmediato.</p>
+
+1. **Querer**. Esta palabra se relaciona con la última realización, cuando por un acto de la voluntad del alma, combinada con la del hombre inferior, se produce la unificación y la comprensión. Implica el centro en la base de la columna vertebral.
+2. **Saber**. Esta palabra concierne al centro ajna, el centro entre las cejas. Hay una insinuación en la frase "Que la Madre conozca al Padre". Se relaciona con la boda en los Cielos.
+3. **Osar**. Esta palabra da la clave de la subordinación de la personalidad, y tiene una íntima relación con el plexo solar, el gran centro de distribución del deseo y de las fuerzas astrales y el principal centro del trabajo de transmutación.
+4. **Callar**. Esta palabra concierne a la transmutación de la energía inferior creadora, en la vida superior creadora. El centro sacro debe permanecer en silencio.
+
+Se podrá observar que para el discípulo son de suma importancia los centros siguientes:
+
+1. El centro ajna, a través del cual se expresa la personalidad purificada.
+2. El centro en la base de la columna vertebral, mediante el cual se obtiene completo y absoluto control y coordinación, a través del despertar del fuego purificador.
+3. El centro sacro, donde la fuerza fundamental de nuestro sistema solar específico, la fuerza de atracción de una forma a otra, es trasmutada, y la fuerza atractiva del alma ocupa el lugar de la actividad material, creadora y reproductora. <pin lang="en">288</pin>
+4. El centro plexo solar, situado en el medio del cuerpo, por ser el órgano del cuerpo astral y del psiquismo inferior, reúne todas las fuerzas inferiores y - impulsado por el alma- las dirige nuevamente hacia sus custodios superiores.
+
+Comprendo que esta enseñanza es tan profunda como abstracta, pero necesaria para algunos, y ellos aumentarán a medida que pasa el tiempo.
+
+La complejidad del tema se acrecienta también por el hecho de que la enseñanza de cada rayo contiene un acercamiento y método diferentes para cada una de esas almas que responden a su impulso característico.
+
+<p><pin lang="es">210</pin> Aquí doy las siete claves para cada método de rayo. Se pueden estudiar en relación con las anteriores clasificaciones y en conexión con las cuatro palabras consideradas. Debe recordarse que "querer" es prerrogativa del espíritu, "saber" es función del alma, "osar" es el deber de la personalidad y "callar" es el dharma final o destino del aspecto materia, la naturaleza animal en su interacción con el alma.</p>
+
+1. Primer Rayo: "Que se reúnan las Fuerzas. Que asciendan al Lugar Elevado, y desde esa cima, que el alma contemple un mundo destruido. Entonces que surjan las palabras: ¡«Yo persisto»!".
+2. Segundo Rayo: "Que sea atraída toda la vida al Centro, y penetre así en el Corazón del Amor divino. Entonces, desde ese punto de Vida sensible, que el alma reconozca la conciencia de Dios. Que surjan las palabras, resonando a través del silencio: ¡«Nada existe sino Yo»!".
+3. Tercer Rayo: "Que las Huestes del Señor, sensibles a la palabra, cesen sus actividades. Que el conocimiento termine en sabiduría. Que el punto vibrante llegue a ser el punto pasivo y que todas las líneas se conviertan en Una. Que el alma reconozca el Uno en los Muchos, y que surjan las palabras con <pin lang="en">289</pin> perfecta comprensión: «Yo soy el Trabajador y el Trabajo, el Uno que Es»".
+4. Cuarto Rayo: "Que la gloria externa desaparezca y la belleza de la Luz interna revele al Uno. Que la disonancia se convierta en armonía, y desde el centro de la Luz oculta, que hable el alma: Que resuene la palabra: «La Belleza y la gloria no Me velan. Permanezco revelado. Yo soy»".
+5. Quinto Rayo: "Que las tres formas de energía eléctrica asciendan al Lugar de Poder. Que se mezclen las fuerzas de la cabeza, del corazón y de todos los aspectos inferiores. Que entonces el alma contemple un mundo interno de divina luz. Que surja la palabra triunfante: «Yo dominé la energía porque Soy la Energía Misma. El que domina y el dominado son Uno»".
+6. Sexto Rayo: "Que cese todo deseo. Que la aspiración termine. La búsqueda ha terminado. Que el alma comprenda que ha alcanzado su objetivo, y desde ese portal que da a la Vida eterna y a la Paz cósmica, que resuene la Palabra: «¡Yo soy el buscador y el buscado. Yo descanso!»".
+7. Séptimo Rayo: "Que los constructores cesen su trabajo. El Templo está terminado. Que el alma tome posesión de su herencia y desde el Santo Lugar ordene cesar todo trabajo. Que <pin lang="es">211</pin> entonces en el silencio, entone la Palabra: «El trabajo creador ha finalizado. Yo Soy el Creador. Nada queda sino Yo»".
+
+Las fuerzas vitales que atraviesan simplemente la envoltura externa del éter del espacio, en constante movimiento, son de muchos tipos. Uno de los conceptos, detrás de las teorías astrológicas, es que el cuerpo etérico de determinada forma constituye parte del cuerpo etérico del sistema solar y, por consiguiente, es el medio para la transmisión de las energías solares, las fuerzas planetarias y los impulsos extrasolares o cósmicos, llamados esotéricamente "alientos". Estas fuerzas y energías de los rayos cósmicos circulan constantemente, siguen senderos definidos, que a través del éter <pin lang="en">290</pin> del espacio existen en todas partes, y atraviesan por lo tanto constantemente los cuerpos etéricos de toda forma exotérica. Ésta es una verdad fundamental y debe tenerse muy presente, porque son muchas y variadas sus implicaciones, pero todas conducen nuevamente a la idea de unidad, y a la unicidad de toda la manifestación, que se conocerá y comprenderá únicamente en el aspecto subjetivo.
+
+La segunda idea fundamental es que la respuesta del vehículo etérico de todas las formas y su capacidad de apropiación, utilización y transmisión, depende de la condición de los centros, los chacras, según se los denomina en Oriente. Éstos incluyen no sólo los muy conocidos siete centros mayores, sino numerosos vórtices menores de fuerza, aún innominados y desconocidos en Occidente. Dependen además de la cualidad del vehículo etérico, de su vitalidad y también de la red entrelazada donde los centros tienen su lugar, llamada "red" o "cuenco dorado". Cuando está libre de impedimentos y sedimentos y sus canales no están obstruidos, entonces los rayos, las energías y las fuerzas, pueden fácilmente circular libremente por todo el cuerpo. Entonces les es posible utilizar esos centros que responden a sus vibraciones y transferirlos a otras formas, a otros reinos o al mismo reino de la naturaleza. Aquí reside el secreto de toda curación científica y esotérica. Los sanadores experimentan con el cuerpo etérico, pero han adquirido escasos conocimientos. Poco o nada saben de los centros de su propio cuerpo, por donde las corrientes magnéticas o de otro tipo, deben fluir; ignoran la condición de los centros etéricos de las personas a quienes tratan de curar y la naturaleza de las fuerzas que desean emplear. Todo lo que pueden hacer es disciplinar sus vidas y controlar sus apetitos, para construir un cuerpo purificado y proveer canales libres para dar paso a las fuerzas a través de ellos y de allí a otros.
+
+El tercer concepto a observarse es que, hasta ahora, las formas <pin lang="en">291</pin> responden principalmente a las fuerzas que les llegan desde otras formas del planeta y también a las de los siete tipos <pin lang="es">212</pin> básicos de energía que emana de los siete planetas, y además desde el rayo solar dador de vida. Las formas de los cuatro reinos responden a estas numerosas fuerzas, a estas siete energías y al rayo mencionado. También la familia humana responde a otras energías y rayos solares - sin embargo todos están matizados por la fuerza generada dentro del "círculo infranqueable" solar.
+
+El trabajo del esoterista y del aspirante, es llegar a comprender estas fuerzas y aprender así su naturaleza y empleo, potencia y grado de vibración. Además debe aprender a reconocer su origen y a distinguir entre fuerzas, energías y rayos. El principiante puede hacer una clara diferenciación entre fuerzas y energías, reconociendo el hecho de que las personalidades nos afectan por medio de la fuerza que emana de su aspecto forma, pero estas mismas personalidades purificadas y alineadas, pueden ser transmisoras de las energías del alma.
+
+Hablando en forma general, el trabajo del reino humano consiste en trasmitir energía a los reinos inferiores de la naturaleza, mientras que el de la Jerarquía, en su relación con el reino humano, es trasmitir energía desde el reino espiritual, otros centros planetarios y el sistema solar. Cuando se amortiguan estas energías para ser trasmitidas se diferencian en fuerzas.
+
+Los estudiantes no deben confundirse con la complejidad del tema, sino aprender ciertas amplias generalizaciones y recordar que, a medida que extraen de la omniciencia del alma, ocupará paulatinamente su lugar el conocimiento más detallado
+
+Los otros tipos de energía que conciernen a los dos primeros grupos principales, con los cuales tiene que ver el aspirante, se relacionan totalmente con el aspecto forma. El tercer grupo y los siguientes, son: <pin lang="en">292</pin>
+
+3. Energía astral
+4. Energía de la mente concreta inferior, materia mental o "chitta".
+5. Energía de la personalidad.
+6. Energía planetaria.
+7. Energía solar o Aliento de Vida.
+
+Estos se pueden subdividir de la manera siguiente:
+
+3. Energía astral. Que emana de:
+   1. El cuerpo astral o sensible, del hombre mismo.
+   2. La familia humana como un todo.
+   3. El plano astral, en amplio sentido.
+   4. El "corazón del Sol". <pin lang="es">213</pin>
+4. Energía mental. Que emana de:
+   1. La materia mental individual o "chitta".
+   2. La mentalidad de:
+      1. Toda la familia humana.
+      2. La raza particular a la que pertenece el hombre.
+   3. El entero plano mental.
+   4. La mente universal.
+5. Energía de la personalidad. Que emana de:
+   1. La forma coordinada del hombre.
+   2. Los seres humanos avanzados, los personajes que se destacan.
+   3. Los grupos, a saber:
+      1. La Jerarquía del planeta. Subjetivo.
+      2. El grupo integrante de Místicos. Objetivo.
+6. Energía planetaria. Que emana de:
+   1. Los siete planetas. Esta es la base de la práctica astrológica.
+   2. La Tierra.
+   3. La Luna.
+7. Energía solar. Que emana de:
+   1. El Sol físico.
+   2. El Sol, actuando como transmisor de los rayos cósmicos.
+
+## La Energía Astral y el Temor
+
