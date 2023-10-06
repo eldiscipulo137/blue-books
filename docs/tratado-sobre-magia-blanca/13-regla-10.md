@@ -200,3 +200,46 @@ Estos se pueden subdividir de la manera siguiente:
 
 ## La Energía Astral y el Temor
 
+<p><pin lang="en">293</pin> El tema a considerarse es de aplicación sumamente práctica, por tratarse del cuerpo astral - cuerpo en que el hombre está más polarizado y del que es más potentemente consciente. En realidad el cuerpo etérico está bajo el umbral de la conciencia. Los seres humanos son inconscientes del paso de las fuerzas a través de este vehículo, pero se acercan más a su reconocimiento cuando hablan en términos de vitalidad o carencia de ella. El cuerpo físico hace sentir su presencia cuando algo anda mal o desea satisfacer uno de sus apetitos. Sin embargo, la situación cambia respecto al cuerpo astral, porque es el vehículo de experiencia para la mayoría, y la mayoría pasa gran parte de su vida consciente, registrando las reacciones de dicho cuerpo y vibrando entre dos polos, la felicidad y el sufrimiento, la satisfacción y el descontento, la seguridad y la duda, el valor y el temor. En verdad esto significa que la fuerza inherente y la vida del vehículo emocional sensorio rigen la expresión de la <pin lang="es">214</pin> vida y moldean la experiencia del alma encarnada. Por lo tanto, es de valor comprender algo respecto a estas fuerzas, de dónde proceden y cómo actúan y reaccionan en el hombre. Allí está su campo de batalla y también su campo de victoria.</p>
+
+Para comenzar conviene tener presente que toda energía astral es parte de la energía astral del sistema solar y que, por consiguiente:
+
+1. El cuerpo sensorio de un ser humano es un átomo de sustancia en el cuerpo sensorio del Logos planetario.
+2. El cuerpo sensorio (término que prefiero al de astral, y que continuaré empleando) del Logos <pin lang="en">294</pin> planetario, es un aspecto - no un átomo - del cuerpo sensorio del Logos solar,
+3. Éste a su vez es un canal para las fuerzas sensorias que emanan de grandes centros de energía totalmente fuera de nuestro sistema solar y bajo su influencia.
+
+Si se tiene presente lo anterior, se evidenciará que el hombre, por ser sólo un diminuto fragmento de una totalidad mayor, que a su vez está incorporada a un vehículo aún más vasto, es el campo donde se encuentran fuerzas mayores y más diversificadas de lo que su cerebro puede reconocer. De allí la complejidad de su problema y todas las posibilidades que surgen de esas expansiones de conciencia que llamamos iniciación. Toda corriente de energía que pasa por su cuerpo de deseos y reacción sensoria, es sólo un sendero que lo conduce a contactos y conocimientos cada vez más amplios. Ello constituye también una protección para la mayoría de los seres humanos, debido a que poseen aún un mecanismo inadecuado para el registro y la impresión de ese sinnúmero de posibilidades que ofrecen los canales de la comprensión. Hasta no estar el mecanismo mental suficientemente despierto y controlado, no le será posible al hombre interpretar y utilizar correctamente la información que su cuerpo sensible de respuesta podría trasmitirle, y afortunadamente aún no lo hace.
+
+Aparte de la constante circulación, a través de su cuerpo astral, de energías planetarias, solares y cósmicas, todo ser humano ha extraído del gran Todo mayor la energía astral necesaria para construir su cuerpo astral individual separado, que responde a su nota específica, matizado por su cualidad particular y, limitado o no, de acuerdo al punto alcanzado en la etapa de evolución.
+
+Esto constituye su "círculo infranqueable" astral, que define los límites de su respuesta emotiva a la experiencia de la vida, e <pin lang="en">295</pin><pin lang="es">215</pin> incorpora a su cualidad la amplitud de su vida de deseo, pero al mismo tiempo es capaz de una enorme expansión, desarrollo, ajuste y control, por el impulso del cuerpo mental y del alma. También está sujeto a la actividad vibratoria, como resultado de la interacción entre el "círculo" y la experiencia de la vida en el plano físico; así se pone en movimiento la gran rueda de la experiencia que persistirá hasta ser conocidas y comprendidas las cuatro Nobles Verdades del Buda.
+
+Este cuerpo astral contiene en sí la contraparte de los centros etéricos, o laya, y a través de ellos las fuerzas y energías tratadas anteriormente pasan al cuerpo etérico. Estos centros llevan, a cada parte del organismo astral, energías de los siete planetas y del sol, poniendo así al hombre en relación con todas las partes del sistema solar, y dando por resultado la determinación del destino del hombre, hasta el momento en que se da cuenta de su herencia inmortal y llega a ser sensible a las fuerzas que hasta ahora la mayoría no conoce. Dichas fuerzas emanan de la forma. Ésta es la razón por la cual un horóscopo frecuentemente es exacto en su pronóstico para quienes no han evolucionado ni están aún despiertos, siendo completamente erróneo y falso respecto al hombre altamente evolucionado. El hombre, en su conjunto, es producto de su cuerpo de deseos. Después, "como el hombre piensa, así es él". El cuerpo astral con sus anhelos, apetitos, modalidades, sentimientos y vehementes deseos, moldea el cuerpo físico mediante las fuerzas atractivas que fluyen a través de él, y lo llevan infaliblemente a satisfacer sus deseos. Si los apetitos de la naturaleza sensoria son predominantemente animales en su objetivo, tenemos al hombre de fuertes apetitos, dedicando su vida a satisfacerlos. Si sus deseos son de bienestar y felicidad, tenemos a un hombre sensual, amante de la belleza y las diversiones, regido casi completamente por el egoísmo. Lo mismo sucede con los innumerables tipos de deseo, buenos, malos <pin lang="en">296</pin> y comunes, hasta tener lugar esa reorientación que reenfoca en tal forma las energías astrales, que las encamina hacia otra dirección. Así el deseo se convierte en aspiración y el hombre se libera de la rueda de nacimientos y de la necesidad de reencarnar. Entonces, el horóscopo, tal como se lo conoce, resultará fútil, falso e inútil, y la frase empleada comúnmente, aunque errónea, "el horóscopo del ego o alma" carece de sentido. El alma no tiene un destino individual, sino que está sumergida en el Uno. Su destino es el del grupo y el del Todo, su deseo es la elaboración del gran Plan, y su voluntad, la glorificación del Logos encarnado.
+
+Quisiera sugerir a los estudiantes que procuren leer, si es posible, La Ciencia de las Emociones, de Bhagavan Das. Es un buen <pin lang="es">216</pin> tratado sobre los cuerpos astral y sensorio y trata de los factores que conciernen más de cerca al aspirante, a medida que enfrenta el problema de comprender y controlar su naturaleza emocional, dominar la técnica del desarrollo, reorientarse hacia una experiencia más amplia y prepararse para las pruebas y expansiones de la segunda iniciación mayor - la del bautismo, hasta entrar finalmente en la corriente. Metafóricamente hablando, la experiencia que tiene por delante en el sendero, está descripta en las siguientes frases esotéricas:
+
+> Cuando la corriente entra en el Río de la Vida, su paso puede ser visto durante un breve instante, luego se pierde. Cuando las corrientes de la vida sensoria se encuentran donde el río circunda la base maciza de la montaña, entonces es vista una sola y vasta corriente que fluye hacia el norte
+
+Es evidente esta simbología, y también se la puede aplicar para representar la afluencia de las dos corrientes - Ida y Pingala - y su fusión en el río de la energía que asciende hacia la cabeza. Allí está el lugar de encuentro, y también el sacrificio consumado en el Monte del Gólgota (el lugar de la calavera).
+
+<p><pin lang="en">297</pin> Al considerar el cuerpo sensorio de un ser humano, probablemente será de mayor utilidad si lo hago en términos de temperamento y expresiones comunes, porque sólo al tratar sus efectos y procurar dominarlos, el hombre llega al conocimiento de sí mismo y se convierte en Maestro. Las manifestaciones más comunes de la actividad astral son:</p>
+
+1. Temor.
+2. Depresión o su polo opuesto, regocijo.
+3. Deseo de satisfacer los apetitos animales.
+4. Deseo de felicidad.
+5. Deseo de liberación. Aspiración.
+
+Éstas resumen prácticamente la mayoría de las experiencias sensorias del hombre, y las consideraremos cada una desde los siguientes ángulos:
+
+1. La causa.
+2. El efecto.
+3. El método de dirección.
+
+Observarán que digo "método de dirección", no método de control. Los aspirantes deben comprender que trabajan con las fuerzas y dentro de ellas, y que la actividad correcta o errónea del plano físico se debe simplemente a una buena o mala dirección de las corrientes de fuerza, y no a algo bueno o malo de las energías mismas.
+
+:::note Recuerda
+
+La actividad correcta o errónea del plano físico se debe simplemente a una buena o mala dirección de las corrientes de fuerza, y no a algo bueno o malo de las energías mismas
+
+::::
