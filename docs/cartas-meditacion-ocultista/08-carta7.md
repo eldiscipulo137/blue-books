@@ -397,13 +397,13 @@ Del estudio de estas correspondencias en los diferentes sectores del universo ma
 
 2. <div><pin lang="en">229</pin> Los cuatro Señores Lipikas.<br/>
  Los cuatro Maharajaes.
- El cuádruple hombre inferior, el cuaternario.
-</div>
+ El cuádruple hombre inferior, el cuaternario.</div>
 
 3. <div> Los cinco planos de la evolución humana. <br/>
  Los cinco sentidos. <br/>
  <pin lang="es">171</pin> El quíntuple sector del Mahachohan.<br/>
- Los cinco reinos de la naturaleza: <br/>
+ Los cinco reinos de la naturaleza: <br/> </div>
+ <div>
  <ol>
  <li>El reino mineral.</li>
  <li>El reino vegetal.</li>
@@ -425,8 +425,7 @@ Las siete cadenas.<br/>
 Los siete globos.<br/>
 Las siete rondas.<br/>
 Las siete razas raíces y subrazas.<br/>
-Las siete iniciaciones.<br/>
-</div>
+Las siete iniciaciones.<br/></div>
 
 Lo que trato de hacer resaltar, en la clasificación que antecede, es que para el adepto, la correspondencia de todos ellos es perfectamente conocida y existe en términos de conciencia, de forma y de inteligencia. **Las conoce (si lo puedo expresar así) en términos de color, cuando trata con la forma; en términos de sonido, cuando trata con el aspecto vida; en términos de vitalidad, cuando trata con la inteligencia o aspecto actividad.** La declaración que <pin lang="en">230</pin> antecede compensará mucho a quienes reflexionen sobre ello con empeño, pues contiene la afirmación de un hecho oculto. De acuerdo a las tres líneas de acercamiento, tratadas en nuestra carta anterior, así será el empleo de los términos, según fueron descritos anteriormente.
 

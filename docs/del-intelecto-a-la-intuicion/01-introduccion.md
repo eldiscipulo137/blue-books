@@ -40,8 +40,7 @@ Como veremos más adelante, el mecanismo pensante involucra la meditación y deb
 
 El problema que hoy enfrenta la familia humana, en el campo de la ciencia y de la religión, se debe a que quien sigue a ambas, descubre que se halla en el portal de un mundo metafísico. Ha llegado a su fin un ciclo de desenvolvimiento. El hombre como entidad pensante y sensoria parece haber llegado a una comprensión, bastante completa, del instrumento con el cual debe trabajar.
 
-<p><pin lang="es">11</pin> Y se pregunta: ¿En qué podrá emplearlo? ¿Adónde lo conducirá esa mente <pin lang="en">9</pin> que poco a poco está aprendiendo a dominar?
-</p>
+<p><pin lang="es">11</pin> Y se pregunta: ¿En qué podrá emplearlo? ¿Adónde lo conducirá esa mente <pin lang="en">9</pin> que poco a poco está aprendiendo a dominar?</p>
 
 ¿Qué le tiene reservado el futuro al hombre? Algo que sentimos de mayor belleza y certidumbre que lo conocido hasta ahora. Quizá llegaremos universalmente a ese conocimiento que el místico individual ha obtenido. Nuestros oídos se ensordecen por el ruido de nuestra civilización moderna y, no obstante, captamos a veces sobre tonos que testimonian la existencia de un mundo inmaterial. Nuestros ojos están cegados por la niebla y el humo de nuestro primer plano inmediato, no obstante llegan destellos de clara visión, que revelan un estado del ser más sutil y disipan la niebla, permitiendo ver "la gloria que jamás existió en mar o tierra". El Dr. Charles Bennet [^7] de Yale, expresa estas ideas en términos muy hermosos:
 

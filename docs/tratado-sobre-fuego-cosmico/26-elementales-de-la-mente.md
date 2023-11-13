@@ -990,8 +990,7 @@ Por lo tanto, a los que percibimos algo del Plan se nos insta a difundir el cono
 
 #### Grupo A. Agníchaittas
 
-<p><pin lang="en">653</pin> Grupo A. Agníchaittas, Hemos visto que, en todos los planos, los grupos de devas pueden dividirse en tres <pin lang="en">654</pin> grupos principales, aunque usualmente se estudia la capacidad dual de unidades de <pin lang="es">530</pin> fuerzas involutiva y evolutiva. Hablando en general, estos grupos pueden ser considerados como:
-</p>
+<p><pin lang="en">653</pin> Grupo A. Agníchaittas, Hemos visto que, en todos los planos, los grupos de devas pueden dividirse en tres <pin lang="en">654</pin> grupos principales, aunque usualmente se estudia la capacidad dual de unidades de <pin lang="es">530</pin> fuerzas involutiva y evolutiva. Hablando en general, estos grupos pueden ser considerados como:</p>
 
 1. Representando al aspecto positivo o fenómenos eléctricos positivos.
 2. Representando al aspecto negativo.

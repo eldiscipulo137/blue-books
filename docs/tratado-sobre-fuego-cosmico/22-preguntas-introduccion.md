@@ -464,8 +464,7 @@ Cuando la mente obtiene un desarrollo indebido, cesa de unir lo superior y lo in
 
 <table>
 <tr>
-<td colspan="2" align="center">La Mónada, el Absoluto microcósmico.<br/>Espíritu Puro<br/>El uno y único
-</td>
+<td colspan="2" align="center">La Mónada, el Absoluto microcósmico.<br/>Espíritu Puro<br/>El uno y único</td>
 </tr>
 <tr>
 <td colspan="2" align="center">|</td>
@@ -489,12 +488,10 @@ Cuando la mente obtiene un desarrollo indebido, cesa de unir lo superior y lo in
 <td colspan="2" align="center">|</td>
 </tr>
 <tr>
-<td colspan="2" align="center">El aspecto Hijo en la objetividad.<br/>El cuerpo egoico o causal.<br/>
-</td>
+<td colspan="2" align="center">El aspecto Hijo en la objetividad.<br/>El cuerpo egoico o causal.<br/></td>
 </tr>
 <tr>
-<td colspan="2" align="center">|
-</td>
+<td colspan="2" align="center">|</td>
 </tr>
 <tr>
 <th colspan="2" align="center">El cuaternario inferior</th>
@@ -829,8 +826,7 @@ El primer tipo de ciclo, o el período transcurrido durante la revolución compl
 
 <p><pin lang="en">285</pin> Ahora dilucidaremos la pregunta que sigue: ¿Por qué consideramos que algunos aspectos del conocimiento son esotéricos y otros exotéricos?</p>
 
-<p><pin lang="es">252</pin> Prácticamente la respuesta significa que ya se tiene cierta noción de que el conocimiento esotérico se ocupa del aspecto subjetivo de la vida y el exotérico del aspecto objetivo; que un tipo de conocimiento concierne a la energía y a la fuerza (de allí el peligro de la prematura revelación) y el otro a aquello que está siendo energetizado. Se evidenciará que hasta tanto no se haya logrado la facultad de comprobar la información subjetiva, una larga serie de hechos quedarán fuera del campo de la conciencia de la mayoría.
-</p>
+<p><pin lang="es">252</pin> Prácticamente la respuesta significa que ya se tiene cierta noción de que el conocimiento esotérico se ocupa del aspecto subjetivo de la vida y el exotérico del aspecto objetivo; que un tipo de conocimiento concierne a la energía y a la fuerza (de allí el peligro de la prematura revelación) y el otro a aquello que está siendo energetizado. Se evidenciará que hasta tanto no se haya logrado la facultad de comprobar la información subjetiva, una larga serie de hechos quedarán fuera del campo de la conciencia de la mayoría.</p>
 
 Como ya se ha dicho, la meta de la evolución consiste en ser consciente en todos los planos; debido al poco desarrollo evolutivo de la raza, todavía el plano físico está siendo sometido al control consciente. El conocimiento adquirido sobre dicho plano, <pin lang="en">286</pin> la información concerniente a la objetividad más densa, el conjunto de hechos relacionados con los cinco subplanos inferiores del plano físico (desde el punto de vista ocultista), son considerados exotéricos. En el transcurso de las dos próximas razas, dominaremos los otros dos subplanos; entonces, todo el conocimiento concerniente a la materia física y etérica, a la energía y a la forma, más la experiencia en el plano físico, estarán fácilmente a disposición del hombre, y concernirán únicamente a sus cinco sentido físicos.
 
