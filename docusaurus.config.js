@@ -28,6 +28,14 @@ const config = {
     locales: ["es"],
   },
 
+  markdown: {
+    mdx1Compat: {
+      comments: false,
+      admonitions: false,
+      headingIds: true,
+    },
+  },
+
   presets: [
     [
       "classic",

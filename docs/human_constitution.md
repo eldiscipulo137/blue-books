@@ -43,7 +43,7 @@ Este aspecto también es triple:
 | Cuerpo Emocional | Cuerpo astral                       |
 | Cuerpo Físico    | los cuerpos Físico Denso y Etérico. |
 
-:::tip Nota
+:::tip[Nota]
 
 La finalidad de la evolución es, por lo tanto, llevar al hombre a la compresión del Aspecto Egoico y poner la naturaleza inferior bajo Su control.
 
