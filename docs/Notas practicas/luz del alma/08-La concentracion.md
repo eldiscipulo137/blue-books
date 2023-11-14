@@ -9,20 +9,20 @@ title: La concentración
 ### 1. La concentración consiste en fijar la sustancia mental (chitta) en un objeto determinado. Esto es dharana. {#af1}
 
 <p>
-<pin lang="en">243</pin> Hemos llegado a los Aforismos de la Yoga que tratan específicamente del control de la mente y del efecto de ese control. Los quince primeros aforismos están dedicados al control de la mente y cómo lograrlo, y los cuarenta restantes conciernen a los resultados producidos cuando se ha obtenido este control. Se enumeran veintitrés resultados, todos en la línea de expansiones de conciencia y manifestación de facultades síquicas, inferiores y superiores.
+<Pin lang="en">243</Pin> Hemos llegado a los Aforismos de la Yoga que tratan específicamente del control de la mente y del efecto de ese control. Los quince primeros aforismos están dedicados al control de la mente y cómo lograrlo, y los cuarenta restantes conciernen a los resultados producidos cuando se ha obtenido este control. Se enumeran veintitrés resultados, todos en la línea de expansiones de conciencia y manifestación de facultades síquicas, inferiores y superiores.
 </p>
 
-El primer paso para este desenvolvimiento es la concentración, o la capacidad de mantener la mente firme y sin desviarse sobre aquello que el aspirante ha elegido. Este primer paso es la etapa <pin lang="en">244</pin> más difícil del proceso de la meditación, e implica la capacidad constante e incansable de hacer volver la mente al "objeto" elegido por el aspirante para concentrarse. Las etapas para la concentración están bien definidas y pueden ser enumeradas como sigue:
+El primer paso para este desenvolvimiento es la concentración, o la capacidad de mantener la mente firme y sin desviarse sobre aquello que el aspirante ha elegido. Este primer paso es la etapa <Pin lang="en">244</Pin> más difícil del proceso de la meditación, e implica la capacidad constante e incansable de hacer volver la mente al "objeto" elegido por el aspirante para concentrarse. Las etapas para la concentración están bien definidas y pueden ser enumeradas como sigue:
 
 1. Elección del objeto en el cual se va a concentrar.
 2. Retiro de la conciencia mental de la periferia del cuerpo, a fin de aquietar las avenidas de percepción y contacto externo (los cinco sentidos), entonces la conciencia ya no se exterioriza.
-3. Centralización de la conciencia, fijándola en la cabeza. En el punto medio entre las cejas.<pin lang="es">159</pin>
+3. Centralización de la conciencia, fijándola en la cabeza. En el punto medio entre las cejas.<Pin lang="es">159</Pin>
 4. Aplicación de la mente, o poner la mayor atención posible al objeto elegido para la concentración.
 5. Visualización del objeto, percepción imaginativa y razonamiento lógico del mismo.
 6. Extensión de los conceptos mentales formados, de lo específico y particular a lo general y lo universal o cósmico.
 7. Proponerse alcanzar lo que se halla detrás de la forma considerada, o llegar hasta la idea responsable de la forma.
 
-Este proceso eleva gradualmente la conciencia y permite al aspirante llegar al aspecto vida de la manifestación, en vez del aspecto forma. Sin embargo, se empieza por la forma u "objeto". Los objetos, en los cuales se puede uno concentrar son de cuatro tipos: <pin lang="en">245</pin>
+Este proceso eleva gradualmente la conciencia y permite al aspirante llegar al aspecto vida de la manifestación, en vez del aspecto forma. Sin embargo, se empieza por la forma u "objeto". Los objetos, en los cuales se puede uno concentrar son de cuatro tipos: <Pin lang="en">245</Pin>
 
 1. Objetos externos, como imágenes de la deidad, cuadros o formas de la naturaleza.
 2. Objetos internos, como los centros del cuerpo etérico.
@@ -35,10 +35,10 @@ Uno de los Puranas expresa muy bellamente la idea subyacente en la concentració
 
 Luego sigue la descripción de la forma encarnada del excelso Ser y concluye con estas palabras:
 
-> ... que el yogui reflexione sobre Él; y perdido en Él concentre su propia mente hasta que ¡oh Rey!, la atención se fije sobre Él únicamente. Mientras <pin lang="en">246</pin> realiza esto o alguna otra actividad voluntariamente, donde su mente no se desvía, entonces debe considerar que esta atención fija es perfecta. (Naradiya Purana, LXVII: 54-62).
+> ... que el yogui reflexione sobre Él; y perdido en Él concentre su propia mente hasta que ¡oh Rey!, la atención se fije sobre Él únicamente. Mientras <Pin lang="en">246</Pin> realiza esto o alguna otra actividad voluntariamente, donde su mente no se desvía, entonces debe considerar que esta atención fija es perfecta. (Naradiya Purana, LXVII: 54-62).
 
 <p>
-<pin lang="es">160</pin> La convicción de que son necesarios los "objetos" para concentrarse, originó la demanda de imágenes, esculturas sagradas y cuadros. Todos estos objetos implican el empleo de la mente concreta inferior, etapa preliminar necesaria. El empleo de tales objetos permite el control de la mente, de manera que el aspirante pueda hacer de ella lo que quiera. Los cuatro tipos de objetos ya mencionados llevan gradualmente al aspirante hacia adentro y le permiten transferir su conciencia desde el plano físico al reino etérico, de allí al mundo del deseo o de las emociones, y progresivamente al mundo de las ideas y conceptos mentales. Este proceso se desarrolla en el cerebro, y todo el hombre inferior es llevado a un estado de coherente atención en una sola dirección, donde todos los aspectos de su naturaleza están dirigidos a lograr una atención fija, o una concentración de todas las facultades mentales. Entonces la mente ya no se dispersa ni exterioriza, simplemente se aquieta y "fija plenamente su atención". Vivekananda traduce "dharana" como "mantener la mente fija en un pensamiento durante doce segundos".
+<Pin lang="es">160</Pin> La convicción de que son necesarios los "objetos" para concentrarse, originó la demanda de imágenes, esculturas sagradas y cuadros. Todos estos objetos implican el empleo de la mente concreta inferior, etapa preliminar necesaria. El empleo de tales objetos permite el control de la mente, de manera que el aspirante pueda hacer de ella lo que quiera. Los cuatro tipos de objetos ya mencionados llevan gradualmente al aspirante hacia adentro y le permiten transferir su conciencia desde el plano físico al reino etérico, de allí al mundo del deseo o de las emociones, y progresivamente al mundo de las ideas y conceptos mentales. Este proceso se desarrolla en el cerebro, y todo el hombre inferior es llevado a un estado de coherente atención en una sola dirección, donde todos los aspectos de su naturaleza están dirigidos a lograr una atención fija, o una concentración de todas las facultades mentales. Entonces la mente ya no se dispersa ni exterioriza, simplemente se aquieta y "fija plenamente su atención". Vivekananda traduce "dharana" como "mantener la mente fija en un pensamiento durante doce segundos".
 </p>
 
-Esta percepción clara, unilateral y tranquila de un objeto, sin que otro objeto o pensamiento penetre en la conciencia, es muy difícil de obtener. Cuando puede mantenerse durante doce segundos, entonces se está logrando la verdadera concentración. <pin lang="en">247</pin>
+Esta percepción clara, unilateral y tranquila de un objeto, sin que otro objeto o pensamiento penetre en la conciencia, es muy difícil de obtener. Cuando puede mantenerse durante doce segundos, entonces se está logrando la verdadera concentración. <Pin lang="en">247</Pin>

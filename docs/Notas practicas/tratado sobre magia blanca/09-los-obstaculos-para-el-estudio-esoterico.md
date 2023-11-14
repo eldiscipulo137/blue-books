@@ -20,7 +20,7 @@ title: Los obstáculos para el estudio esotérico
 
 Ciertos conocimientos de primordial importancia deben preceder a esta tarea de eliminación de obstáculos, y son:
 
-1. Que en el cumplimiento del deber inmediato y <pin lang="en">85</pin> en la <pin lang="es">73</pin> adhesión a las formas más puras de la verdad hasta ahora conocida, reside el sendero de una mayor revelación.
+1. Que en el cumplimiento del deber inmediato y <Pin lang="en">85</Pin> en la <Pin lang="es">73</Pin> adhesión a las formas más puras de la verdad hasta ahora conocida, reside el sendero de una mayor revelación.
 2. Que el desapasionamiento es algo que debe ser cultivado, y desarrollada la disposición a soportar gozosamente cualquier inconveniente, dolores o agonías temporarios, teniendo en cuenta la gloria futura que disipará las nubes de lo pasado.
 3. Que en la síntesis está el método para obtener la comprensión, y que en la fusión de los pares de opuestos se alcanza el sendero medio que conduce directamente al corazón de la ciudadela.
 

@@ -5,7 +5,7 @@ title: Libro III. Realización de la unidad y sus resultados
 # Libro III. Realización de la unidad y sus resultados
 
 <p>
-<pin lang="es">155</pin> <pin lang="en">237</pin>
+<Pin lang="es">155</Pin> <Pin lang="en">237</Pin>
 </p>
 
 1. La concentración consiste en fijar la sustancia mental (chitta) en un objeto determinado. Esto es dharana. <af book="3" af="1"/>
@@ -17,19 +17,19 @@ title: Libro III. Realización de la unidad y sus resultados
 7. Estos tres últimos métodos de la yoga tienen un efecto subjetivo más íntimo que los anteriores. <af book="3" af="7"/>
 8. Sin embargo, estos tres aún no corresponden a la verdadera meditación sin simiente (o samadhi), la cual no está basada en un objeto. Está libre de los efectos que produce la naturaleza discriminadora de la sustancia mental o chitta. <af book="3" af="8"/>
 9. La secuencia de los estados mentales es la siguiente: la mente reacciona a lo que ve; luego llega el momento en que la mente es controlada. Sigue otro en que la sustancia mental o chitta responde a ambos factores. Finalmente desaparecen y rige totalmente la conciencia perceptora. <af book="3" af="9"/>
-10. Cultivando este hábito mental se alcanzará la estabilidad de la percepción espiritual. <pin lang="en">238</pin> <af book="3" af="10"/>
+10. Cultivando este hábito mental se alcanzará la estabilidad de la percepción espiritual. <Pin lang="en">238</Pin> <af book="3" af="10"/>
 11. El establecimiento de este hábito y la sujeción de la mente para apartarla de la tendencia a crear formas mentales, traen como resultado, en su oportunidad, el poder de constante contemplación. <af book="3" af="11"/>
 12. Cuando el control ejercido por la mente y el factor controlador están equilibrados, entonces se produce la concentración unilateral. <af book="3" af="12"/>
 13. Mediante este proceso se conocen los aspectos de cada objeto; entonces sus características (o forma), su naturaleza simbólica y su uso específico en la condición de tiempo (etapa de desarrollo) son conocidos y comprendidos. <af book="3" af="13"/>
 14. Las características de cada objeto se adquieren: están en manifestación o latentes. <af book="3" af="14"/>
 15. La etapa de desenvolvimiento es responsable de las variadas modificaciones de la versátil naturaleza psíquica y del principio pensante. <af book="3" af="15"/>
-16. La meditación concentrada en la triple naturaleza de cada forma, otorga la revelación de lo que ha sido y será.<pin lang="es">156</pin> <af book="3" af="16"/>
+16. La meditación concentrada en la triple naturaleza de cada forma, otorga la revelación de lo que ha sido y será.<Pin lang="es">156</Pin> <af book="3" af="16"/>
 17. El sonido (o palabra), lo que éste denota (el objeto) y la esencia espiritual corporificada (la idea), son confundidos generalmente por la mente del perceptor. Por la meditación concentrada en estos tres aspectos, se logra la comprensión (intuitiva) del sonido emitido por todas las formas de vida. <af book="3" af="17"/>
 18. Cuando se adquiere el poder de ver las imágenes mentales se pueden conocer las encarnaciones anteriores. <af book="3" af="18"/>
 19. Por la meditación concentrada se perciben las imágenes mentales en las mentes de otras personas. <af book="3" af="19"/>
 20. Debido a que el objeto de tales pensamientos no se manifiesta al perceptor, éste sólo ve el pensamiento y no el objeto. Su meditación excluye lo tangible. <af book="3" af="20"/>
 21. La meditación concentrada en la diferencia que existe entre la forma y el cuerpo, permite rechazar o retirar las propiedades del cuerpo que lo hacen visible al ojo humano, y el yogui puede hacerse invisible. <af book="3" af="21"/>
-22. Karma o efecto, es de dos tipos: karma inmediato o karma futuro. La <pin lang="en">239</pin> meditación perfectamente concentrada en éstos, permite al yogui conocer la duración de su experiencia en los tres mundos. Este conocimiento también lo adquiere por medio de signos. <af book="3" af="22"/>
+22. Karma o efecto, es de dos tipos: karma inmediato o karma futuro. La <Pin lang="en">239</Pin> meditación perfectamente concentrada en éstos, permite al yogui conocer la duración de su experiencia en los tres mundos. Este conocimiento también lo adquiere por medio de signos. <af book="3" af="22"/>
 23. La unión con los demás se obtiene por la meditación centralizada en tres estados del sentimiento - compasión, ternura y desapasionamiento. <af book="3" af="23"/>
 24. La meditación centralizada en el poder del elefante, despertará esa fuerza o luz. <af book="3" af="24"/>
 25. La meditación perfectamente concentrada en la luz desarrollada, nos hará conscientes de lo sutil, oculto y remoto. <af book="3" af="24"/>
@@ -42,9 +42,9 @@ title: Libro III. Realización de la unidad y sus resultados
 32. Enfocando la luz en la cabeza se puede ver a quienes han alcanzado el dominio de sí mismos y establecer contacto con ellos. Dicho poder se desarrolla por la meditación unilateral. <af book="3" af="32"/>
 33. Todas las cosas pueden ser conocidas a la vívida luz de la intuición. <af book="3" af="33"/>
 34. Por la meditación enfocada en el centro cardíaco, se alcanza la comprensión de la conciencia mental. <af book="3" af="34"/>
-35. La experiencia (de los pares opuestos) se adquiere por la incapacidad del alma para distinguir entre el yo personal y purusha (espíritu). Las formas objetivas existen para uso (y experiencia) del hombre espiritual. Meditando sobre esto, surge la percepción intuitiva de la naturaleza espiritual. <pin lang="en">240</pin> <af book="3" af="35"/>
+35. La experiencia (de los pares opuestos) se adquiere por la incapacidad del alma para distinguir entre el yo personal y purusha (espíritu). Las formas objetivas existen para uso (y experiencia) del hombre espiritual. Meditando sobre esto, surge la percepción intuitiva de la naturaleza espiritual. <Pin lang="en">240</Pin> <af book="3" af="35"/>
 36. Como resultado de esta experiencia y meditación, se desarrollan los sentidos superiores: oído, tacto, vista, gusto y olfato, que otorgan conocimiento intuitivo. <af book="3" af="36"/>
-37. Estos poderes constituyen obstáculos para la comprensión espiritual superior, pero sirven como poderes mágicos en los mundos objetivos.<pin lang="es">157</pin> <af book="3" af="37"/>
+37. Estos poderes constituyen obstáculos para la comprensión espiritual superior, pero sirven como poderes mágicos en los mundos objetivos.<Pin lang="es">157</Pin> <af book="3" af="37"/>
 38. Al liberarnos de las causas de la esclavitud, mediante su debilitamiento y el conocimiento del método para transferirlas (retiro o entrada), la sustancia mental (o chitta) puede introducirse en otro cuerpo. <af book="3" af="38"/>
 39. Subyugando la vida ascendente (udana), nos liberamos del agua, del sendero espinoso y de la ciénaga, y se obtiene el poder de ascensión. <af book="3" af="39"/>
 40. Mediante la subyugación de samana, la chispa se convierte en llama. <af book="3" af="40"/>
@@ -54,7 +54,7 @@ title: Libro III. Realización de la unidad y sus resultados
 44. La meditación concentrada en las cinco formas que adopta cada elemento, otorga el dominio sobre todos los elementos. Estas cinco formas son: la naturaleza grosera, la forma elemental, la cualidad, la penetrabilidad y el propósito básico. <af book="3" af="44"/>
 45. Mediante este dominio se obtiene la máxima pequeñez y los otros siddhis (o poderes), así como la perfección corporal y la liberación de todos los entorpecimientos. <af book="3" af="45"/>
 46. Simetría de forma, belleza de color, dureza y densidad del diamante, constituyen la perfección corporal. <af book="3" af="46"/>
-47. El dominio sobre los sentidos se obtiene por la meditación concentrada en su naturaleza, atributos peculiares, egotismo, penetrabilidad y propósito útil. <pin lang="en">241</pin> <af book="3" af="47"/>
+47. El dominio sobre los sentidos se obtiene por la meditación concentrada en su naturaleza, atributos peculiares, egotismo, penetrabilidad y propósito útil. <Pin lang="en">241</Pin> <af book="3" af="47"/>
 48. Como resultado de esta perfección se obtiene rapidez de acción, como la de la mente, la percepción interdependiente de los órganos y el dominio sobre la sustancia raíz. <af book="3" af="48"/>
 49. El hombre que puede discriminar entre alma y espíritu, alcanza la supremacía sobre todas las condiciones y llega ser omnisciente. <af book="3" af="49"/>
 50. La desapasionada actitud hacia esta realización y todos los poderes del alma, hace que quien está libre de las semillas de la esclavitud, alcance el estado de unidad aislada. <af book="3" af="50"/>

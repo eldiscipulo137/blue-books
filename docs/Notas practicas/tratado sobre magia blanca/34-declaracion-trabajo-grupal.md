@@ -6,10 +6,10 @@ title: Trabajo grupal - 5pm
 
 > [Tratado sobre magia blanca](/tratado-sobre-magia-blanca/regla-9#es191)
 
-Quisiera exhortarlos a todos a comprender esto y trabajar para sustanciar tal integridad grupal, desarrollando el poder de reconocer a dichos trabajadores en cualquier parte, bajo cualquier <pin lang="es">191</pin> nombre u organización, y cooperar con ellos cuando sean reconocidos. No resulta fácil hacerlo y presupone lo siguiente:
+Quisiera exhortarlos a todos a comprender esto y trabajar para sustanciar tal integridad grupal, desarrollando el poder de reconocer a dichos trabajadores en cualquier parte, bajo cualquier <Pin lang="es">191</Pin> nombre u organización, y cooperar con ellos cuando sean reconocidos. No resulta fácil hacerlo y presupone lo siguiente:
 
 1. Sensibilidad interna al Plan.
-2. Capacidad para reconocer principios que rigen la conducta y la administración. <pin lang="en">261</pin>
+2. Capacidad para reconocer principios que rigen la conducta y la administración. <Pin lang="en">261</Pin>
 3. Capacidad para despreocuparse de lo no esencial y acentuar lo esencial.
 4. Subordinación de la ambición e interés personales al desarrollo de los ideales grupales.
 5. Mantenimiento constante del contacto interno por medio de la meditación, sin preocuparse ni acentuar las reacciones de la personalidad.

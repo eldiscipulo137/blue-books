@@ -7,7 +7,7 @@ title: Resumen de las lecciones aprendidas en cada Signo Zodiacal
 > [Los Trabajos de Hércules](/los-trabajos-de-hercules/proposito#resumen-de-las-lecciones-aprendidas-en-cada-signo-zodiacal)
 
 <p>
-<pin lang="es">180</pin> El siguiente compendio de notas en los signos zodiacales se ofrece como una base para un estudio más amplio y una más rápida referencia.
+<Pin lang="es">180</Pin> El siguiente compendio de notas en los signos zodiacales se ofrece como una base para un estudio más amplio y una más rápida referencia.
 </p>
 
 <table>
@@ -80,7 +80,7 @@ title: Resumen de las lecciones aprendidas en cada Signo Zodiacal
 </tr>
 <tr>
     <td>Regentes:</td>
-    <td>Exotérico, Mercurio; Esotérico, Venus. <pin lang="es">181</pin></td>
+    <td>Exotérico, Mercurio; Esotérico, Venus. <Pin lang="es">181</Pin></td>
 </tr>
 <tr>
     <td>Palabras claves:</td>
@@ -132,7 +132,7 @@ title: Resumen de las lecciones aprendidas en cada Signo Zodiacal
 </tr>
 <tr>
     <td>Regentes:</td>
-    <td>Exotérico y Esotérico son el mismo, el Sol. <pin lang="en">212</pin></td>
+    <td>Exotérico y Esotérico son el mismo, el Sol. <Pin lang="en">212</Pin></td>
 </tr>
 <tr>
     <td>Palabras claves:</td>
@@ -158,7 +158,7 @@ title: Resumen de las lecciones aprendidas en cada Signo Zodiacal
 </tr>
 <tr>
     <td>Regentes:</td>
-    <td>Exotérico, Mercurio; Esotérico, la Luna. <pin lang="es">182</pin></td>
+    <td>Exotérico, Mercurio; Esotérico, la Luna. <Pin lang="es">182</Pin></td>
 </tr>
 <tr>
     <td>Palabras claves:</td>
@@ -214,7 +214,7 @@ title: Resumen de las lecciones aprendidas en cada Signo Zodiacal
 </tr>
 <tr>
     <td>Palabras claves:</td>
-    <td>Desde el punto de vista de la forma, "Que Maya florezca y rija el engaño"; desde el punto de vista del alma, "Soy el guerrero y surjo victorioso de la batalla".<pin lang="en">213</pin> </td>
+    <td>Desde el punto de vista de la forma, "Que Maya florezca y rija el engaño"; desde el punto de vista del alma, "Soy el guerrero y surjo victorioso de la batalla".<Pin lang="en">213</Pin> </td>
 </tr>
 </table>
 
@@ -232,7 +232,7 @@ title: Resumen de las lecciones aprendidas en cada Signo Zodiacal
 </tr>
 <tr>
     <td>Polo Opuesto:</td>
-    <td>Géminis, un signo de aire (eventual control de la fluidez y de los pares de opuestos; fusión, síntesis, compensación). <pin lang="es">183</pin></td>
+    <td>Géminis, un signo de aire (eventual control de la fluidez y de los pares de opuestos; fusión, síntesis, compensación). <Pin lang="es">183</Pin></td>
 </tr>
 <tr>
     <td>Regentes:</td>
@@ -284,7 +284,7 @@ title: Resumen de las lecciones aprendidas en cada Signo Zodiacal
 </tr>
 <tr>
     <td>Polo Opuesto:</td>
-    <td>Leo, un signo de fuego (conocimiento individual; impulso <pin lang="en">214</pin> hacia el auto‑conocimiento; eventual auto‑dominio preparatorio para el servicio desinteresado).</td>
+    <td>Leo, un signo de fuego (conocimiento individual; impulso <Pin lang="en">214</Pin> hacia el auto‑conocimiento; eventual auto‑dominio preparatorio para el servicio desinteresado).</td>
 </tr>
 <tr>
     <td>Regentes:</td>
@@ -306,7 +306,7 @@ title: Resumen de las lecciones aprendidas en cada Signo Zodiacal
 </tr>
 <tr>
     <td>Cualidad:</td>
-    <td>Dualidad. Fluidez dotada de conciencia instintiva. Mediumnidad. Mente polarizada no despierta. Intuición dormida. Muerte de la personalidad. Liberación del alma de la cautividad. Cristo, el Salvador del Mundo. <pin lang="es">184</pin></td>
+    <td>Dualidad. Fluidez dotada de conciencia instintiva. Mediumnidad. Mente polarizada no despierta. Intuición dormida. Muerte de la personalidad. Liberación del alma de la cautividad. Cristo, el Salvador del Mundo. <Pin lang="es">184</Pin></td>
 </tr>
 <tr>
     <td>Polo Opuesto:</td>

@@ -5,13 +5,13 @@ title: Estanzas
 ## ESTANZA I
 
 <p>
-<pin lang="es">39</pin> <pin lang="en">11</pin> El Secreto del Fuego se halla oculto en la segunda letra de la Palabra Sagrada. El misterio de la vida se halla oculto en el corazón. Cuando vibra el punto inferior, cuando el sagrado triángulo resplandece, cuando el punto, el centro medio y el ápice se unen y circula el Fuego, cuando arde el triple ápice, entonces los dos triángulos -el mayor y el menor- se fusionan en una sola llama, que todo lo consume.
+<Pin lang="es">39</Pin> <Pin lang="en">11</Pin> El Secreto del Fuego se halla oculto en la segunda letra de la Palabra Sagrada. El misterio de la vida se halla oculto en el corazón. Cuando vibra el punto inferior, cuando el sagrado triángulo resplandece, cuando el punto, el centro medio y el ápice se unen y circula el Fuego, cuando arde el triple ápice, entonces los dos triángulos -el mayor y el menor- se fusionan en una sola llama, que todo lo consume.
 </p>
 
 ## ESTANZA II
 
 <p>
-<pin lang="es">40</pin> <pin lang="en">12</pin> “AUM” dijo el Poderoso Uno, y pronunció la Palabra. Las séptuples olas de la materia se disolvieron y aparecieron variedad de formas. Cada una ocupó su lugar en su esfera designada. Esperaron que entrara la sagrada corriente y las colmara.
+<Pin lang="es">40</Pin> <Pin lang="en">12</Pin> “AUM” dijo el Poderoso Uno, y pronunció la Palabra. Las séptuples olas de la materia se disolvieron y aparecieron variedad de formas. Cada una ocupó su lugar en su esfera designada. Esperaron que entrara la sagrada corriente y las colmara.
 </p>
 
 Los Constructores respondieron al sagrado sonido. En colaboración musical se abocaron al trabajo. Construyeron en muchas esferas, comenzando por la tercera. En este plano se inició su trabajo. Construyeron la envoltura átmica y la enhebraron a su Primario.
@@ -25,23 +25,23 @@ El sagrado plano de conjunción, el cuarto gran plano, se convirtió en la esfer
 “AUM” dijo el Poderoso Uno, exhalando hacia el quinto, el plano de la tierra ardiente, el lugar de encuentro del fuego. Entonces se escuchó una nota cósmica debajo del sonido del sistema. El fuego interno y el fuego externo se encontraron con el fuego ascendente. Los guardianes del fuego cósmico y los devas del calor fohático vigilaron las formas que permanecían amorfas, esperando un punto en el tiempo.
 
 <p>
-<pin lang="en">13</pin> Los constructores de menor grado, devas que trabajaban con la materia, moldearon las formas. Éstas se dividieron en cuatro grupos. Permanecieron en absoluto silencio en los triples niveles. Vibraron, respondieron a la tónica, sin embargo, permanecieron estériles y yermas.
+<Pin lang="en">13</Pin> Los constructores de menor grado, devas que trabajaban con la materia, moldearon las formas. Éstas se dividieron en cuatro grupos. Permanecieron en absoluto silencio en los triples niveles. Vibraron, respondieron a la tónica, sin embargo, permanecieron estériles y yermas.
 </p>
 
 “AUM” dijo el Poderoso Uno, “que afluyan también las aguas”. Los constructores de la esfera acuosa, que habitan en la humedad, produjeron las formas que se mueven en el reino de Varuna. Crecieron y se multiplicaron. Oscilaban en constante flujo. Cada reflujo en el movimiento cósmico aumentaba el interminable fluir. Se observaban las ondulaciones de las formas.
 
-“AUM” dijo el Poderoso Uno, “que los Constructores se ocupen de la materia”. Lo que estaba en estado líquido se solidificó. Se construyeron las formas sólidas. La corteza se enfrió. Las rocas se endurecieron. Los constructores crearon la confusión para <pin lang="es">41</pin> producir las diversas formas de maya. Cuando se completaron los estratos rocosos, el trabajo terminó. Los constructores de grado inferior anunciaron que el trabajo había llegado a su fin.
+“AUM” dijo el Poderoso Uno, “que los Constructores se ocupen de la materia”. Lo que estaba en estado líquido se solidificó. Se construyeron las formas sólidas. La corteza se enfrió. Las rocas se endurecieron. Los constructores crearon la confusión para <Pin lang="es">41</Pin> producir las diversas formas de maya. Cuando se completaron los estratos rocosos, el trabajo terminó. Los constructores de grado inferior anunciaron que el trabajo había llegado a su fin.
 
 Del estrato rocoso surgió el otro estrato. Los constructores del segundo acordaron que ya estaba realizado el trabajo. El primero y el segundo, en el camino ascendente, permanecieron en forma cuádruple. Aquellos cuya vista era penetrante percibieron parcialmente a los cinco internos.
 
-“AUM” dijo el Poderoso Uno, y contuvo Su Aliento. La chispa que existía en los habitantes del tercero dio impulso a un mayor crecimiento. Los constructores de las formas inferiores manipularon el maya más denso, fusionaron su producto con las formas construidas por los seres acuosos. La materia y el agua fusionadas produjeron, a su debido tiempo, el tercero. Así continuó la ascensión. Los constructores trabajaron unidos. Llamaron a los guardianes de la zona ígnea. <pin lang="en">14</pin> La materia y el agua se mezclaron con el fuego, y conjuntamente con la chispa interna, dentro de la forma, se fusionaron.
+“AUM” dijo el Poderoso Uno, y contuvo Su Aliento. La chispa que existía en los habitantes del tercero dio impulso a un mayor crecimiento. Los constructores de las formas inferiores manipularon el maya más denso, fusionaron su producto con las formas construidas por los seres acuosos. La materia y el agua fusionadas produjeron, a su debido tiempo, el tercero. Así continuó la ascensión. Los constructores trabajaron unidos. Llamaron a los guardianes de la zona ígnea. <Pin lang="en">14</Pin> La materia y el agua se mezclaron con el fuego, y conjuntamente con la chispa interna, dentro de la forma, se fusionaron.
 
 El Poderoso Uno miró hacia abajo. Aprobó las formas. Surgió la demanda por mayor luz. Nuevamente recogió el sonido. Elevó hacia niveles superiores la tenue chispa de luz. Se escuchó otro tono, el sonido del fuego cósmico, oculto en los Hijos de Manas, quienes se dirigieron a sus Primarios. Los cuatro inferiores, los tres superiores y los cinco cósmicos se reunieron en la gran inhalación. Se formó una nueva envoltura.
 
 ## ESTANZA III
 
 <p>
-<pin lang="es">42</pin> <pin lang="en">15</pin> La gran Rueda giró sobre sí misma. Las siete ruedas menores precipitadamente vinieron a la existencia. Giraron como su Madre, sobre sí mismas, internamente y hacia adelante. Todo lo que existe fue.
+<Pin lang="es">42</Pin> <Pin lang="en">15</Pin> La gran Rueda giró sobre sí misma. Las siete ruedas menores precipitadamente vinieron a la existencia. Giraron como su Madre, sobre sí mismas, internamente y hacia adelante. Todo lo que existe fue.
 </p>
 
 Las diversas ruedas unificadas eran una. A medida que giraba la gran Rueda, ardía el fuego interno. El contacto dio vida a la primera rueda. Circuló. Surgieron un millón de hogueras. Se solidificó la cualidad de la materia, pero aún no vino la forma a la existencia. Se irguieron los Hijos de Dios, escudriñaron la profundidad de la Llama, extrajeron de su corazón la sagrada Piedra de Fuego, de allí pasaron a la siguiente.
@@ -51,7 +51,7 @@ Al girar nuevamente la gran Rueda lanzó la segunda. Otra vez ardió la llama, a
 La gran Rueda giró con más rapidez; azul y blanca surgió entonces la llama. Los Hijos de Dios descendieron otra vez y una rueda menor giró. Siete veces giró y siete veces aumentó el calor. Se hizo más sólida la masa informe y se sumergió más profundamente la Piedra. La Piedra sagrada descendió hasta el corazón del fuego más recóndito. Esta vez el trabajo se realizó mejor, y el producto fue más perfecto. En la séptima revolución la tercera rueda devolvió la Piedra. Triple la forma, rosada la luz y séptuple el eterno principio.
 
 <p>
-<pin lang="en">16</pin> Surgiendo de la gran Rueda, desde la bóveda celeste, vino a la luz la rueda menor que se constituyó en la cuarta. El eterno Lhas miró hacia abajo y se adelantaron los Hijos de Dios. Arrojaron la Piedra sagrada en lo más profundo de la muerte. Surgió el aplauso de los Chohanes. El trabajo llegó a un punto decisivo. Del abismo de la oscuridad externa extrajeron la Piedra, que ahora era transparente, pura, de color rosa y azul.
+<Pin lang="en">16</Pin> Surgiendo de la gran Rueda, desde la bóveda celeste, vino a la luz la rueda menor que se constituyó en la cuarta. El eterno Lhas miró hacia abajo y se adelantaron los Hijos de Dios. Arrojaron la Piedra sagrada en lo más profundo de la muerte. Surgió el aplauso de los Chohanes. El trabajo llegó a un punto decisivo. Del abismo de la oscuridad externa extrajeron la Piedra, que ahora era transparente, pura, de color rosa y azul.
 </p>
 
 Las revoluciones de la quinta rueda y su actividad sobre la Piedra, la hicieron aún más apta. El tinte fusionador era amarillo, anaranjado el fuego interno, hasta que el amarillo, el rosa y el azul mezclaron sus tonos sutiles. Las cuatro ruedas conjuntamente con la mayor trabajaron sobre la Piedra, hasta que todos los Hijos de Dios aclamaron, diciendo, “El trabajo ha sido realizado”.
@@ -59,7 +59,7 @@ Las revoluciones de la quinta rueda y su actividad sobre la Piedra, la hicieron 
 ## ESTANZA IV
 
 <p>
-<pin lang="es">43</pin> <pin lang="en">17</pin> En la quinta revolución de la gran Rueda se llegó al período destinado. La rueda menor, que respondió a esa quinta gran vuelta: Pasó a través del ciclo y entró en la paz.
+<Pin lang="es">43</Pin> <Pin lang="en">17</Pin> En la quinta revolución de la gran Rueda se llegó al período destinado. La rueda menor, que respondió a esa quinta gran vuelta: Pasó a través del ciclo y entró en la paz.
 </p>
 
 Las ruedas menores se presentaron y realizaron similarmente su trabajo. La gran Rueda recogió nuevamente las chispas emanantes. Las Cinco se abocaron al trabajo, las dos menores se ocuparon de los detalles. La Piedra había reunido el fuego y brilló con llama ondulante. La envoltura externa no satisfizo la necesidad hasta que la sexta y séptima ruedas la hicieron pasar a través de sus fuegos.
@@ -75,7 +75,7 @@ Terminó el eón, el trabajo fue realizado. Se detuvieron las estrellas. El Eter
 ## ESTANZA V
 
 <p>
-<pin lang="es">44</pin> <pin lang="en">18</pin> Llegó el momento manvantárico, la hora que marcaba el solemne punto de conjunción esperado por todas las Tríadas; llegó dentro del tiempo estipulado. He aquí, que el trabajo fue realizado.
+<Pin lang="es">44</Pin> <Pin lang="en">18</Pin> Llegó el momento manvantárico, la hora que marcaba el solemne punto de conjunción esperado por todas las Tríadas; llegó dentro del tiempo estipulado. He aquí, que el trabajo fue realizado.
 </p>
 
 La hora que esperaron, durante milenios, los siete grupos “purúshicos”, vibrando cada uno al sonido de la Palabra e intentando adquirir más poder, pasó en un instante; he aquí, que el trabajo fue realizado:
@@ -86,7 +86,7 @@ El Segundo, con sabia insistencia, al oír al Primero emitir el sonido, sabiendo
 
 Trémula la esfera oyó que el Tercero recogía y enviaba la nota; un pleno acorde hizo impacto en los oídos de los Custodios de la Llama.
 
-Los Señores de la Llama se incorporaron y se prepararon. Era la hora decisiva. Los siete Señores de las siete esferas aguardaban el resultado reteniendo el aliento. El <pin lang="en">19</pin> gran Señor de la cuarta esfera aguardó lo que llegaba.
+Los Señores de la Llama se incorporaron y se prepararon. Era la hora decisiva. Los siete Señores de las siete esferas aguardaban el resultado reteniendo el aliento. El <Pin lang="en">19</Pin> gran Señor de la cuarta esfera aguardó lo que llegaba.
 
 Lo inferior estaba preparado. Lo superior sumiso. Los Cinco grandes esperaban el punto equidistante de fusión. Ascendió la nota fundamental. Lo profundo respondió a lo recóndito. El quíntuple acorde esperó la respuesta de Aquellos cuya hora había llegado.
 
@@ -95,7 +95,7 @@ Oscurecióse el espacio entre las esferas. Dos de ellas brillaron. Los triples t
 ## ESTANZA VI
 
 <p>
-<pin lang="es">45</pin> <pin lang="en">20</pin> Dentro de la oscura caverna el cuádruple buscaba a tientas expansión y mayor luz. No descendía luz desde arriba, y la penumbra lo invadía todo. Era total la oscuridad que lo circundaba. Hasta el centro más recóndito del corazón, trémulo, carente de cálida Luz, se introdujo furtivamente el frío de la absoluta oscuridad.
+<Pin lang="es">45</Pin> <Pin lang="en">20</Pin> Dentro de la oscura caverna el cuádruple buscaba a tientas expansión y mayor luz. No descendía luz desde arriba, y la penumbra lo invadía todo. Era total la oscuridad que lo circundaba. Hasta el centro más recóndito del corazón, trémulo, carente de cálida Luz, se introdujo furtivamente el frío de la absoluta oscuridad.
 </p>
 
 Sobre la oscura caverna brilló la luz del día, sin embargo, no la vio el cuádruple, ni tampoco prevaleció la luz.
@@ -106,14 +106,14 @@ Los triples Custodios saben y observan. El cuádruple está ya preparado; la den
 
 Sonó la trompeta de la destrucción. Enceguecedor era el poder de la llama que se aproximaba. El sismo místico sacudió la caverna; las Llamas ígneas desintegran a maya, y he aquí, que el trabajo está realizado.
 
-Se desvanecen las tinieblas y las penumbras; hendido quedó el techo de la caverna. Penetra la luz de la vida; el calor inspira. Los Señores que observan, ven cómo se inicia el trabajo. El cuádruple se convierte en siete. El <pin lang="en">21</pin> canto de las llamas se eleva a toda la creación. Ha llegado el momento de la realización.
+Se desvanecen las tinieblas y las penumbras; hendido quedó el techo de la caverna. Penetra la luz de la vida; el calor inspira. Los Señores que observan, ven cómo se inicia el trabajo. El cuádruple se convierte en siete. El <Pin lang="en">21</Pin> canto de las llamas se eleva a toda la creación. Ha llegado el momento de la realización.
 
 Prosigue nuevamente el trabajo. La creación sigue su camino mientras se acrecienta la luz dentro de la caverna.
 
 ## ESTANZA VII
 
 <p>
-<pin lang="es">46</pin> <pin lang="en">22</pin> Se yergue la caverna de rara belleza, de color tornasolado. Brillan sus paredes de tinte azulado, bañadas en luz rosada. La amalgama de tinte azul irradia sobre la totalidad, y todo fulgura.
+<Pin lang="es">46</Pin> <Pin lang="en">22</Pin> Se yergue la caverna de rara belleza, de color tornasolado. Brillan sus paredes de tinte azulado, bañadas en luz rosada. La amalgama de tinte azul irradia sobre la totalidad, y todo fulgura.
 </p>
 
 Dentro de la caverna de color iridiscente, en abovedado círculo, permanece el quíntuple Uno, clamando por más luz. Lucha por expandirse, y se esfuerza por alcanzar el día. Los Cinco llaman al Sexto y al Séptimo mayores. La belleza circundante no satisface la necesidad. El calor interno sólo es suficiente para nutrir el anhelo por obtener el FUEGO.
@@ -124,12 +124,12 @@ El esfuerzo de la Llama, dentro de la caverna de cristal, se acrecienta. Surge e
 
 El Señor de la Llama, el Anciano, el Poderoso Señor del Fuego, el Punto Azul dentro del diamante oculto, el Joven de los Eternos Eones ayuda en el trabajo. La ígnea luz interna y el expectante fuego externo -conjuntamente con el CETRO- se reúnen en la esfera de cristal; he aquí, que el trabajo está realizado. Se raja el cristal y vibra.
 
-Siete veces se emprende el trabajo. Siete veces se realizan los esfuerzos. Siete veces se aplica el Cetro, sostenido por uno de los Señores de la Llama. Tres son los toques menores; cuatro <pin lang="en">23</pin> la ayuda divina. Al final del cuarto, se termina el trabajo y se desmorona la caverna. La interna e ígnea llama se infiltra a través de las agrietadas paredes. Asciende hasta su Fuente de origen. Se fusiona con otro fuego; otro punto azul halla su lugar dentro de la diadema logoica.
+Siete veces se emprende el trabajo. Siete veces se realizan los esfuerzos. Siete veces se aplica el Cetro, sostenido por uno de los Señores de la Llama. Tres son los toques menores; cuatro <Pin lang="en">23</Pin> la ayuda divina. Al final del cuarto, se termina el trabajo y se desmorona la caverna. La interna e ígnea llama se infiltra a través de las agrietadas paredes. Asciende hasta su Fuente de origen. Se fusiona con otro fuego; otro punto azul halla su lugar dentro de la diadema logoica.
 
 ## ESTANZA VIII
 
 <p>
-<pin lang="es">47</pin> <pin lang="en">24</pin> Los Tres mayores, cada uno dentro de sus propias siete ruedas menores, en la espiral evolutiva, giran dentro del Eterno Ahora. Se mueven como uno. Los Señores cósmicos, desde su elevado lugar, observan el pasado, controlan el Ahora, y reflexionan sobre el Día que será con nosotros.
+<Pin lang="es">47</Pin> <Pin lang="en">24</Pin> Los Tres mayores, cada uno dentro de sus propias siete ruedas menores, en la espiral evolutiva, giran dentro del Eterno Ahora. Se mueven como uno. Los Señores cósmicos, desde su elevado lugar, observan el pasado, controlan el Ahora, y reflexionan sobre el Día que será con nosotros.
 </p>
 
 El Lhas del Sonido perdurable, producto del tiempo que fue, trasciende el séptuple despliegue. Dentro del “Círculo no se pasa” se emite la Palabra de Amor.
@@ -140,7 +140,7 @@ El Señor Azul, quien reunió a todos dentro del arco búdico, emite Su nota. Lo
 
 Fue agregado azul al verde y rápidamente se observa su culminación. La vibración del tercero se une al uno. El azul se mezcla con el anaranjado y en esa sabia fusión se observa el inmutable esquema. Al amarillo y al rojo, al púrpura y al fundamental les corresponde la vibración del séptimo, ajustada a la del Primario.
 
-Cada uno de los siete Señores, dentro de Sus siete esquemas, amoldados al segundo círculo kármico, fusionan <pin lang="en">25</pin> Sus esferas migratorias y mezclan Sus miríadas de átomos.
+Cada uno de los siete Señores, dentro de Sus siete esquemas, amoldados al segundo círculo kármico, fusionan <Pin lang="en">25</Pin> Sus esferas migratorias y mezclan Sus miríadas de átomos.
 
 Las formas a través de las cuales Ellos trabajan, el millón de esferas menores y la causa de la separación y de la maldición de los Asuras, se desintegran cuando se emite la Sagrada Palabra desde un punto en el tiempo.
 
@@ -153,7 +153,7 @@ La forma perfeccionada y la vida que evoluciona encierran el tercer secreto de l
 ## ESTANZA IX
 
 <p>
-<pin lang="es">48</pin> <pin lang="en">26</pin> Los treinta mil millones de Observadores se negaron a responder al llamado. “No penetraremos en las formas”, dijeron, “hasta el séptimo eón”. Los sesenta mil millones obedecieron al llamado y tomaron las formas designadas.
+<Pin lang="es">48</Pin> <Pin lang="en">26</Pin> Los treinta mil millones de Observadores se negaron a responder al llamado. “No penetraremos en las formas”, dijeron, “hasta el séptimo eón”. Los sesenta mil millones obedecieron al llamado y tomaron las formas designadas.
 </p>
 
 Los rebeldes se regocijaron internamente y buscaron la paz praláyica, hasta el séptimo eón. Pero los siete grandes Señores convocaron a los grandes Chohanes, y con el eterno Lhas del tercer cielo cósmico entraron en debate.
@@ -166,12 +166,12 @@ En el séptimo decimocuarto eón, Los Hijos de la Mente y del Corazón, absorbid
 
 En el centro se encuentran los budas de actividad, ayudados por los señores del amor, y a continuación de su trabajo dual llegarán los radiantes señores del poder.
 
-Los budas de la creación han surgido del <pin lang="en">27</pin> pasado. Los budas del amor ya se están reuniendo. Los budas de la voluntad, al finalizar la última vuelta de la tercera rueda mayor, vendrán al ser en una llamarada. Entonces se habrá consumado el fin.
+Los budas de la creación han surgido del <Pin lang="en">27</Pin> pasado. Los budas del amor ya se están reuniendo. Los budas de la voluntad, al finalizar la última vuelta de la tercera rueda mayor, vendrán al ser en una llamarada. Entonces se habrá consumado el fin.
 
 ## ESTANZA X
 
 <p>
-<pin lang="es">49</pin> <pin lang="en">28</pin> El Quinto progresó, y de los restos del Cuarto se multiplicó y reprodujo. Subieron las aguas. Todo se hundió y sumergió. Los restos sagrados, en su lugar asignado, surgieron más tarde de la zona de seguridad
+<Pin lang="es">49</Pin> <Pin lang="en">28</Pin> El Quinto progresó, y de los restos del Cuarto se multiplicó y reprodujo. Subieron las aguas. Todo se hundió y sumergió. Los restos sagrados, en su lugar asignado, surgieron más tarde de la zona de seguridad
 </p>
 
 Retrocedieron las aguas. Apareció la tierra sólida en ciertos lugares predestinados. El Quinto sobrepasó la Tierra Sagrada, y en sus quíntuples grupos se desarrollo el Quinto inferior.
@@ -180,7 +180,7 @@ Pasaron de una etapa a otra. Los Señores custodios, reconociendo los “rupas�
 
 Construyeron otras formas. Pidieron fuego cósmico. Los siete profundos fosos del averno vomitaron sombras animadoras. Los séptuples entrantes pusieron orden en todas las formas –las blancas, las negras, las rojas y las morenas.
 
-El periodo de destrucción se extiendo por todas partes. El trabajo fue lamentablemente dañado. Los Choanes del plano superior observaron en silencio el trabajo. Los Asuras y los Chaitanes, los Hijos del Mal cósmico y los Rishis de las constelaciones oscuras <pin lang="en">29</pin> reunieron sus huestes menores, oscuros engendros del averno. Oscurecieron todo el espacio.
+El periodo de destrucción se extiendo por todas partes. El trabajo fue lamentablemente dañado. Los Choanes del plano superior observaron en silencio el trabajo. Los Asuras y los Chaitanes, los Hijos del Mal cósmico y los Rishis de las constelaciones oscuras <Pin lang="en">29</Pin> reunieron sus huestes menores, oscuros engendros del averno. Oscurecieron todo el espacio.
 
 <hr/>
 
@@ -193,17 +193,17 @@ Los Tres primitivos crearon los monstruos, las grandes bestias y las formas mali
 Los Cuatro acuosos crearon dentro de la esfera acuosa reptiles y engendros de maligno renombre, producto de su karma. Llegaron las aguas y arrasaron con los progenitores del engendro liquido.
 
 <p>
-<pin lang="es">50</pin> Los Cinco divisivos construyeron en la esfera de rupa las concretas formas mentales. Las expelieron, estas poblaron los cuatro inferiores y al igual que la negra y maligna nube, oscurecieron la luz del día, ocultando a los tres superiores.
+<Pin lang="es">50</Pin> Los Cinco divisivos construyeron en la esfera de rupa las concretas formas mentales. Las expelieron, estas poblaron los cuatro inferiores y al igual que la negra y maligna nube, oscurecieron la luz del día, ocultando a los tres superiores.
 </p>
 
 Se libró la guerra desatada en el planeta. Ambos contendientes descendieron al infierno. Luego llegó el Conquistador de la forma. Extrajo el Fuego Sagrado y purificó los niveles del cuerpo.El fuego destruyó las tierras en la época del Sexto menor.
 
-Cuando apareció el Sexto la tierra había cambiado. La superficie del globo circuló a través de otro ciclo. Los hombres del Quinto superior dominaron a los tres <pin lang="en">30</pin> inferiores. El trabajo fue transferido al plano donde permanecía el Peregrino. El triángulo menor, dentro del huevo áurico inferior, se convirtió en el centro de la disonancia cósmica.
+Cuando apareció el Sexto la tierra había cambiado. La superficie del globo circuló a través de otro ciclo. Los hombres del Quinto superior dominaron a los tres <Pin lang="en">30</Pin> inferiores. El trabajo fue transferido al plano donde permanecía el Peregrino. El triángulo menor, dentro del huevo áurico inferior, se convirtió en el centro de la disonancia cósmica.
 
 ## ESTANZA XI
 
 <p>
-<pin lang="es">51</pin> <pin lang="en">31</pin> La rueda de la vida gira dentro de la rueda de la forma externa.
+<Pin lang="es">51</Pin> <Pin lang="en">31</Pin> La rueda de la vida gira dentro de la rueda de la forma externa.
 </p>
 
 Circula la materia de Fohat, su fuego endurece todas las formas. La rueda invisible gira en rápidas revoluciones, dentro de la lenta envoltura externa, hasta desgastar la forma.
@@ -219,7 +219,7 @@ La mayoría circula. Las formas se construyen, llegan a ser demasiado sólidas, 
 ## ESTANZA XII
 
 <p>
-<pin lang="es">52</pin> <pin lang="en">32</pin> Los Benditos Seres ocultan Su triple naturaleza, pero revelan Su triple esencia mediante los tres grandes grupos de átomos. Tres son los átomos y triple la radiación.
+<Pin lang="es">52</Pin> <Pin lang="en">32</Pin> Los Benditos Seres ocultan Su triple naturaleza, pero revelan Su triple esencia mediante los tres grandes grupos de átomos. Tres son los átomos y triple la radiación.
 </p>
 
 El núcleo interno del Fuego se oculta a sí mismo y sólo es conocido a través de la irradiación y de aquello que irradia. Sólo después de consumirse la hoguera y cuando ya no se sienta su calor, podrá conocerse el fuego.
@@ -228,7 +228,7 @@ El núcleo interno del Fuego se oculta a sí mismo y sólo es conocido a través
 ## ESTANZA XIII
 
 <p>
-<pin lang="es">53</pin> <pin lang="en">33</pin> A través de la franja color violeta que circunda el Firmamento pasa el globo de color púrpura oscuro. Pasa y no retorna. Es hechizado por el color azul. Tres veces lo envuelve el azul y cuando se ha completado el círculo, el púrpura desaparece y se fusiona con el rosa, y nuevamente atraviesa el sendero.
+<Pin lang="es">53</Pin> <Pin lang="en">33</Pin> A través de la franja color violeta que circunda el Firmamento pasa el globo de color púrpura oscuro. Pasa y no retorna. Es hechizado por el color azul. Tres veces lo envuelve el azul y cuando se ha completado el círculo, el púrpura desaparece y se fusiona con el rosa, y nuevamente atraviesa el sendero.
 </p>
 
 Tres son los grandes colores del ciclo que se consideran como el cuarto: violeta, azul y rosa con el fundamental púrpura en rotación.

@@ -4,7 +4,7 @@ title: Reglas para la magia
 
 # REGLAS PARA LA MAGIA
 
-## <pin lang="es">11</pin> REGLA UNO
+## <Pin lang="es">11</Pin> REGLA UNO
 
 El Ángel Solar se recoge en sí mismo, no disipa su fuerza, sino que en profunda meditación se comunica con su reflejo.
 
@@ -28,7 +28,7 @@ Tres cosas preocupan al Ángel Solar antes de que la envoltura creada descienda;
 
 Cuando el ojo se abre, los devas de los cuatro inferiores sienten la fuerza, son expulsados y pierden a su amo.
 
-## <pin lang="es">12</pin> REGLA SIETE
+## <Pin lang="es">12</Pin> REGLA SIETE
 
 Las fuerzas duales son vistas en el plano donde debe descubrirse el poder vital; los dos senderos enfrentan al Ángel Solar; los polos vibran. Aquél que medita debe hacer una elección.
 
@@ -52,7 +52,7 @@ Aquel que trabaja con la ley, tiene ahora que llevar a cabo tres cosas: Primeram
 
 La trama palpita. Se contrae y dilata. Que el mago se apodere del punto medio a fin de liberar a esos "prisioneros del planeta" cuya nota está correcta y exactamente afinada con aquello que debe ser hecho.
 
-## <pin lang="es">13</pin> REGLA TRECE
+## <Pin lang="es">13</Pin> REGLA TRECE
 
 El mago debe reconocer a los cuatro; observar en su trabajo el tono violeta que evidencian, y así construir la sombra. Cuando esto ocurre, la sombra se reviste a sí misma y los cuatro se convierten en siete.
 

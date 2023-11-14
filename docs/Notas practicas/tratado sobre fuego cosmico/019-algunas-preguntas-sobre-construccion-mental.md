@@ -6,7 +6,7 @@ title: Algunas preguntas sobre construcción mental
 
 > [Tratado sobre fuego cósmico](/tratado-sobre-fuego-cosmico/elementales-de-la-mente#en567)
 
-<p><pin lang="en">567</pin> Reduzcamos ahora la idea a una base más práctica, y formulemos preguntas sobre las siguientes líneas:</p>
+<p><Pin lang="en">567</Pin> Reduzcamos ahora la idea a una base más práctica, y formulemos preguntas sobre las siguientes líneas:</p>
 
 1. ¿Qué tipo de materia empleo generalmente para formular pensamientos?
 2. ¿Cuál es la cualidad síquica de mis formas mentales?

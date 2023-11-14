@@ -11,7 +11,7 @@ Estos métodos de interacción grupal sólo pueden ser comprendidos si se consid
 1. Un triple intercambio interno.
 2. Una triple interacción externa.
 
-Consideremos los siete Rayos y enumeremos las tres formas en que los grupos de cualquier rayo determinado interactúan entre sí, recordando que a medida que los analizamos estamos realmente <pin lang="es">954</pin> estudiando las veintiuna vibraciones de la Ley de Atracción o movimiento, conjuntamente con la vibración básica, síntesis de las veintiuna, constituyendo las veintidós:
+Consideremos los siete Rayos y enumeremos las tres formas en que los grupos de cualquier rayo determinado interactúan entre sí, recordando que a medida que los analizamos estamos realmente <Pin lang="es">954</Pin> estudiando las veintiuna vibraciones de la Ley de Atracción o movimiento, conjuntamente con la vibración básica, síntesis de las veintiuna, constituyendo las veintidós:
 
 #### METODOS DE ACTIVIDAD DE RAYO
 
@@ -26,7 +26,7 @@ Consideremos los siete Rayos y enumeremos las tres formas en que los grupos de c
 3. 3er. Rayo de Actividad o Adaptabilidad.
    1. Vitalización de las formas por medio del trabajo grupal.
    2. Estímulo de las formas, el principio etérico o pránico.
-   3. Impulso material o energía. <pin lang="en">1223</pin>
+   3. Impulso material o energía. <Pin lang="en">1223</Pin>
 4. 4to. Rayo de Armonía, Unión.
    1. Perfeccionamiento de las formas por medio del intercambio grupal.
    2. Estímulo de los Ángeles solares o principio manásico.
@@ -50,7 +50,7 @@ Estos veintiún métodos y su síntesis, resumen en gran parte todo lo que puede
 2. 7 Leyes
 3. 22 Métodos de actividad.
 
-<p><pin lang="es">955</pin> suman las treinta y dos vibraciones necesarias para producir, en lo que concierne al hombre, los cinco planos de la evolución. Existen, como sabemos, los treinta y cinco subplanos o en realidad las treinta y dos vibraciones menores y las tres dominantes. De la misma manera que los tres planos del Ego en el plano mental dominan a los planos restantes en los tres mundos, en los cinco mundos de la Jerarquía los tres subplanos superiores del plano atómico mantienen una posición análoga. <pin lang="en">1224</pin></p>
+<p><Pin lang="es">955</Pin> suman las treinta y dos vibraciones necesarias para producir, en lo que concierne al hombre, los cinco planos de la evolución. Existen, como sabemos, los treinta y cinco subplanos o en realidad las treinta y dos vibraciones menores y las tres dominantes. De la misma manera que los tres planos del Ego en el plano mental dominan a los planos restantes en los tres mundos, en los cinco mundos de la Jerarquía los tres subplanos superiores del plano atómico mantienen una posición análoga. <Pin lang="en">1224</Pin></p>
 
 #### LAS SIETE JERARQUÍAS
 
@@ -64,7 +64,7 @@ Estos veintiún métodos y su síntesis, resumen en gran parte todo lo que puede
 | 6ta. | Los Fuegos del Sacrificio. Los Aspirantes. | 6 u 11 | Una Luna de plata coronada por una Cruz de brazos iguales                   | Tercero | de la 6ta. fuerza cósmica.         |
 | 7ma. | Los Cestos de Alimento o las Vidas Ciegas  | 7 ó 12 | Un Hombre invertido con los ojos cerrados                                   | Cuarto  | de la 7ma. fuerza creadora         |
 
-Para finalizar, podríamos proporcionar algunos símbolos de las doce Jerarquías creadoras. No es posible dar aquellos por los cuales los Adeptos las conocen, porque en ellos se revelaría mucho que es mejor mantenerlo secreto, pero los símbolos que son <pin lang="en">1225</pin> asequibles en <pin lang="es">956</pin> los registros pueden concederse a los discípulos, y de su minucioso examen podrá revelarse algún conocimiento sobre el carácter esencial de la jerarquía.
+Para finalizar, podríamos proporcionar algunos símbolos de las doce Jerarquías creadoras. No es posible dar aquellos por los cuales los Adeptos las conocen, porque en ellos se revelaría mucho que es mejor mantenerlo secreto, pero los símbolos que son <Pin lang="en">1225</Pin> asequibles en <Pin lang="es">956</Pin> los registros pueden concederse a los discípulos, y de su minucioso examen podrá revelarse algún conocimiento sobre el carácter esencial de la jerarquía.
 
 Los símbolos de las cinco jerarquías desaparecidas son los siguientes:
 
@@ -82,8 +82,8 @@ Este símbolo, que significa la liberación alcanzada y las adquisiciones obteni
 
 Los símbolos de las siete Jerarquías creadoras, actualmente en manifestación, están encerrados en un círculo que denota la limitación y circunscripción de la Vida. Estas jerarquías son Hijos del deseo, y expresan preeminentemente el deseo del Logos solar por manifestarse. Reciben su impulso primario desde el plano astral cósmico. Además expresan una vibración que emana de la segunda hilera de pétalos en el Loto logoico del plano mental cósmico.
 
-Cada una constituye por lo tanto la expresión de Su naturaleza amor; debido a ello budi se encuentra en el corazón del átomo más pequeño, o lo que en este <pin lang="en">1226</pin> sistema llamamos fuego eléctrico. Para la vida central positiva de cada forma es sólo la expresión de budi cósmico y la afluencia del amor que se origina en el Corazón del Logos solar; esto en sí es el principio que emana de AQUEL SOBRE QUIEN NADA PUEDE DECIRSE, SUPERIOR A NUESTRO LOGOS.
+Cada una constituye por lo tanto la expresión de Su naturaleza amor; debido a ello budi se encuentra en el corazón del átomo más pequeño, o lo que en este <Pin lang="en">1226</Pin> sistema llamamos fuego eléctrico. Para la vida central positiva de cada forma es sólo la expresión de budi cósmico y la afluencia del amor que se origina en el Corazón del Logos solar; esto en sí es el principio que emana de AQUEL SOBRE QUIEN NADA PUEDE DECIRSE, SUPERIOR A NUESTRO LOGOS.
 
-Es el amor que se limita a sí mismo por el deseo y por lo deseado. Amor que afluye a todas las formas, siendo estimuladas y ayudadas por su intermedio; el cumplimiento de las obligaciones divinas contraídas en nebulosos y distantes kalpas que anteceden a la triplicidad de sistemas solares, apenas vislumbrados <pin lang="es">957</pin> vagamente, y el "Padre de la Luz" (en un significado cósmico) derramándose sobre aquello que lo ata, y Su dharma consiste en elevarlo hasta Su Trono. Es imposible describir lo que revela el Amor del Logos solar a medida que aparece ante el ojo del vidente iluminado, ni mostrar la naturaleza del Señor de Sacrificio cósmico cuando Se limita a Sí mismo a fin de salvar. En cada etapa del Sendero se le presenta al discípulo la magnitud de ese amor y sacrificio a medida que se reconoce en ínfima escala como Señor de Sacrificio y Amor. Sólo puede apreciarlo cuando se abren las dos hileras internas de pétalos egoicos; el conocimiento no lo revelaría; sólo cuando un hombre trasciende el conocimiento y no se reconoce separatista ni incluyente, obtiene esta particular revelación.
+Es el amor que se limita a sí mismo por el deseo y por lo deseado. Amor que afluye a todas las formas, siendo estimuladas y ayudadas por su intermedio; el cumplimiento de las obligaciones divinas contraídas en nebulosos y distantes kalpas que anteceden a la triplicidad de sistemas solares, apenas vislumbrados <Pin lang="es">957</Pin> vagamente, y el "Padre de la Luz" (en un significado cósmico) derramándose sobre aquello que lo ata, y Su dharma consiste en elevarlo hasta Su Trono. Es imposible describir lo que revela el Amor del Logos solar a medida que aparece ante el ojo del vidente iluminado, ni mostrar la naturaleza del Señor de Sacrificio cósmico cuando Se limita a Sí mismo a fin de salvar. En cada etapa del Sendero se le presenta al discípulo la magnitud de ese amor y sacrificio a medida que se reconoce en ínfima escala como Señor de Sacrificio y Amor. Sólo puede apreciarlo cuando se abren las dos hileras internas de pétalos egoicos; el conocimiento no lo revelaría; sólo cuando un hombre trasciende el conocimiento y no se reconoce separatista ni incluyente, obtiene esta particular revelación.
 
 Tal es el secreto que se halla detrás de los siete símbolos, ocultando cada uno un aspecto del séptuple Amor de Dios a medida que se revela a través de la Jerarquía de Seres, o a medida que el Hijo, summum del Amor de Dios, lo revela, sin olvidar también el tipo de fuerza que maneja determinada jerarquía.

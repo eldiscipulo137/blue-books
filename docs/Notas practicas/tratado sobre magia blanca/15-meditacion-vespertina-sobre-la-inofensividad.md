@@ -6,7 +6,7 @@ title: Meditación vespertina sobre la inofensividad
 
 > [Tratado sobre magia blanca](/tratado-sobre-magia-blanca/regla-3#es86)
 
-Que la inofensividad sea, por lo tanto, la nota clave de su vida. En estas líneas debe efectuarse la recapitulación vespertina, clasificar el trabajo de recapitulación en tres partes, considerando: <pin lang="es">86</pin>
+Que la inofensividad sea, por lo tanto, la nota clave de su vida. En estas líneas debe efectuarse la recapitulación vespertina, clasificar el trabajo de recapitulación en tres partes, considerando: <Pin lang="es">86</Pin>
 
 1. El pensar inofensivo. Dará por resultado especialmente el control de la palabra.
 2. La reacción emocional inofensiva. Traerá como resultado un canal para el aspecto amor del alma.

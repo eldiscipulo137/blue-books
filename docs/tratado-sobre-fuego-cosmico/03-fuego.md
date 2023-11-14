@@ -5,7 +5,7 @@ title: Fuego
 # FUEGO
 
 <p>
-<pin lang="es">19</pin> <pin lang="en">xvii</pin> “¿Qué dice la enseñanza esotérica respecto al Fuego?
+<Pin lang="es">19</Pin> <Pin lang="en">xvii</Pin> “¿Qué dice la enseñanza esotérica respecto al Fuego?
 </p>
 
 > Fuego es el reflejo más perfecto y puro de la Llama Una que existe en el cielo y en la tierra. Es la vida y la muerte, el origen y el fin de todas las cosas materiales. Es sustancia divina.
