@@ -15,10 +15,10 @@
     "typecheck": "tsc"
   },
   "dependencies": {
-    "@docusaurus/core": "^3.1.1",
-    "@docusaurus/plugin-google-gtag": "^3.1.1",
-    "@docusaurus/plugin-pwa": "^3.1.1",
-    "@docusaurus/preset-classic": "^3.1.1",
+    "@docusaurus/core": "^3.2.1",
+    "@docusaurus/plugin-google-gtag": "^3.2.1",
+    "@docusaurus/plugin-pwa": "^3.2.1",
+    "@docusaurus/preset-classic": "^3.2.1",
     "@fortawesome/fontawesome-svg-core": "^6.4.2",
     "@fortawesome/free-solid-svg-icons": "^6.4.2",
     "@fortawesome/react-fontawesome": "^0.2.0",
@@ -29,8 +29,8 @@
     "react-dom": "^18.2.0"
   },
   "devDependencies": {
-    "@docusaurus/module-type-aliases": "^3.1.1",
-    "@docusaurus/tsconfig": "^3.1.1",
+    "@docusaurus/module-type-aliases": "^3.2.1",
+    "@docusaurus/tsconfig": "^3.2.1",
     "@docusaurus/types": "^3.0.1",
     "@types/react": "^18.2.29",
     "docusaurus-plugin-sass": "^0.2.5",
