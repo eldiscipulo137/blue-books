@@ -1,4 +1,7 @@
 {
   "spellright.language": ["es"],
-  "spellright.documentTypes": ["markdown", "latex", "plaintext", "yaml"]
+  "spellright.documentTypes": ["markdown", "latex", "plaintext", "yaml"],
+  "files.watcherExclude": {
+    "**/target": true
+  }
 }
