@@ -12,7 +12,6 @@ const config = {
   url: "https://discipulo.info",
   baseUrl: "/",
   onBrokenLinks: "throw",
-  onBrokenMarkdownLinks: "warn",
   favicon: "img/favicon.ico",
 
   // GitHub pages deployment config.
@@ -34,6 +33,10 @@ const config = {
       admonitions: false,
       headingIds: true,
     },
+    hooks: {
+      onBrokenMarkdownLinks: "warn",
+      onBrokenMarkdownImages: "warn"
+    }
   },
 
   presets: [
